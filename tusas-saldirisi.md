@@ -1,6 +1,6 @@
 ---
 title: "TUSAŞ Saldırısı ve Güvenlik Zafiyeti"
-date: "10/24"
+date: "2024-10-23"
 category: "Süreç"
 img: "https://ekoavrasya.net/wp-content/uploads/2024/10/tusas-saldirisi-dunya-basininda-dikkat-ceken-bahceli-detayi-17297536797437_2.jpg"
 ---
