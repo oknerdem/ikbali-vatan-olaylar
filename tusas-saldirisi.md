@@ -12,5 +12,5 @@ Güvenlik güçlerinin müdahalesiyle saldırganlar etkisiz hâle getirildi. **S
 TUSAŞ saldırısında şehit düşen makine mühendisi **Zahide Güçlü** saldırı anında eşinin gönderdiği çiçeği almak için TUSAŞ yerleşkesinin girişine çıktığı sırada saldırının hedefi oldu.
 
 ```thought
-PKKlı terörist köpeklerin saldırısında hayatını kaybeden **TUSAŞ mühendisi Zahide Güçlü** 2020 yılında annesini kaybetmiş, 2021 yılında kızına kanser teşhisi konulmuş, 2 yıldır hastanede tedavi görüyormuş ve evine yeni dönmüş. 14. evlilik yıldönümü için eşi tarafından gönderilen çiçeği alırken hayatını kaybetti. Ve bu örgüte mensup kişilerin hatta örgütün liderinin affı ve bu kişilerle barış denemeleri yine AKP döneminde oldu.
+PKKlı terörist köpeklerin saldırısında hayatını kaybeden TUSAŞ mühendisi Zahide Güçlü 2020 yılında annesini kaybetmiş, 2021 yılında kızına kanser teşhisi konulmuş, 2 yıldır hastanede tedavi görüyormuş ve evine yeni dönmüş. 14. evlilik yıldönümü için eşi tarafından gönderilen çiçeği alırken hayatını kaybetti. Ve bu örgüte mensup kişilerin hatta örgütün liderinin affı ve bu kişilerle barış denemeleri yine AKP döneminde oldu.
 ```
