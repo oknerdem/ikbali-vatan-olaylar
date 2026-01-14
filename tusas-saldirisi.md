@@ -2,11 +2,11 @@
 title: "TUSAŞ Saldırısı ve Güvenlik Zafiyeti"
 date: "10/24"
 category: "Süreç"
-img: "https://cdn1.ntv.com.tr/gorsel/JKC5tSXO8k2wzK6y5tX22w.jpg?width=1000&mode=crop&scale=both"
+img: "https://ekoavrasya.net/wp-content/uploads/2024/10/tusas-saldirisi-dunya-basininda-dikkat-ceken-bahceli-detayi-17297536797437_2.jpg"
 ---
 
-Ankara'nın Kahramankazan ilçesinde bulunan Türk Havacılık ve Uzay Sanayii A.Ş. (TUSAŞ) tesislerine düzenlenen terör saldırısı, Türkiye'nin savunma sanayisinin kalbine yapılan bir saldırı olarak kayıtlara geçti. PKK'lı teröristlerin gerçekleştirdiği saldırıda 5 vatandaşımız şehit oldu, 22 kişi yaralandı.
+Ankara Kahramankazan’daki TUSAŞ yerleşkesine yönelik silahlı ve bombalı bir saldırı düzenlendi. İki saldırganın tesis girişinde patlama ve ardından silahlı saldırı gerçekleştirdiği olayda 5 kişi hayatını kaybetti, 22 kişi yaralandı. 
 
-Saldırının zamanlaması ve hedef seçimi, terör örgütünün Türkiye'nin stratejik kazanımlarını hedef aldığını gösterdi. Ancak olayın ardından ortaya çıkan güvenlik kamerası görüntüleri, tesisin güvenliğindeki zafiyetleri de tartışmaya açtı. Teröristlerin elini kolunu sallayarak tesise girmesi, "İstihbarat nerede?" sorusunu akıllara getirdi.
+Güvenlik güçlerinin müdahalesiyle saldırganlar etkisiz hâle getirildi. Saldırıyı PKK üstlendi.
 
-Bu saldırı, "çözüm süreci" tartışmalarının gölgesinde, terörle mücadelenin asla gevşetilmemesi gerektiğini bir kez daha kanıtladı. Şehitlerimizin kanı yerde kalmadı denilse de, kaybedilen canların acısı yüreklerde tazeliğini koruyor.
+USAŞ saldırısında şehit düşen makine mühendisi Zahide Güçlü saldırı anında eşinin gönderdiği çiçeği almak için TUSAŞ yerleşkesinin girişine çıktığı sırada saldırının hedefi oldu.
