@@ -9,4 +9,4 @@ Ankara Kahramankazan’daki TUSAŞ yerleşkesine yönelik silahlı ve bombalı b
 
 Güvenlik güçlerinin müdahalesiyle saldırganlar etkisiz hâle getirildi. Saldırıyı PKK üstlendi.
 
-USAŞ saldırısında şehit düşen makine mühendisi Zahide Güçlü saldırı anında eşinin gönderdiği çiçeği almak için TUSAŞ yerleşkesinin girişine çıktığı sırada saldırının hedefi oldu.
+TUSAŞ saldırısında şehit düşen makine mühendisi Zahide Güçlü saldırı anında eşinin gönderdiği çiçeği almak için TUSAŞ yerleşkesinin girişine çıktığı sırada saldırının hedefi oldu.
