@@ -2,7 +2,7 @@
 title: 'Suriye'de HTŞ üstünlüğü'
 date: '2026-01-19'
 category: 'Global'
-img: 'https://www.savunmatr.com/wp-content/uploads/2024/12/cevlani-5-1140x720.jpg'
+img: 'https://pbs.twimg.com/media/GfZtSipWcAAdaWD.jpg'
 ---
 
 Suriye Ordusu (HTŞ) YPG/PKK terör örgütüne doğuda da üstünlük kurdu. Örgütün elinde sadece Haseke, Kamışlı ve Ayn-el Arab şehirleri kaldı.
