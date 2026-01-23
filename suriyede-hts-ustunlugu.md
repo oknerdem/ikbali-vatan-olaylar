@@ -9,4 +9,4 @@ Suriye Ordusu (HTŞ) YPG/PKK terör örgütüne doğuda da üstünlük kurdu. Ö
 
 Kuşatmaya alınan örgütün son toprakları anlaşma ile dağıtılması bekleniyor. Eğer örgüt bir yanıt vermezse 4 gün tanınan süre yarın akşam 20:00'da bitiyor.
 
-ABD ve koalisyon kuvvetleri Suriyedeki IŞİD tutsaklarının bulunduğu hapishanelerdeki IŞİD üyelerini Irak'a taşıdı.
+ABD ve koalisyon kuvvetleri Suriye’deki IŞİD tutsaklarının bulunduğu hapishanelerdeki IŞİD üyelerini Irak'a taşıdı.
