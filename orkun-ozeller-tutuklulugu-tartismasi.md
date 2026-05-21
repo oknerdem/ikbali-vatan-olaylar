@@ -1,7 +1,7 @@
 ---
 title: 'Orkun Özeller Tutukluluğu Tartışması'
 date: '09/25'
-category: 'Süreç'
+category: 'Siyasi'
 img: 'https://www.istanbulhaber.com.tr/d/news/2203977.jpg'
 ---
 
