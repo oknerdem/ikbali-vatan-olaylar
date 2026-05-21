@@ -1,5 +1,5 @@
 ---
-title: "CHP Başkanlığına tekrardan Kılıçdaroğlu geçirildi"
+title: "CHP yönetimine tekrardan Kılıçdaroğlu geçirildi"
 date: "05/26"
 category: "Siyasi"
 img: "https://static.bianet.org/haber/2026/05/20/kemal-kilicdaroglu-ozgur-ozel-ve-chp-yonetimini-hedef-aldi.jpg"
