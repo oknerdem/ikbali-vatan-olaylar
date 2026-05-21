@@ -1,7 +1,7 @@
 ---
 title: "Yenidoğan Çetesi Skandalı ve Çürüyen Sağlık Sistemi"
 date: "10/24"
-category: "Süreç"
+category: "Genel"
 img: "https://im.haberturk.com/2024/10/18/ver1729260384/3730596_810x458.jpg"
 ---
 
