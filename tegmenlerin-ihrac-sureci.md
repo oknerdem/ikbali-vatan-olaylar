@@ -1,7 +1,7 @@
 ---
 title: "Teğmenlerin İhraç Süreci ve Kılıçlı Yemin"
 date: "02/25"
-category: "Süreç"
+category: "Siyasi"
 img: "https://static.daktilo.com/sites/71/uploads/2024/09/06/tegmelerin-kilicli-yemini.jpg"
 ---
 
