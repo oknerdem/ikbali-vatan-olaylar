@@ -2,7 +2,7 @@
 title: Mahkeme Kararıyla CHP Kurultayı İptal Edildi, Kılıçdaroğlu Göreve İade Edildi
 date: "2026-05-21"
 category: "Siyasi"
-img: ""
+img: "https://static.bianet.org/haber/2026/05/20/kemal-kilicdaroglu-ozgur-ozel-ve-chp-yonetimini-hedef-aldi.jpg"
 ---
 
 Cumhuriyet Halk Partisi (CHP) kurultayı hakkında mahkeme tarafından "mutlak butlan" kararı verildi. Bu kararla birlikte, önceki kurultayda seçilen Özgür Özel'in görevi sona erdirilirken, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iade edildiği belirtildi. Kararın gerekçesi olarak "delege iradesinin fesada uğratıldığı" tespiti öne sürüldü.
