@@ -11,4 +11,10 @@ Karar, Türkiye siyasetinde geniş yankı uyandırdı ve birçok siyasi figür i
 
 Hükümet kanadından yapılan ilk açıklamalarda, Adalet Bakanı Gürlek, karara ilişkin başvurunun bizzat parti içinden yapıldığını belirtti. İktidar çevreleri ise bu durumu "demokrasinin güçlenmesi" olarak yorumladı. Öte yandan, Ankara Emniyeti'nde tüm personel izinleri iptal edilerek güvenlik tedbirleri artırıldı.
 
-CHP Genel Merkezi önünde protestolar yaşanırken, parti örgütlerinden de tepkiler yükseldi. İzmir İl örgütü genel merkezi terk etmeme kararı alırken, Mansur Yavaş acil kongre çağrısında bulundu. Avrupa medyası da kararı yakından takip ederek, Türkiye'de demokrasi ve çoğulculuğun zayıflatıldığı yönünde yorumlar yaptı.
+CHP Genel Merkezi önünde protestolar yaşanırken, parti örgütlerinden de tepkiler yükseldi. İzmir İl örgütü genel merkezi terk etmeme kararı alırken, Mansur Yavaş acil kongre çağrısında bulundu.
+
+## Güncelleme - 2026-05-22
+
+Mahkemenin verdiği "mutlak butlan" kararı sonrasında CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
+
+Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
