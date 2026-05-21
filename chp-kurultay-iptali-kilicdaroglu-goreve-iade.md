@@ -1,5 +1,5 @@
 ---
-title: Mahkeme Kararıyla CHP Kurultayı İptal Edildi, Kılıçdaroğlu Göreve İade Edildi
+title: CHP Kurultayı İptal Edildi, Kılıçdaroğlu Göreve İade Edildi
 date: "2026-05-21"
 category: "Siyasi"
 img: "https://static.bianet.org/haber/2026/05/20/kemal-kilicdaroglu-ozgur-ozel-ve-chp-yonetimini-hedef-aldi.jpg"
