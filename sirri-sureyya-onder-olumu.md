@@ -5,4 +5,4 @@ category: "Genel"
 img: "https://esitlikadaletkadin.org/wp-content/uploads/2025/05/msirri.jpg"
 ---
 
-Öldü :)
+🎉🥳
