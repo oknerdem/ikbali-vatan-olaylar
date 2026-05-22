@@ -13,7 +13,7 @@ Hükümet kanadından yapılan ilk açıklamalarda, Adalet Bakanı Gürlek, kara
 
 CHP Genel Merkezi önünde protestolar yaşanırken, parti örgütlerinden de tepkiler yükseldi. İzmir İl örgütü genel merkezi terk etmeme kararı alırken, Mansur Yavaş acil kongre çağrısında bulundu.
 
-## Güncelleme - 2026-05-22
+## Gelişmeler
 
 Mahkemenin verdiği "mutlak butlan" kararı sonrasında CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
 
