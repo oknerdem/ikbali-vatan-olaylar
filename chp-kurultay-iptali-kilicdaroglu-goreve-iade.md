@@ -1,6 +1,6 @@
 ---
 title: CHP Kurultayı İptal Edildi, Kılıçdaroğlu Göreve İade Edildi
-date: "2026-05-21"
+date: "2026-05-22"
 category: "Siyasi"
 img: "https://images.euronews.com/articles/stories/08/01/58/24/1536x864_cmsv2_ac2829bc-9691-535f-83e4-2abdd67594c0-8015824.jpg"
 ---
@@ -18,3 +18,9 @@ CHP Genel Merkezi önünde protestolar yaşanırken, parti örgütlerinden de te
 Mahkemenin verdiği "mutlak butlan" kararı sonrasında CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
 
 Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
+
+## Güncelleme - 2026-05-22
+
+Mahkemenin CHP kurultayına ilişkin verdiği "mutlak butlan" kararının ardından siyasi gelişmeler hız kazandı. Bu kararın ardından Kemal Kılıçdaroğlu'nun genel başkanlığa iade edilmesiyle birlikte, parti içinde ve dışında çeşitli görüşler ortaya çıktı. Zafer Partisi Genel Başkanı Ümit Özdağ'ın CHP Genel Merkezi'ne giderek destek mesajı vermesi ve Sosyalist Enternasyonal'in kararı "demokrasiye darbe" olarak nitelendirmesi dikkat çeken gelişmeler arasında yer aldı.
+
+Bu süreçte, Yüksek Seçim Kurulu (YSK) da CHP'nin "mutlak butlan" itirazını görüşmek üzere toplandı. Uluslararası basında da yer bulan karar, Türkiye'deki siyasi ve hukuki süreçlere dair tartışmaları yeniden gündeme getirdi. New York Times gibi yayın organları, kararı Cumhurbaşkanı Erdoğan'ın rakiplerini zayıflatma hamlesi olarak değerlendirdi.
