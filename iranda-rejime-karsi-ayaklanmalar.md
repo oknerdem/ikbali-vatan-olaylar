@@ -14,3 +14,7 @@ img: 'https://static.birgun.net/resim/haber/2026/01/08/iran-da-gosteriler-12-gun
 Doğrulanmamış iddialar arasında ABD ordusunun İran'a yönelik bir saldırı hazırlığında olduğu yönünde haberler de bulunuyor.
 
 **Güncelleme: Trump, İran halkının isyanlara korkmadan devam etmesini ve ABD'nin yakında geleceğini söyledi.**
+
+## Güncelleme - 2026-05-22
+
+ABD Başkanı Trump, İran'daki gelişmelerle ilgili ulusal güvenlik ekibini topladı. Bu toplantıda, İran'daki protestoların ve olası dış müdahalelerin değerlendirildiği belirtildi. Trump, İran halkının isyanlara devam etmesi yönünde çağrıda bulunarak ABD'nin yakında bölgede olacağını ifade etti.
