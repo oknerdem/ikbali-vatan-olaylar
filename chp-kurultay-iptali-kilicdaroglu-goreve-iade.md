@@ -18,3 +18,9 @@ CHP Genel Merkezi önünde protestolar yaşanırken, parti örgütlerinden de te
 Mahkemenin verdiği "mutlak butlan" kararı sonrasında CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
 
 Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
+
+## Güncelleme - 2026-05-22
+
+Mahkemenin verdiği "mutlak butlan" kararının ardından CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
+
+Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
