@@ -1,6 +1,6 @@
 ---
 title: "PKK'lıların Salınması"
-date: '00/00'
+date: '2026-05-22'
 category: 'Süreç'
 devam: true
 ---
@@ -32,3 +32,11 @@ Dağ kadrosundan inip "etkin pişmanlık" ile salıverilen eski terörist.
 > **Çıktıktan sonra:** Diyarbakır mitinginde kürsüye çıkarılarak on binlere hitap ettirildi. Devletin kendisine tanıdığı özgürlüğü, devlete meydan okumak için kullanıyor.
 
 Bu tablo, adaletin sadece kör değil, aynı zamanda hafızasız olduğunu da gösteriyor. Şehit aileleri, katillerin elini kolunu sallayarak gezdiği bir ülkede adaletten bahsetmenin mümkün olmadığını haykırıyor.
+
+## Güncelleme - 2026-05-22
+
+Gazeteci Alican Uludağ, 3 aydır süren tutukluluğunun ardından tahliye edildi. Bu gelişme, mevcut haber dosyasındaki genel temayla doğrudan bir bağlantı kurmasa da, yargı süreçlerindeki hareketlilik ve kamuoyunda yankı uyandıran tahliye kararları bağlamında not edilmiştir. Uludağ'ın tahliyesine ilişkin detaylar ve gerekçeleri henüz tam olarak kamuoyu ile paylaşılmamıştır.
+
+Kaynaklar:
+[1] Manşet Haber: Gazeteci Alican Uludağ tahliye edildi (22 Mayıs 2026)
+[2] Çağdaş Kocaeli Gazetesi: CHP Kocaeli Gençliği’nin sloganı gündem oldu: “Halkın düşmanı Kılıçdaroğlu” (22 Mayıs 2026)

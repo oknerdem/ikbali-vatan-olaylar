@@ -1,6 +1,6 @@
 ---
 title: CHP Kurultayı İptal Edildi, Kılıçdaroğlu Göreve İade Edildi
-date: "2026-05-21"
+date: "2026-05-22"
 category: "Siyasi"
 img: "https://images.euronews.com/articles/stories/08/01/58/24/1536x864_cmsv2_ac2829bc-9691-535f-83e4-2abdd67594c0-8015824.jpg"
 ---
