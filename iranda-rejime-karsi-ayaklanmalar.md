@@ -18,3 +18,7 @@ Doğrulanmamış iddialar arasında ABD ordusunun İran'a yönelik bir saldırı
 ## Güncelleme - 2026-05-22
 
 ABD Başkanı Trump, İran'daki gelişmelerle ilgili ulusal güvenlik ekibini topladı. Bu toplantıda, İran'daki protestoların ve olası dış müdahalelerin değerlendirildiği belirtildi. Trump, İran halkının isyanlara devam etmesi yönünde çağrıda bulunarak ABD'nin yakında bölgede olacağını ifade etti.
+
+## Güncelleme - 2026-05-23
+
+ABD Başkanı Trump, ulusal güvenlik ekibiyle bir araya gelerek İran'daki protestoları ve olası dış müdahaleleri değerlendirdi. Trump, İran halkını isyanlara devam etmeye teşvik ederken, ABD'nin yakında bölgede olacağı yönünde açıklamalarda bulundu.
