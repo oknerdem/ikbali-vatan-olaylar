@@ -42,3 +42,7 @@ Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel 
 Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor.
 
 Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
+
+## Güncelleme - 2026-05-23 (2)
+
+Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.

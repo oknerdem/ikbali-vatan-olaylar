@@ -16,3 +16,9 @@ Washington Post'ta yer alan bir analizde ise Türkiye'nin, İran'daki olası bir
 Dışişleri Bakanı Hakan Fidan, ABD'li Senatör Marco Rubio ile bir araya gelerek çeşitli dış politika konularını ele aldı. Görüşmeye dair detaylar henüz kamuoyu ile paylaşılmadı.
 
 Bu gelişmelerin yanı sıra, Türkiye ile Polonya arasında güvenlik diplomasisi odaklı bir görüşme gerçekleştirildi. Bu temaslar, Türkiye'nin bölgesel güvenlik ve uluslararası ilişkilerdeki aktif rolünü pekiştirmektedir.
+
+## Güncelleme - 2026-05-23 (2)
+
+ABD eski Başkanı Donald Trump, İran'ı "dünyanın bir numaralı devlet destekli terör hamisi" olarak nitelendirdi. Bu açıklama, bölgedeki gerilimleri ve uluslararası ilişkilerdeki hassasiyetleri bir kez daha gündeme getirdi.
+
+Öte yandan, Türkiye'nin dış politika stratejilerindeki dönüşüm, özellikle pragmatizm ve doktrin arasındaki denge üzerine yapılan analizler, ülkenin bölgesel ve küresel politikalardaki rolünü yeniden şekillendirdiği yorumlarına yol açtı.
