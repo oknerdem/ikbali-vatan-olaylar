@@ -1,0 +1,12 @@
+---
+title: "Gülistan Doku Davasında Umut Altaş Hakim Karşısında"
+date: "2026-05-23"
+category: "Siyasi"
+img: "https://img.gercekgundem.com/rcman/Cw1280h720q95gc/storage/files/images/2026/05/23/gulistan-doku-sorusturmasinda-umut-altasin-ses-kaydi-cikti-her-seyin-kaniti-elimde-katili-ellerinize-birakacagim-guc7.png"
+---
+
+Gülistan Doku'nun kaybolmasına ilişkin soruşturmada adı geçen Umut Altaş'ın mahkemeye çıkacağı öğrenildi. Dava sürecinde önemli bir gelişme olarak değerlendirilen bu durum, kamuoyunun dikkatini ABD yargısına çevirdi.
+
+Umut Altaş'ın mahkemeye çıkacak olması, Gülistan Doku dosyasında yeni bir aşamaya gelindiğini gösteriyor. Altaş'ın, elinde deliller olduğunu ve katili adalete teslim edeceğini belirttiği ses kayıtlarının da bu süreçte etkili olabileceği düşünülüyor.
+
+Davanın ABD yargısında görülmesi, hukuki süreçlerin takibini daha da önemli hale getiriyor. Kamuoyu, Gülistan Doku'nun akıbeti ve bu davanın sonuçlanmasıyla ilgili gelişmeleri yakından izlemeye devam ediyor.

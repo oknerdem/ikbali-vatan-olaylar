@@ -20,3 +20,9 @@ Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki istihbar
 Milli İstihbarat Teşkilatı (MİT) tarafından Suriye'de DEAŞ terör örgütüne yönelik gerçekleştirilen operasyonda yakalanan ve Türkiye'ye getirilen 10 teröristin sorgusu devam ediyor. Yakalanan şahıslar arasında, Türkiye'de eylemler planladığı tespit edilen ve kırmızı bültenle aranan kişilerin bulunduğu belirtildi.
 
 Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki istihbarat ve operasyonel kabiliyetini bir kez daha ortaya koyduğu vurgulandı. Bazı haber kaynaklarında, yakalanan teröristlerin Ankara Garı'ndaki bombalı saldırı gibi eylemlerle bağlantılı olabileceği iddialarına yer verildi.
+
+## Güncelleme - 2026-05-24
+
+Milli İstihbarat Teşkilatı (MİT) tarafından Suriye'de DEAŞ terör örgütüne yönelik gerçekleştirilen operasyonda yakalanan ve Türkiye'ye getirilen 10 teröristin sorgusu devam ediyor. Yakalanan şahıslar arasında, Türkiye'de eylemler planladığı tespit edilen ve kırmızı bültenle aranan kişilerin bulunduğu belirtildi.
+
+Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki istihbarat ve operasyonel kabiliyetini bir kez daha ortaya koyduğu vurgulandı. Bazı haber kaynaklarında, yakalanan teröristlerin Ankara Garı'ndaki bombalı saldırı gibi eylemlerle bağlantılı olabileceği iddialarına yer verildi.
