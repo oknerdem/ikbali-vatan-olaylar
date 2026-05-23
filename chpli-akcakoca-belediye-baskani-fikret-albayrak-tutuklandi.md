@@ -8,3 +8,9 @@ img: "https://static.daktilo.com/sites/423/uploads/2026/05/23/fikret-albayrak.jp
 CHP'li Akçakoca Belediye Başkanı Fikret Albayrak, 'irtikap' suçlamasıyla tutuklandı. Karar, yerel siyaset ve yargı gündeminde yer buldu.
 
 Albayrak'ın tutuklanması, parti içinde ve kamuoyunda çeşitli değerlendirmelere neden oldu. Olayla ilgili hukuki süreç devam etmektedir.
+
+## Güncelleme - 2026-05-23
+
+CHP'li Akçakoca Belediye Başkanı Fikret Albayrak'ın tutuklanmasına ilişkin hukuki süreç devam ederken, konuyla ilgili yeni gelişmeler yaşanmıştır. Albayrak'ın avukatları, karara itiraz ederek tahliye talebinde bulunmuştur. Mahkemenin bu itirazı ne zaman değerlendireceği ve sonuç ne olacak merak konusu olmuştur.
+
+Bu olay, yerel yönetimlerdeki hukuki süreçlerin takibi ve şeffaflığı açısından önem taşımaktadır. Kamuoyu, yargı sürecinin adil ve hızlı bir şekilde tamamlanmasını beklemektedir.
