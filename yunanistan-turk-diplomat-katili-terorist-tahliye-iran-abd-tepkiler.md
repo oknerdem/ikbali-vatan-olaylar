@@ -8,3 +8,7 @@ img: ""
 Yunanistan, daha önce Türk diplomatların katili olarak bilinen bir teröristi tahliye etme kararı aldı. Bu gelişme, uluslararası ilişkilerde ve Türkiye'nin güvenlik politikaları açısından önemli yankı uyandırdı.
 
 Diğer yandan, eski ABD Başkanı Donald Trump'ın İran'a yönelik sert çıkışları ve güvenlik ekibini topladığına dair iddialar, bölgedeki tansiyonu artırdı. Bu durum, uluslararası alanda İran'a yönelik baskının arttığı şeklinde yorumlandı.
+
+## Güncelleme - 2026-05-23
+
+Yunanistan'ın, 17 Kasım Terör Örgütü'ne mensup ve iki Türk diplomatın şehit edilmesi eylemlerinde rolü olduğu bilinen bir terörist liderini tahliye etme kararı, Türkiye tarafından sert tepkiyle karşılandı. Bu gelişme, Türkiye'nin güvenlik ve dış politika hassasiyetlerini bir kez daha gündeme getirdi. Tahliye kararının, uluslararası hukuk ve terörle mücadele prensipleri açısından da tartışmalara yol açması bekleniyor.
