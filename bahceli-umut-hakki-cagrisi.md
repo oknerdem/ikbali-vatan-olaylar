@@ -14,3 +14,7 @@ Bu açıklama, milliyetçi camiada şok etkisi yarattı. Yıllarca terörle müc
 ## Güncelleme - 2026-05-23
 
 MHP Genel Başkanı Devlet Bahçeli, 23 Mayıs 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' vurgusu yaparak bunun bir 'kardeşlik projesi' olduğunu belirtti. Bahçeli, bu projenin devlet politikası olduğunu ve Türkiye'nin huzuru için tarihi bir sorumluluk taşıdığını ifade etti. Bu açıklamalar, daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaların devamı niteliğindedir.
+
+## Güncelleme - 2026-05-24
+
+MHP Genel Başkanı Devlet Bahçeli, 23 Mayıs 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' vurgusu yaparak bunun bir 'kardeşlik projesi' olduğunu belirtti. Bahçeli, bu projenin devlet politikası olduğunu ve Türkiye'nin huzuru için tarihi bir sorumluluk taşıdığını ifade etti. Bu açıklamalar, daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaların devamı niteliğindedir.

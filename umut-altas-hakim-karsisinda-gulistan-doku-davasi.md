@@ -10,3 +10,9 @@ Gülistan Doku'nun kaybolmasına ilişkin soruşturmada adı geçen Umut Altaş'
 Umut Altaş'ın mahkemeye çıkacak olması, Gülistan Doku dosyasında yeni bir aşamaya gelindiğini gösteriyor. Altaş'ın, elinde deliller olduğunu ve katili adalete teslim edeceğini belirttiği ses kayıtlarının da bu süreçte etkili olabileceği düşünülüyor.
 
 Davanın ABD yargısında görülmesi, hukuki süreçlerin takibini daha da önemli hale getiriyor. Kamuoyu, Gülistan Doku'nun akıbeti ve bu davanın sonuçlanmasıyla ilgili gelişmeleri yakından izlemeye devam ediyor.
+
+## Güncelleme - 2026-05-24
+
+Gülistan Doku'nun kaybolmasına ilişkin soruşturmada adı geçen Umut Altaş'ın iade süreci başlatıldı. Bu gelişme, davanın ABD yargısında görülmesi ve Altaş'ın mahkemeye çıkacak olmasıyla ilgili hukuki süreçlerde yeni bir aşamaya işaret ediyor.
+
+Umut Altaş'ın elinde deliller olduğunu ve katili adalete teslim edeceğini belirttiği ses kayıtlarının da bu süreçte etkili olabileceği değerlendiriliyor. Kamuoyu, davanın sonuçlanması ve Gülistan Doku'nun akıbetiyle ilgili gelişmeleri yakından takip etmeye devam ediyor.

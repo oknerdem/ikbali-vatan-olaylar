@@ -88,3 +88,9 @@ CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenle
 CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
 
 Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
+
+## Güncelleme - 2026-05-24 (2)
+
+CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
+
+Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
