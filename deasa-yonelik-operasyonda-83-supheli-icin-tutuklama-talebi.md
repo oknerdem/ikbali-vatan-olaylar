@@ -14,3 +14,7 @@ Güvenlik güçleri, terör örgütü DEAŞ'ın faaliyetlerini engellemeye yöne
 İstanbul merkezli 3 ilde DEAŞ terör örgütüne yönelik düzenlenen operasyonda gözaltına alınan 83 şüpheli hakkında tutuklama talebinde bulunulduğu bildirildi.
 
 Operasyonun, terör örgütünün faaliyetlerini engellemeye yönelik sürdürülen çalışmalar kapsamında gerçekleştirildiği ve adli makamlara sevk edilen şüphelilerle ilgili tutuklama isteminin mahkemeye iletildiği öğrenildi.
+
+## Güncelleme - 2026-05-24
+
+Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gaziantep'te ise DEAŞ operasyonunda bir kişi tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.

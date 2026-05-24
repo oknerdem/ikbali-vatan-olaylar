@@ -100,3 +100,7 @@ CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenle
 Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
 
 CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
+
+## Güncelleme - 2026-05-24 (4)
+
+Ankara Valiliği, CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
