@@ -22,3 +22,9 @@ Yunanistan'ın, 17 Kasım Terör Örgütü'ne mensup ve iki Türk diplomatın ş
 Yunanistan'ın, 17 Kasım Terör Örgütü'ne mensup ve iki Türk diplomatın şehit edilmesi eylemlerinde rolü olduğu bilinen bir terörist liderini tahliye etme kararı, Türkiye tarafından sert tepkiyle karşılandı. Bu gelişme, Türkiye'nin güvenlik ve dış politika hassasiyetlerini bir kez daha gündeme getirdi. Tahliye kararının, uluslararası hukuk ve terörle mücadele prensipleri açısından da tartışmalara yol açması bekleniyor.
 
 Bu tahliye kararı, uluslararası kamuoyunda da yankı buldu. Özellikle İran ve ABD'den gelen tepkiler, olayın diplomatik boyutunu daha da karmaşık hale getirdi. Türkiye, bu kararın terörle mücadeledeki kararlılığını zedelediğini ve bölgesel istikrarı olumsuz etkileyebileceğini vurguladı.
+
+## Güncelleme - 2026-05-24 (3)
+
+Yunanistan'ın, 17 Kasım Terör Örgütü'ne mensup ve iki Türk diplomatın şehit edilmesi eylemlerinde rolü olduğu bilinen bir terörist liderini tahliye etme kararı, Türkiye tarafından sert tepkiyle karşılandı. Bu gelişme, Türkiye'nin güvenlik ve dış politika hassasiyetlerini bir kez daha gündeme getirdi. Tahliye kararının, uluslararası hukuk ve terörle mücadele prensipleri açısından da tartışmalara yol açması bekleniyor.
+
+Bu tahliye kararı, uluslararası kamuoyunda da yankı buldu. Özellikle İran ve ABD'den gelen tepkiler, olayın diplomatik boyutunu daha da karmaşık hale getirdi. Türkiye, bu kararın terörle mücadeledeki kararlılığını zedelediğini ve bölgesel istikrarı olumsuz etkileyebileceğini vurguladı.
