@@ -22,3 +22,7 @@ Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gazia
 ## Güncelleme - 2026-05-24 (2)
 
 Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gaziantep'te ise DEAŞ operasyonunda bir kişi tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-05-25
+
+Osmaniye merkezli olarak düzenlenen "Yapay Zeka 2" operasyonunda ise 11 şüpheli tutuklandı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
