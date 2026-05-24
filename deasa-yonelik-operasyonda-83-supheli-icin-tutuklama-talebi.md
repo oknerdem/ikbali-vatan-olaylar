@@ -18,3 +18,7 @@ Operasyonun, terör örgütünün faaliyetlerini engellemeye yönelik sürdürü
 ## Güncelleme - 2026-05-24
 
 Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gaziantep'te ise DEAŞ operasyonunda bir kişi tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-05-24 (2)
+
+Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gaziantep'te ise DEAŞ operasyonunda bir kişi tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
