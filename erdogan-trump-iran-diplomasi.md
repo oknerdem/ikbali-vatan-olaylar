@@ -12,3 +12,7 @@ Bu temaslar, bölgedeki hassas dengeler ve uluslararası ilişkiler açısından
 ## Güncelleme - 2026-05-24
 
 ABD Başkanı Donald Trump, İran'a yönelik politikalarına ilişkin yaptığı açıklamada, "Zaman bizim lehimize işliyor" ifadesini kullandı. Bu açıklama, iki ülke arasındaki gerilimin devam ettiğini ve Trump yönetiminin İran üzerindeki baskısını sürdürme niyetini gösteriyor. Erdoğan ve Trump arasındaki diplomatik temasların bu yeni gelişme ışığında nasıl bir seyir izleyeceği merak konusu.
+
+## Güncelleme - 2026-05-25
+
+ABD Başkanı Donald Trump, İran'a yönelik politikalarına ilişkin yaptığı açıklamada, "Zaman bizim lehimize işliyor" ifadesini kullandı. Bu açıklama, iki ülke arasındaki gerilimin devam ettiğini ve Trump yönetiminin İran üzerindeki baskısını sürdürme niyetini gösteriyor. Beyaz Saray'dan yapılan açıklamada ise İran ile bir anlaşmanın tamamlanmasının günler sürebileceği belirtildi. Erdoğan ve Trump arasındaki diplomatik temasların bu yeni gelişmeler ışığında nasıl bir seyir izleyeceği merak konusu.

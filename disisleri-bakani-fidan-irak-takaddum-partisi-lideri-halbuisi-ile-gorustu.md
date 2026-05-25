@@ -14,3 +14,9 @@ Bu görüşme, Türkiye'nin Irak ile olan diplomatik temaslarını ve bölgesel 
 Dışişleri Bakanı Hakan Fidan, 24 Mayıs 2026 tarihinde Ankara'da Ukrayna Ulusal Güvenlik ve Savunma Konseyi Sekreteri Rustem Umerov ile bir araya geldi. Görüşmede, Ukrayna'daki güncel gelişmeler ve bölgesel güvenlik konuları ele alındı.
 
 Bu görüşme, Türkiye'nin Ukrayna ile olan diplomatik ilişkilerini ve bölgesel barış çabalarını sürdürme politikasının bir yansıması olarak değerlendirilmektedir. Fidan ve Umerov'un temasları, iki ülke arasındaki iş birliğinin derinleştirilmesine yönelik adımlar olarak öne çıkmaktadır.
+
+## Güncelleme - 2026-05-25
+
+Dışişleri Bakanı Hakan Fidan, 24 Mayıs 2026 tarihinde Ankara'da Ukrayna Ulusal Güvenlik ve Savunma Konseyi Sekreteri Rustem Umerov ile bir araya geldi. Görüşmede, Ukrayna'daki güncel gelişmeler ve bölgesel güvenlik konuları ele alındı.
+
+Bu temas, Türkiye'nin Ukrayna ile olan diplomatik ilişkilerini ve bölgesel barış çabalarını sürdürme politikasının bir yansıması olarak değerlendirilmektedir. Fidan ve Umerov'un görüşmesi, iki ülke arasındaki iş birliğinin derinleştirilmesine yönelik adımlar olarak öne çıkmaktadır.
