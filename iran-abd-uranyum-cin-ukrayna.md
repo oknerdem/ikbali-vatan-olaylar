@@ -18,3 +18,9 @@ Bu gelişmeler, İran'ın nükleer programı ve ABD'nin uyguladığı baskılarl
 ## Güncelleme - 2026-05-25 (2)
 
 İran, ABD ile yürütülen gizli anlaşmaya dair ilk resmi açıklamayı yaptı. Tahran yönetimi, Türkiye'nin çözüm sürecinde gösterdiği özel çabalar için teşekkürlerini iletti. Bu gelişmeler, İran'ın nükleer programı ve ABD ile olan ilişkilerindeki diplomatik hareketliliği gözler önüne seriyor.
+
+## Güncelleme - 2026-05-26
+
+ABD ve İran arasında nükleer anlaşmaya yönelik gizli görüşmelerin yapıldığına dair iddialar ortaya atıldı. Al Arabiya'nın haberine göre, iki ülke bazı maddelerde anlaşmaya vardı. Bu gelişmeler, İran'ın nükleer programı ve ABD ile olan ilişkilerindeki diplomatik hareketliliği gözler önüne seriyor.
+
+Diğer yandan, Trump yönetiminin İran ile anlaşma zemini oluşturmak için Türkiye'nin de dahil olduğu bölge ülkelerine 'Abraham Anlaşması' şartı koştuğu belirtildi. Bu durum, bölgedeki diplomatik dengeleri ve olası yeni ittifakları gündeme getiriyor.

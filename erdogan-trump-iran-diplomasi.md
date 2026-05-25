@@ -28,3 +28,7 @@ ABD Başkanı Donald Trump, İran'a yönelik politikalarına ilişkin yaptığı
 ABD Başkanı Donald Trump, İran ile olası bir anlaşmanın tamamlanmasının günler sürebileceğini belirtirken, "Zaman bizim lehimize işliyor" ifadesini kullandı. Bu açıklama, Trump yönetiminin İran üzerindeki baskısını sürdürme niyetini gösteriyor. Beyaz Saray'dan yapılan açıklamalar ve ABD'li Senatör Marco Rubio'nun olası bir anlaşmaya ilişkin gelişmeler olabileceği yönündeki sözleri, diplomatik temasların seyrini etkileyebilecek nitelikte.
 
 Öte yandan, İsrail Başbakanı Netanyahu'nun Trump ile İran'ın nükleer silaha sahip olmaması konusunda hemfikir olduklarını belirtmesi, ancak ABD'den gelen Hamaney iddiasına göre güvenlik önlemleri müzakereleri yavaşlatıyor. Bu durum, İran ile olası bir anlaşmanın önündeki engelleri ve bölgesel etkilerini daha da karmaşık hale getiriyor. Trump'ın, İran ile savaşın bitmesi için Türkiye dahil 6 ülkeye İbrahim Anlaşmaları'nı imzalama şartı koşması da dikkat çekici bir gelişme olarak öne çıkıyor.
+
+## Güncelleme - 2026-05-26
+
+ABD Başkanı Donald Trump, İran ile olası bir anlaşma için Türkiye dahil olmak üzere bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koştuğunu belirtti. Bu gelişme, mevcut diplomatik temasların seyrini değiştirebilecek önemli bir gelişme olarak öne çıkıyor. Trump'ın bu şartı, İran ile varılacak bir mutabakatın bölgesel dengeler üzerindeki etkilerini daha da karmaşık hale getiriyor.
