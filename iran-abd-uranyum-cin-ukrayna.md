@@ -14,3 +14,7 @@ Diğer yandan, Çin'den Ukrayna'ya yönelik bir çağrı yapıldı. Çin, Ukrayn
 Katar ve Suudi Arabistan, ABD ile İran arasındaki gerilimi azaltmak ve olası bir ateşkesi sağlamak amacıyla diplomatik girişimlerde bulundu. Riyad ve Doha'nın bu konudaki çabaları, bölgedeki tansiyonun düşürülmesine yönelik önemli bir adım olarak değerlendiriliyor.
 
 Bu gelişmeler, İran'ın nükleer programı ve ABD'nin uyguladığı baskılarla birlikte, uluslararası arenada dikkatle takip ediliyor. Ukrayna'daki durumla ilgili olarak ise Çin'in sivillere yönelik saldırıların durdurulması çağrısı devam ediyor.
+
+## Güncelleme - 2026-05-25 (2)
+
+İran, ABD ile yürütülen gizli anlaşmaya dair ilk resmi açıklamayı yaptı. Tahran yönetimi, Türkiye'nin çözüm sürecinde gösterdiği özel çabalar için teşekkürlerini iletti. Bu gelişmeler, İran'ın nükleer programı ve ABD ile olan ilişkilerindeki diplomatik hareketliliği gözler önüne seriyor.
