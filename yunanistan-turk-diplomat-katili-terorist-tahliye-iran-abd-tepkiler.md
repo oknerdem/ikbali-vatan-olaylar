@@ -34,3 +34,9 @@ Bu tahliye kararı, uluslararası kamuoyunda da yankı buldu. Özellikle İran v
 Yunanistan'da Türk diplomatların şehit edilmesi eylemlerinde rolü olduğu bilinen bir teröristin tahliye edilmesi kararına, Yunanistan Yüksek Mahkemesi'nden itiraz geldiği bildirildi. Bu gelişme, Türkiye'nin sert tepkisine ek olarak hukuki bir boyut kazandırdı. Tahliye kararının iptali veya yeniden değerlendirilmesi süreci, uluslararası kamuoyunun da yakından takip ettiği bir konu haline geldi.
 
 Bu hukuki itiraz ve devam eden diplomatik süreç, olayın uluslararası boyutunu daha da derinleştirdi. İran ve ABD gibi ülkelerin daha önceki tepkileri göz önüne alındığında, Yunanistan'daki bu hukuki gelişmenin bölgesel ilişkiler üzerindeki etkileri merak konusu olmaya devam ediyor.
+
+## Güncelleme - 2026-05-25 (2)
+
+Yunanistan'da Türk diplomatların şehit edilmesi eylemlerinde rolü olduğu bilinen bir teröristin tahliye edilmesi kararına, Yunanistan Yüksek Mahkemesi'nden itiraz geldiği bildirildi. Bu gelişme, Türkiye'nin sert tepkisine ek olarak hukuki bir boyut kazandırdı. Tahliye kararının iptali veya yeniden değerlendirilmesi süreci, uluslararası kamuoyunun da yakından takip ettiği bir konu haline geldi.
+
+Bu hukuki itiraz ve devam eden diplomatik süreç, olayın uluslararası boyutunu daha da derinleştirdi. İran ve ABD gibi ülkelerin daha önceki tepkileri göz önüne alındığında, Yunanistan'daki bu hukuki gelişmenin bölgesel ilişkiler üzerindeki etkileri merak konusu olmaya devam ediyor.

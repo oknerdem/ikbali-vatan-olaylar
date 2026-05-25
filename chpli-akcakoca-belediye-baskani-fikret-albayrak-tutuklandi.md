@@ -26,3 +26,7 @@ Bu gelişme, yerel yönetimlerdeki hukuki süreçlerin şeffaflığı ve adaleti
 İçişleri Bakanlığı, Düzce'nin Akçakoca ilçesi Belediye Başkanı Fikret Albayrak'ın, 'icbar suretiyle irtikap' suçu nedeniyle yürütülen soruşturma kapsamında görevden uzaklaştırıldığını duyurdu.
 
 Bu gelişme, daha önce 'irtikap' suçlamasıyla tutuklanan Albayrak'ın durumuyla ilgili hukuki sürecin devam ettiğini göstermektedir. Görevden uzaklaştırma kararı, mevcut soruşturmanın bir parçası olarak değerlendirilmektedir.
+
+## Güncelleme - 2026-05-25
+
+Kilis Belediye Başkanı Hakan Bilecen, tutuklanan CHP İl Başkanı Mehmet Sapan'a destek açıklamasında bulundu. Bilecen, Sapan'ın yanında olduğunu belirterek, bu tür durumların siyasi baskıların bir sonucu olabileceğini ima etti. Bu destek açıklaması, Akçakoca Belediye Başkanı Fikret Albayrak'ın tutuklanmasıyla ilgili devam eden hukuki süreç ve yerel siyaset üzerindeki etkileri bağlamında değerlendirilmektedir.
