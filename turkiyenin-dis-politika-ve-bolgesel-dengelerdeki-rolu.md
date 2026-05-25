@@ -22,3 +22,9 @@ Bu gelişmelerin yanı sıra, Türkiye ile Polonya arasında güvenlik diplomasi
 ABD eski Başkanı Donald Trump, İran'ı "dünyanın bir numaralı devlet destekli terör hamisi" olarak nitelendirdi. Bu açıklama, bölgedeki gerilimleri ve uluslararası ilişkilerdeki hassasiyetleri bir kez daha gündeme getirdi.
 
 Öte yandan, Türkiye'nin dış politika stratejilerindeki dönüşüm, özellikle pragmatizm ve doktrin arasındaki denge üzerine yapılan analizler, ülkenin bölgesel ve küresel politikalardaki rolünü yeniden şekillendirdiği yorumlarına yol açtı.
+
+## Güncelleme - 2026-05-25
+
+Dışişleri Bakanı Hakan Fidan, ABD'li Senatör Marco Rubio ile bir araya gelerek çeşitli dış politika konularını ele aldı. Görüşmeye dair detaylar henüz kamuoyu ile paylaşılmadı.
+
+Bu gelişmelerin yanı sıra, Türkiye ile Polonya arasında güvenlik diplomasisi odaklı bir görüşme gerçekleştirildi. Bu temaslar, Türkiye'nin bölgesel güvenlik ve uluslararası ilişkilerdeki aktif rolünü pekiştirmektedir.
