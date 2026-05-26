@@ -50,3 +50,9 @@ Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları 
 26 Mayıs 2026 tarihinde Cumhurbaşkanı Recep Tayyip Erdoğan, İran Cumhurbaşkanı İbrahim Pezeşkiyan ile bir telefon görüşmesi gerçekleştirdi. Görüşmede, ikili ilişkiler ve bölgesel gelişmeler ele alındı. Aynı gün Erdoğan, Pakistan Başbakanı Şerif ile de bir telefon görüşmesi yaparak bölgesel konuları değerlendirdi.
 
 Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları ve olası bir anlaşma çerçevesinde Türkiye'nin diplomatik temaslarını sürdürdüğünü göstermektedir. Trump'ın, İran ile anlaşma için Türkiye dahil bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koşması, bölgesel dengeler açısından yeni bir boyut katmaktadır.
+
+## Güncelleme - 2026-05-27
+
+26 Mayıs 2026 tarihinde Cumhurbaşkanı Recep Tayyip Erdoğan, İran Cumhurbaşkanı İbrahim Pezeşkiyan ile bir telefon görüşmesi gerçekleştirdi. Görüşmede, ikili ilişkiler ve bölgesel gelişmeler ele alındı. Aynı gün Erdoğan, Pakistan Başbakanı Şerif ile de bir telefon görüşmesi yaparak bölgesel konuları değerlendirdi.
+
+Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları ve olası bir anlaşma çerçevesinde Türkiye'nin diplomatik temaslarını sürdürdüğünü göstermektedir. Trump'ın, İran ile anlaşma için Türkiye dahil bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koşması, bölgesel dengeler açısından yeni bir boyut katmaktadır.
