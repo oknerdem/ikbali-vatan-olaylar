@@ -38,3 +38,9 @@ ABD Başkanı Donald Trump, İran ile olası bir anlaşma için Türkiye dahil o
 ABD Başkanı Donald Trump, İran ile olası bir anlaşma için Türkiye dahil olmak üzere bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koştuğunu belirtti. Bu gelişme, mevcut diplomatik temasların seyrini değiştirebilecek önemli bir gelişme olarak öne çıkıyor. Trump'ın bu şartı, İran ile varılacak bir mutabakatın bölgesel dengeler üzerindeki etkilerini daha da karmaşık hale getiriyor.
 
 Öte yandan, ABD ve İsrail'in İran'a yönelik saldırılar düzenlediği bildirildi. Bu saldırılar, bölgedeki gerilimi artırırken, Trump'ın İran'a yönelik politikaları ve olası bir anlaşma üzerindeki etkileri daha da belirsiz hale geldi.
+
+## Güncelleme - 2026-05-26 (3)
+
+Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 26 Mayıs 2026 tarihinde İran Cumhurbaşkanı İbrahim Pezeşkiyan ile bir telefon görüşmesi gerçekleştirdi. Görüşmede, ikili ilişkiler ve bölgesel gelişmeler ele alındı. Aynı gün Erdoğan, Pakistan Başbakanı Şerif ile de bir telefon görüşmesi yaparak bölgesel konuları değerlendirdi.
+
+Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları ve olası bir anlaşma çerçevesinde Türkiye'nin diplomatik temaslarını sürdürdüğünü göstermektedir. Trump'ın, İran ile anlaşma için Türkiye dahil bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koşması, bölgesel dengeler açısından yeni bir boyut katmaktadır.

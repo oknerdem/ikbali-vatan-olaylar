@@ -24,3 +24,9 @@ Bu gelişmeler, İran'ın nükleer programı ve ABD'nin uyguladığı baskılarl
 ABD ve İran arasında nükleer anlaşmaya yönelik gizli görüşmelerin yapıldığına dair iddialar ortaya atıldı. Al Arabiya'nın haberine göre, iki ülke bazı maddelerde anlaşmaya vardı. Bu gelişmeler, İran'ın nükleer programı ve ABD ile olan ilişkilerindeki diplomatik hareketliliği gözler önüne seriyor.
 
 Diğer yandan, Trump yönetiminin İran ile anlaşma zemini oluşturmak için Türkiye'nin de dahil olduğu bölge ülkelerine 'Abraham Anlaşması' şartı koştuğu belirtildi. Bu durum, bölgedeki diplomatik dengeleri ve olası yeni ittifakları gündeme getiriyor.
+
+## Güncelleme - 2026-05-26 (2)
+
+İran, ABD'nin Hürmüz Boğazı'ndaki saldırılarını "meşru müdafaa" gerekçesiyle gerçekleştirdiği iddialarını reddederek, bu eylemlerin cevapsız kalmayacağını belirtti. Tahran yönetimi ayrıca ABD'nin ateşkesi ihlal ettiğini öne sürdü. Bu gelişmeler, iki ülke arasındaki gerilimin tırmandığına işaret ediyor.
+
+Diğer yandan, ABD'nin İran ile nükleer anlaşma zemini oluşturmak amacıyla Türkiye'nin de dahil olduğu bölge ülkelerine 'Abraham Anlaşması' şartı koştuğu iddiaları ortaya atıldı. Bu durum, bölgedeki diplomatik dengeleri ve olası yeni ittifakları gündeme getiriyor.
