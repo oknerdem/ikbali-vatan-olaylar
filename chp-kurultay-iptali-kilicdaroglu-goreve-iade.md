@@ -176,3 +176,9 @@ Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararı
 Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
 
 Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
+
+## Güncelleme - 2026-05-26 (4)
+
+Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
+
+Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.

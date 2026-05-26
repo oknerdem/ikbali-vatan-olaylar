@@ -34,3 +34,9 @@ Söz konusu tahliye kararının, Türkiye'nin ulusal güvenliğine ve terörle m
 Yunanistan'ın, Türkiye'de görev yaparken şehit edilen diplomatların katili olarak bilinen bir terör örgütü mensubunu serbest bırakması, Türkiye'de büyük tepkilere yol açtı. Dışişleri Bakanlığı, bu kararı "kabul edilemez" olarak nitelendirerek Yunanistan'ı sert bir dille kınadı. Bu gelişme, iki ülke arasındaki diplomatik ilişkilerde ciddi bir gerginliğe neden olurken, terörle mücadelede uluslararası iş birliğinin önemini ve bu tür kararların sonuçlarını bir kez daha gündeme getirdi.
 
 Söz konusu tahliye kararının, Türkiye'nin ulusal güvenliğine ve terörle mücadelesine yönelik uluslararası yaklaşımlar konusunda soru işaretleri yarattığı belirtiliyor. Ankara, bu tür adımların terör örgütlerini cesaretlendireceği endişesini dile getirerek, Yunanistan'dan bu kararı gözden geçirmesini talep etti.
+
+## Güncelleme - 2026-05-26
+
+İçişleri Bakanı Ali Yerlikaya, Yunanistan'ın Türkiye'de iki polis memurunun şehit edilmesiyle ilgili aranan bir terör örgütü mensubunu serbest bırakmasıyla ilgili açıklamalarda bulundu. Bakan Yerlikaya, bu kararın kabul edilemez olduğunu belirterek, Yunanistan'ı sert bir dille kınadı. Bu gelişme, iki ülke arasındaki diplomatik ilişkilerde gerginliğe yol açarken, terörle mücadele konusunda uluslararası iş birliğinin önemini ve bu tür kararların sonuçlarını bir kez daha gündeme getirdi.
+
+Söz konusu tahliye kararının, Türkiye'nin ulusal güvenliğine ve terörle mücadelesine yönelik uluslararası yaklaşımlar konusunda soru işaretleri yarattığı belirtiliyor. Ankara, bu tür adımların terör örgütlerini cesaretlendireceği endişesini dile getirerek, Yunanistan'dan bu kararı gözden geçirmesini talep etti.
