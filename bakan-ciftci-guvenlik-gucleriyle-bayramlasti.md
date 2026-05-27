@@ -16,5 +16,3 @@ Bayram dolayısıyla Milli Savunma Bakanı Yaşar Güler de Mehmetçikle bir ara
 ## Güncelleme - 2026-05-27 (2)
 
 İçişleri Bakanı Mustafa Çiftçi, 27 Mayıs darbesine ilişkin bir mesaj yayımlayarak, "Milli iradenin üzerinde hiçbir güç yoktur" ifadelerini kullandı. Bakan Çiftçi, mesajında darbe girişimlerinin değişen yöntemlerle devam ettiğini belirterek, milli iradeye sahip çıkmanın önemini vurguladı.
-
-Bayram dolayısıyla Milli Savunma Bakanı Yaşar Güler de Mehmetçikle bir araya gelerek bayramlaştı. Şırnak Valisi Birol Ekici ise bölgedeki güvenlik güçleriyle bayram ziyaretinde bulundu. Bu tür ziyaretler, bayram günlerinde dahi görev başında olan güvenlik personelinin moral ve motivasyonunu yükseltmeyi amaçlamaktadır.

@@ -19,33 +19,11 @@ Mahkemenin verdiği "mutlak butlan" kararı sonrasında CHP'de siyasi tansiyon y
 
 Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
 
-## Güncelleme - 2026-05-22
-
-Mahkemenin verdiği "mutlak butlan" kararının ardından CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
-
-Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi.
-
-## Güncelleme - 2026-05-22 (2)
-
-Mahkemenin verdiği "mutlak butlan" kararının ardından CHP'de siyasi tansiyon yükseldi. Kararın ardından parti içinde ve dışından çeşitli açıklamalar ve tepkiler gelmeye devam etti. Ankara Emniyeti'nin aldığı güvenlik tedbirleri kapsamında tüm personelin izinlerinin iptal edilmesi dikkat çekti. Bu durum, gelişmelere dair endişeleri ve olası provokasyonlara karşı alınan önlemleri gösteriyor.
-
-Uluslararası kamuoyunda da yankı bulan karar, Türkiye'deki demokrasi ve yargı bağımsızlığına ilişkin tartışmaları yeniden alevlendirdi. Avrupa Parlamentosu ve bazı AB yetkililerinden gelen ilk tepkiler, kararın Türkiye'nin demokratik süreci üzerindeki etkilerine dair endişeleri dile getirdi. Bu arada, Yüksek Seçim Kurulu (YSK), CHP'nin "mutlak butlan" kararına ilişkin yaptığı başvuruyu reddetti. Kemal Kılıçdaroğlu ise sosyal medya profiline "CHP Genel Başkanı" ibaresini ekleyerek dikkat çekti.
-
 ## Güncelleme - 2026-05-22 (3)
 
 Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor.
 
 Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-## Güncelleme - 2026-05-23
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor.
-
-Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-## Güncelleme - 2026-05-23 (2)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
 
 ## Güncelleme - 2026-05-23 (3)
 
@@ -53,145 +31,15 @@ CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenle
 
 Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi.
 
-## Güncelleme - 2026-05-23 (4)
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi.
-
-## Güncelleme - 2026-05-23 (5)
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi.
-
-## Güncelleme - 2026-05-23 (6)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-23 (7)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-23 (8)
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-24
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-24 (2)
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-24 (3)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
 ## Güncelleme - 2026-05-24 (4)
 
 Ankara Valiliği, CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-## Güncelleme - 2026-05-24 (5)
-
-Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-24 (6)
-
-Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
 
 ## Güncelleme - 2026-05-24 (7)
 
 Ankara Cumhuriyet Başsavcılığı, CHP Genel Merkezi'ndeki olaylarla ilgili bir soruşturma başlattı. Bu kapsamda, 7 ilde eş zamanlı operasyon düzenlenerek 13 kişi gözaltına alındı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor.
 
-Öte yandan, Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-## Güncelleme - 2026-05-25
-
-Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-25 (2)
-
-Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-25 (3)
-
-Ankara Valiliği, mahkeme kararının uygulanması amacıyla CHP Genel Merkezi'nin tahliyesi için emniyete talimat verdi. Bu gelişme üzerine parti genel merkezi önünde gerginlik yaşanırken, polis ekipleri de bölgede güvenlik önlemleri aldı. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla mahkeme kararının uygulanması yönünde emniyete başvurduğu öğrenildi. Bu durum, mahkemenin verdiği "mutlak butlan" kararının ardından parti içindeki belirsizliği ve hukuki süreci daha da karmaşık hale getirdi.
-
-Öte yandan, Yüksek Seçim Kurulu (YSK), CHP'nin mahkeme kararının ardından yaptığı başvuruyu reddetti. Bu karar, Kemal Kılıçdaroğlu'nun genel başkanlığa iadesi yönündeki mahkeme kararının hukuki zemini hakkında belirsizlik yaratırken, parti içindeki güç mücadelesinin devam edeceğine işaret ediyor. Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi de bu belirsizliği pekiştiren bir gelişme olarak değerlendirildi. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-25 (4)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
 ## Güncelleme - 2026-05-25 (5)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-25 (6)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-CHP Kurultayı soruşturması kapsamında 7 ilde eş zamanlı operasyon düzenlendi ve 13 kişi gözaltına alındı. Bu operasyonlar, mahkemenin verdiği "mutlak butlan" kararının ardından gelişen hukuki süreçte yeni bir boyut kazandırdı. Gözaltıların gerekçesi ve soruşturmanın detayları hakkında henüz resmi bir açıklama yapılmazken, gelişmenin parti içindeki gerilimi daha da artırması bekleniyor. Özgür Özel ise yeniden CHP TBMM Grup Başkanı seçildi.
-
-## Güncelleme - 2026-05-26
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-26 (2)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-26 (3)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-26 (4)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-26 (5)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
-
-Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
-
-## Güncelleme - 2026-05-26 (6)
-
-Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararına yaptığı itirazı reddetti. Bu karar, Kemal Kılıçdaroğlu'nun parti genel başkanlığına iadesi yönündeki mahkeme kararının hukuki sürecini etkileyecek önemli bir gelişme olarak değerlendiriliyor. Kararın ardından Kemal Kılıçdaroğlu'nun sosyal medya profiline "CHP Genel Başkanı" ibaresini eklemesi dikkat çekti. Bu durum, siyasi belirsizliğin devam ettiğini ve partideki dengelerin henüz netleşmediğini gösteriyor.
 
 Öte yandan, DEM Parti heyeti CHP'yi ziyaret ederek siyasi partilerin kaderinin mahkemelerce belirlenemeyeceği yönündeki görüşlerini dile getirdi. Abdullah Öcalan'ın da sürece ilişkin "demokratikleşme" vurgusu yapan bir mesaj yayımladığı belirtildi. Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi tartışmaları daha da alevlendirdi.
 
@@ -204,29 +52,3 @@ MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlı
 ## Güncelleme - 2026-05-27 (2)
 
 MHP Genel Başkanı Devlet Bahçeli, CHP'deki genel başkanlık tartışmalarına dair açıklamalarda bulundu. Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
-
-Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
-
-## Güncelleme - 2026-05-27 (3)
-
-MHP Genel Başkanı Devlet Bahçeli, CHP'deki genel başkanlık tartışmalarına dair açıklamalarda bulundu. Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
-
-Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
-
-## Güncelleme - 2026-05-27 (4)
-
-MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
-
-Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
-
-## Güncelleme - 2026-05-27 (5)
-
-MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
-
-Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
-
-## Güncelleme - 2026-05-27 (6)
-
-MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
-
-Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
