@@ -200,3 +200,9 @@ Yüksek Seçim Kurulu (YSK), CHP'nin mahkemenin verdiği "mutlak butlan" kararı
 MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi gerektiğini ifade etti. Bahçeli, Kılıçdaroğlu'nun genel başkanlığının devam ettiğini vurgulayarak, parti içi sorunların çözümü için bir kongre tarihi önerdi. Bu açıklama, CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, dışarıdan gelen önemli bir siyasi yorum olarak kayıtlara geçti.
 
 Öte yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını gösteriyor.
+
+## Güncelleme - 2026-05-27 (2)
+
+MHP Genel Başkanı Devlet Bahçeli, CHP'deki genel başkanlık tartışmalarına dair açıklamalarda bulundu. Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
+
+Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
