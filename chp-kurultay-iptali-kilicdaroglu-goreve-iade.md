@@ -224,3 +224,9 @@ Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye baş
 MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
 
 Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.
+
+## Güncelleme - 2026-05-27 (6)
+
+MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
+
+Diğer yandan, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak, Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu gelişme, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin devam ettiğini gösteriyor.

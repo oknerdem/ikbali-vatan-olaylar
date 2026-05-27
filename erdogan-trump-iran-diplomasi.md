@@ -62,3 +62,9 @@ Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları 
 ABD Başkanı Donald Trump, İran ile olası bir anlaşma için Türkiye dahil olmak üzere bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koştuğunu belirtti. Bu gelişme, mevcut diplomatik temasların seyrini değiştirebilecek önemli bir gelişme olarak öne çıkıyor. Trump'ın bu şartı, İran ile varılacak bir mutabakatın bölgesel dengeler üzerindeki etkilerini daha da karmaşık hale getiriyor.
 
 Öte yandan, Beyaz Saray, İran basının ABD-İsrail savaşını sona erdirecek mutabakat zaptıyla ilgili yayınladığı haberlerin "doğru olmadığını ve tamamen uydurma olduğunu" belirtti. Bu açıklama, bölgedeki diplomatik gelişmelerin karmaşıklığını ve bilgi akışındaki belirsizlikleri gözler önüne seriyor.
+
+## Güncelleme - 2026-05-27 (3)
+
+ABD Başkanı Donald Trump, İran ile olası bir anlaşma için Türkiye dahil olmak üzere bölge ülkelerine 'Abraham Anlaşmaları'nı imzalama şartı koştuğunu belirtti. Bu gelişme, mevcut diplomatik temasların seyrini değiştirebilecek önemli bir gelişme olarak öne çıkıyor. Trump'ın bu şartı, İran ile varılacak bir mutabakatın bölgesel dengeler üzerindeki etkilerini daha da karmaşık hale getiriyor.
+
+Öte yandan, Beyaz Saray, İran basının ABD-İsrail savaşını sona erdirecek mutabakat zaptıyla ilgili yayınladığı haberlerin "doğru olmadığını ve tamamen uydurma olduğunu" belirtti. Bu açıklama, bölgedeki diplomatik gelişmelerin karmaşıklığını ve bilgi akışındaki belirsizlikleri gözler önüne seriyor.

@@ -22,3 +22,9 @@ Umut Altaş'ın elinde deliller olduğunu ve katili adalete teslim edeceğini be
 Gülistan Doku'nun kaybolmasına ilişkin soruşturmada adı geçen Umut Altaş'ın iade süreci başlatıldı. Bu gelişme, davanın ABD yargısında görülmesi ve Altaş'ın mahkemeye çıkacak olmasıyla ilgili hukuki süreçlerde yeni bir aşamaya işaret ediyor.
 
 Umut Altaş'ın elinde deliller olduğunu ve katili adalete teslim edeceğini belirttiği ses kayıtlarının da bu süreçte etkili olabileceği değerlendiriliyor. Kamuoyu, davanın sonuçlanması ve Gülistan Doku'nun akıbetiyle ilgili gelişmeleri yakından takip etmeye devam ediyor.
+
+## Güncelleme - 2026-05-27
+
+Gülistan Doku'nun kaybolmasına ilişkin soruşturmada, olayın aydınlatılmasına yardımcı olabileceği düşünülen şüpheli cipin belediyeye bağışlandığı ortaya çıktı. Bu gelişme, davanın seyrini değiştirebilecek nitelikte olup, soruşturmanın bu araç üzerinden ilerlemesi bekleniyor.
+
+Umut Altaş'ın mahkemeye çıkacak olması ve elinde deliller olduğunu belirttiği ses kayıtlarının varlığı, bu yeni gelişmeyle birlikte davanın daha da karmaşık bir hal alabileceğini gösteriyor. Kamuoyu, Gülistan Doku'nun akıbetini ve bu yeni delilin yargı sürecine etkisini yakından takip ediyor.
