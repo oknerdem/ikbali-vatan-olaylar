@@ -52,3 +52,9 @@ MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlı
 ## Güncelleme - 2026-05-27 (2)
 
 MHP Genel Başkanı Devlet Bahçeli, CHP'deki genel başkanlık tartışmalarına dair açıklamalarda bulundu. Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini belirterek, CHP'nin birleşip kenetlenmesi ve parti içi sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, mahkeme kararı sonrası yaşanan belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak öne çıktı.
+
+## Güncelleme - 2026-05-28
+
+DEM Parti Milletvekili Ömer Faruk Gergerlioğlu, CHP'deki gelişmelerin çözüm sürecini tehdit edebileceği uyarısında bulundu. Gergerlioğlu, siyasi partilerin kaderlerinin mahkemelerce belirlenmemesi gerektiğini vurgulayarak, bu tür durumların Türkiye'deki siyasi istikrarı olumsuz etkileyebileceğini belirtti. Bu açıklama, CHP'deki kurultay iptali ve genel başkanlık krizinin sadece parti içi bir mesele olmadığını, daha geniş siyasi ve toplumsal süreçler üzerinde de etkileri olabileceğini ortaya koydu.
+
+Bu arada, CHP'de Parti Meclisi'nin toplanacağı tarihle ilgili belirsizlik devam ederken, 1 Haziran'daki olası bir toplantının iptal edildiği öğrenildi. Bu durum, parti içindeki mevcut krizin çözümüne yönelik adımların ertelendiği şeklinde yorumlandı.

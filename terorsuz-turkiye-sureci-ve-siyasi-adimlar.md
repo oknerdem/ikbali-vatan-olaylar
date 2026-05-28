@@ -12,3 +12,9 @@ Hareket Yönetimi tarafından yapılan açıklamalarda, AKP-MHP iktidarının ç
 ## Güncelleme - 2026-05-26
 
 PKK'nın üst düzey yöneticilerinden Duran Kalkan'ın CHP'ye yönelik eleştirileri, siyasi süreçteki gerilimi artırdı. Kalkan'ın açıklamaları, 'terörsüz Türkiye' söyleminin siyasi tartışmalardaki yerini daha da belirgin hale getirdi. Bu durum, çözüm süreciyle ilgili atılacak adımların siyasi kutuplaşmadan etkilenebileceği endişelerini de beraberinde getiriyor.
+
+## Güncelleme - 2026-05-28
+
+MHP'den yapılan açıklamalarda, bayram sonrası 'terörsüz Türkiye' hedefi doğrultusunda önemli adımlar atılacağı belirtildi. Bu kapsamda, DEM Parti heyetinin MHP'ye yaptığı bayram ziyaretinde de benzer hedeflerin gündeme geldiği ve Cumhur İttifakı'ndaki bayramlaşmada da 'terörsüz Türkiye' vurgusu yapıldığı haberlere yansıdı.
+
+Öte yandan, PKK yöneticilerinden Duran Kalkan'ın CHP'ye yönelik eleştirileri, siyasi süreçteki gerilimi artırırken, DEM Parti Milletvekili Gergerlioğlu'nun CHP'deki sarsıntının çözüm sürecini tehdit edebileceği yönündeki açıklamaları, siyasi gelişmelerin çözüm sürecine etkilerine dair endişeleri güçlendirdi.
