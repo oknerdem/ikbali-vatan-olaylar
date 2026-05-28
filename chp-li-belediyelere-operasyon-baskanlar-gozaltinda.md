@@ -22,3 +22,7 @@ Bu gelişmeler, yerel yönetimlerdeki hukuki süreçler ve siyasi yansımaları 
 ## Güncelleme - 2026-05-28
 
 İzmir Güzelbahçe Belediye Başkanı Mustafa Günay, hakkında yürütülen rüşvet ve yolsuzluk soruşturması kapsamında tutuklanmasının ardından görevden uzaklaştırıldı. Günay'ın eşi de operasyon kapsamında gözaltına alınmıştı. Soruşturma, belediyenin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere odaklanıyor. Mahkeme, Günay ve imar müdürü hakkında 'rüşvet', 'irtikap', 'zimmet' ve 'ihaleye fesat karıştırma' suçlamalarıyla tutuklama kararı verirken, diğer şüpheliler adli kontrol şartıyla serbest bırakıldı.
+
+## Güncelleme - 2026-05-28 (2)
+
+İzmir Güzelbahçe Belediye Başkanı Mustafa Günay ve belediyenin imar müdürü, rüşvet, irtikap, zimmet ve ihaleye fesat karıştırma suçlamalarıyla tutuklandı. Bu tutuklamaların ardından Günay görevden uzaklaştırıldı. Operasyonun, belediyenin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere yönelik soruşturma kapsamında başlatıldığı belirtildi. Diğer şüpheliler ise adli kontrol şartıyla serbest bırakıldı.
