@@ -36,3 +36,7 @@ Diğer yandan, ABD'nin İran ile nükleer anlaşma zemini oluşturmak amacıyla 
 ABD, İran'ın nükleer anlaşmaya yönelik bir mutabakat taslağına ilişkin iddialarını yalanlayarak, bu haberlerin tamamen uydurma olduğunu belirtti. Beyaz Saray'dan yapılan açıklamada, İran basınının ortaya attığı iddiaların gerçeği yansıtmadığı vurgulandı.
 
 Bu gelişmeler yaşanırken, İran devlet televizyonu ABD ordusunun Hürmüz Boğazı'ndan çekildiği yönünde bir haber yayınladı. Ancak bu iddia, ABD tarafından henüz doğrulanmadı ve iki ülke arasındaki gerilim devam ediyor.
+
+## Güncelleme - 2026-05-28
+
+ABD ve İran arasındaki gerilim, karşılıklı saldırı iddialarıyla tırmanırken, Birleşmiş Milletler'den Kiev'e yönelik kitlesel saldırılar sonrası bir açıklama geldi. ABD'nin bu konudaki tavrı ise dikkat çekti. Bu gelişmeler, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor.
