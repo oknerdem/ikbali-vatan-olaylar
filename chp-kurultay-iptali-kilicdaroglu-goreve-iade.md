@@ -58,3 +58,9 @@ MHP Genel Başkanı Devlet Bahçeli, CHP'deki genel başkanlık tartışmaların
 DEM Parti Milletvekili Ömer Faruk Gergerlioğlu, CHP'deki gelişmelerin çözüm sürecini tehdit edebileceği uyarısında bulundu. Gergerlioğlu, siyasi partilerin kaderlerinin mahkemelerce belirlenmemesi gerektiğini vurgulayarak, bu tür durumların Türkiye'deki siyasi istikrarı olumsuz etkileyebileceğini belirtti. Bu açıklama, CHP'deki kurultay iptali ve genel başkanlık krizinin sadece parti içi bir mesele olmadığını, daha geniş siyasi ve toplumsal süreçler üzerinde de etkileri olabileceğini ortaya koydu.
 
 Bu arada, CHP'de Parti Meclisi'nin toplanacağı tarihle ilgili belirsizlik devam ederken, 1 Haziran'daki olası bir toplantının iptal edildiği öğrenildi. Bu durum, parti içindeki mevcut krizin çözümüne yönelik adımların ertelendiği şeklinde yorumlandı.
+
+## Güncelleme - 2026-05-29
+
+Sosyalist Enternasyonel, CHP'deki kurultay iptali kararına ilişkin olarak mevcut genel başkan Özgür Özel'e destek verirken, Kemal Kılıçdaroğlu'nu olağanüstü kurultaya çağırdı. Bu durum, parti içindeki ayrışmaların uluslararası alanda da yankı bulduğunu ve farklı siyasi grupların sürece müdahil olmaya başladığını göstermektedir.
+
+Öte yandan, Edirne'den gelen tepkilerde ise mevcut yönetimin kararlılığının sürdüğü ve geri adım atmayacağı yönündeki mesajlar dikkat çekmektedir. Bu gelişmeler, CHP'deki belirsizliğin ve iç çekişmelerin devam ettiğini ortaya koymaktadır.
