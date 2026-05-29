@@ -64,3 +64,7 @@ Bu arada, CHP'de Parti Meclisi'nin toplanacağı tarihle ilgili belirsizlik deva
 Sosyalist Enternasyonel, CHP'deki kurultay iptali kararına ilişkin olarak mevcut genel başkan Özgür Özel'e destek verirken, Kemal Kılıçdaroğlu'nu olağanüstü kurultaya çağırdı. Bu durum, parti içindeki ayrışmaların uluslararası alanda da yankı bulduğunu ve farklı siyasi grupların sürece müdahil olmaya başladığını göstermektedir.
 
 Öte yandan, Edirne'den gelen tepkilerde ise mevcut yönetimin kararlılığının sürdüğü ve geri adım atmayacağı yönündeki mesajlar dikkat çekmektedir. Bu gelişmeler, CHP'deki belirsizliğin ve iç çekişmelerin devam ettiğini ortaya koymaktadır.
+
+## Güncelleme - 2026-05-30
+
+CHP Genel Merkezi'ne Kemal Kılıçdaroğlu'nun "Şimdi arınma zamanı" yazılı bir poster asıldı. Bu gelişme, parti içindeki genel başkanlık krizinin ve Kılıçdaroğlu ile mevcut genel başkan Özgür Özel arasındaki gerilimin somut bir göstergesi olarak yorumlandı. Sosyalist Enternasyonel'in Özgür Özel'e destek verip Kılıçdaroğlu'nu olağanüstü kurultaya çağırması ve Edirne'den gelen mevcut yönetimin kararlılığını sürdüreceği yönündeki tepkiler, parti içindeki ayrışmaların uluslararası alanda da yankı bulduğunu ve farklı siyasi grupların sürece müdahil olmaya başladığını göstermektedir.
