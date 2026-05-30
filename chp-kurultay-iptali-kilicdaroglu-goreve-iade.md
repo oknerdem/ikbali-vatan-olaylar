@@ -68,3 +68,7 @@ Sosyalist Enternasyonel, CHP'deki kurultay iptali kararına ilişkin olarak mevc
 ## Güncelleme - 2026-05-30
 
 CHP Genel Merkezi'ne Kemal Kılıçdaroğlu'nun "Şimdi arınma zamanı" yazılı bir poster asıldı. Bu gelişme, parti içindeki genel başkanlık krizinin ve Kılıçdaroğlu ile mevcut genel başkan Özgür Özel arasındaki gerilimin somut bir göstergesi olarak yorumlandı. Sosyalist Enternasyonel'in Özgür Özel'e destek verip Kılıçdaroğlu'nu olağanüstü kurultaya çağırması ve Edirne'den gelen mevcut yönetimin kararlılığını sürdüreceği yönündeki tepkiler, parti içindeki ayrışmaların uluslararası alanda da yankı bulduğunu ve farklı siyasi grupların sürece müdahil olmaya başladığını göstermektedir.
+
+## Güncelleme - 2026-05-30 (2)
+
+CHP'de kurultay iptali ve genel başkanlık krizi sürerken, MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini açıkladı. Bahçeli, CHP'nin birleşip kenetlenmesi ve sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini belirtti. Bu açıklama, parti içi belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak kayıtlara geçti.
