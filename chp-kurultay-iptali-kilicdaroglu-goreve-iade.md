@@ -78,3 +78,9 @@ CHP'de kurultay iptali ve genel başkanlık krizi sürerken, MHP Genel Başkanı
 Mahkeme kararıyla CHP liderliğine getirilen Kemal Kılıçdaroğlu, parti içindeki bazı grupların kendisine yönelik "hain" sloganlarına yanıt vererek, bu tür söylemlerin partiye zarar verdiğini belirtti. Kılıçdaroğlu, "Şimdi arınma zamanı" diyerek parti içinde bir değişim ve yenilenme sürecine işaret etti. Bu gelişmeler, parti içindeki genel başkanlık krizi ve Kılıçdaroğlu ile mevcut genel başkan Özgür Özel arasındaki rekabetin sürdüğünü göstermektedir.
 
 Öte yandan, MHP Genel Başkanı Devlet Bahçeli, Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini açıklayarak, CHP'nin birleşip kenetlenmesi ve sorunlarını çözerek 9 Eylül'de kongreye gitmesi gerektiğini ifade etti. Bu açıklama, parti içi belirsizlik ortamında dışarıdan gelen önemli bir siyasi yorum olarak kayıtlara geçti.
+
+## Güncelleme - 2026-05-31 (2)
+
+CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, Kemal Kılıçdaroğlu'nun "FETÖ artıkları" sözleri üzerinden, mevcut genel başkan Özgür Özel ve kurmaylarına yönelik olası bir operasyonun rızasını genel başkan kimliğiyle oluşturmaya çalıştığına dair bir iddia ortaya atıldı. Bu iddia, parti içindeki gerilimin ve çekişmelerin farklı bir boyuta ulaştığını göstermektedir.
+
+Bu iddialar, parti içindeki mevcut belirsizlik ve güç mücadelesinin daha da derinleştiği bir döneme denk gelmektedir. Kemal Kılıçdaroğlu'nun bu tür söylemlerle parti içindeki muhaliflerini hedef aldığı ve kendi pozisyonunu güçlendirmeye çalıştığı yorumları yapılmaktadır.
