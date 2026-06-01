@@ -18,3 +18,7 @@ Parti kulislerinde, bu imza sürecinin kurultay taleplerinin ne kadar güçlü b
 ## Güncelleme - 2026-06-01
 
 CHP'de olağanüstü kurultay için imza toplama sürecinin başladığına dair haberler gelmeye devam ediyor. 1 Haziran itibarıyla delegelerden imza toplanacağı belirtilirken, bu adımın parti içindeki kurultay taleplerini somutlaştırdığı ifade ediliyor. Parti kulislerinde, bu sürecin genel merkeze yönelik baskıyı artırabileceği ve kurultay taleplerinin tabandaki karşılığını göstereceği yorumları yapılıyor. Sürecin ilerleyişi ve sonuçları merakla bekleniyor.
+
+## Güncelleme - 2026-06-01 (2)
+
+CHP'de olağanüstü kurultay talebiyle ilgili olarak 111 milletvekilinin imza verdiği ve 12 Temmuz'da kurultay çağrısı yaptığı belirtiliyor. Bu gelişme, parti içindeki muhalif kanadın kurultay talebini somutlaştıran önemli bir adım olarak değerlendiriliyor. İmza sayısının artmasıyla birlikte parti yönetiminin nasıl bir tavır alacağı merak konusu.
