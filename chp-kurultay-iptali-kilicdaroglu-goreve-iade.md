@@ -84,3 +84,9 @@ Mahkeme kararıyla CHP liderliğine getirilen Kemal Kılıçdaroğlu, parti içi
 CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, Kemal Kılıçdaroğlu'nun "FETÖ artıkları" sözleri üzerinden, mevcut genel başkan Özgür Özel ve kurmaylarına yönelik olası bir operasyonun rızasını genel başkan kimliğiyle oluşturmaya çalıştığına dair bir iddia ortaya atıldı. Bu iddia, parti içindeki gerilimin ve çekişmelerin farklı bir boyuta ulaştığını göstermektedir.
 
 Bu iddialar, parti içindeki mevcut belirsizlik ve güç mücadelesinin daha da derinleştiği bir döneme denk gelmektedir. Kemal Kılıçdaroğlu'nun bu tür söylemlerle parti içindeki muhaliflerini hedef aldığı ve kendi pozisyonunu güçlendirmeye çalıştığı yorumları yapılmaktadır.
+
+## Güncelleme - 2026-06-01
+
+CHP'de kurultay iptali ve genel başkanlık krizi sürerken, eski 221 CHP'li milletvekili olağanüstü kurultay çağrısı yaptı. Bu çağrı, parti içindeki mevcut genel başkan Özgür Özel ve Kemal Kılıçdaroğlu arasındaki ayrışmayı daha da derinleştirdi. Milletvekilleri, mevcut yönetimin hukuki süreçleri manipüle etmeye çalıştığını iddia ederek, acil bir kurultay ile parti iradesinin tecelli etmesi gerektiğini savundu.
+
+Bu gelişmeler yaşanırken, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu adım, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını gösteriyor.
