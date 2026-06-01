@@ -30,3 +30,7 @@ Bu gelişmeler, yerel yönetimlerdeki hukuki süreçler ve siyasi yansımaları 
 ## Güncelleme - 2026-06-01
 
 İzmir'in Buca ilçesinde, Buca Belediye Başkanı Görkem Duman'ın da aralarında bulunduğu çok sayıda kişi hakkında gözaltı kararı verildi. Operasyonun gerekçesi olarak rüşvet, zimmet, irtikap ve ihaleye fesat karıştırma gibi iddialar öne sürüldü. CHP'li yetkililer, operasyonun siyasi olduğunu savunarak tepki gösterdi. Gözaltı kararlarının ardından belediye binasında ve ilgili adreslerde arama çalışmaları başlatıldı.
+
+## Güncelleme - 2026-06-01 (2)
+
+Bu gelişme, daha önce İzmir Güzelbahçe Belediyesi'ne yönelik yapılan operasyonun ardından CHP'li belediyelere yönelik devam eden soruşturmalar kapsamında değerlendiriliyor. Buca Belediyesi'ne yapılan operasyonun detayları ve sonuçları kamuoyu tarafından yakından takip ediliyor.

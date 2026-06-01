@@ -90,3 +90,7 @@ Bu iddialar, parti içindeki mevcut belirsizlik ve güç mücadelesinin daha da 
 CHP'de kurultay iptali ve genel başkanlık krizi sürerken, eski 221 CHP'li milletvekili olağanüstü kurultay çağrısı yaptı. Bu çağrı, parti içindeki mevcut genel başkan Özgür Özel ve Kemal Kılıçdaroğlu arasındaki ayrışmayı daha da derinleştirdi. Milletvekilleri, mevcut yönetimin hukuki süreçleri manipüle etmeye çalıştığını iddia ederek, acil bir kurultay ile parti iradesinin tecelli etmesi gerektiğini savundu.
 
 Bu gelişmeler yaşanırken, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu adım, parti içindeki yetki mücadelesinin farklı bir boyuta taşındığını ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını gösteriyor.
+
+## Güncelleme - 2026-06-01 (2)
+
+CHP'de olağanüstü kurultay için yeterli imza toplandığına dair haberler gelmeye devam ediyor. Bazı kaynaklar, sadece sekiz saat içinde yeterli imzaya ulaşıldığını belirtiyor. Bu durum, parti içinde mevcut genel başkan Özgür Özel ve Kemal Kılıçdaroğlu arasındaki ayrışmanın derinleştiğini ve olağanüstü kurultay talebinin güçlendiğini gösteriyor. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep etmesi de parti içindeki yetki mücadelesinin hukuki boyut kazandığını ortaya koyuyor.
