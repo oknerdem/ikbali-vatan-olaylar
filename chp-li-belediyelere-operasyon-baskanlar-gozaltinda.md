@@ -34,3 +34,9 @@ Bu gelişmeler, yerel yönetimlerdeki hukuki süreçler ve siyasi yansımaları 
 ## Güncelleme - 2026-06-01 (2)
 
 Bu gelişme, daha önce İzmir Güzelbahçe Belediyesi'ne yönelik yapılan operasyonun ardından CHP'li belediyelere yönelik devam eden soruşturmalar kapsamında değerlendiriliyor. Buca Belediyesi'ne yapılan operasyonun detayları ve sonuçları kamuoyu tarafından yakından takip ediliyor.
+
+## Güncelleme - 2026-06-02
+
+Antalya Büyükşehir Belediyesi'ne yönelik bir operasyon düzenlendi. Operasyon kapsamında 3 kişi gözaltına alındı. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmadı ancak operasyonun belediyenin işleyişine yönelik olduğu belirtiliyor.
+
+Bu gelişme, daha önce İzmir'de CHP'li belediyelere yönelik yapılan operasyonların ardından dikkat çekiyor. Antalya'daki operasyonun kapsamı ve sonuçları hakkında bilgiler geldikçe güncellenecektir.
