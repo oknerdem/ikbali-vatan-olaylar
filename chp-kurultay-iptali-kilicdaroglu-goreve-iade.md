@@ -100,3 +100,9 @@ CHP'de olağanüstü kurultay için yeterli imza toplandığına dair haberler g
 CHP'de mahkeme kararı sonrası yaşanan belirsizlik ve parti içi çekişmeler devam ederken, TBMM'deki grup toplantısında Özgür Özel'i destekleyen bazı partililer tarafından Kemal Kılıçdaroğlu aleyhine "Hain Kemal" sloganları atıldı. Bu sloganlar, parti içindeki derin ayrışmayı ve gerilimi gözler önüne serdi. Öte yandan, olağanüstü kurultay için yeterli imzanın toplandığına dair haberler de gelmeye devam ediyor. Bu durum, parti içinde mevcut genel başkan Özgür Özel ve Kemal Kılıçdaroğlu arasındaki ayrışmanın daha da derinleştiğini ve olağanüstü kurultay talebinin güçlendiğini gösteriyor.
 
 Bu gelişmeler yaşanırken, Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep ettiği öğrenildi. Bu adım, parti içindeki yetki mücadelesinin hukuki boyut kazandığını ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını ortaya koyuyor.
+
+## Güncelleme - 2026-06-03
+
+TBMM Genel Kurulu'nda, CHP'nin mahkeme kararıyla ilgili olarak yaşanan 'mutlak butlan' krizi nedeniyle tansiyon yükseldi. CHP milletvekilleri, karara tepki göstererek AKP sıralarına yönelik protestoda bulundu ve bu durum üzerine Meclis oturumuna ara verildi. Bu gelişme, mahkeme kararının siyasi arenadaki yansımalarının ne denli sert olduğunu ve partiler arasındaki gerilimin Meclis'e taşındığını göstermektedir.
+
+Yaşanan olaylar, CHP'deki kurultay iptali ve genel başkanlık krizinin sadece parti içi bir mesele olmaktan çıkıp, Türkiye siyasetinin genel gündemini etkileyen bir boyut kazandığını ortaya koymaktadır. Meclis'teki bu protesto, kararın siyasi sonuçlarının ve partiler arası ilişkiler üzerindeki etkilerinin ne kadar derin olabileceğine işaret etmektedir.

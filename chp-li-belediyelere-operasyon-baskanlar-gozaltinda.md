@@ -40,3 +40,9 @@ Bu gelişme, daha önce İzmir Güzelbahçe Belediyesi'ne yönelik yapılan oper
 Antalya Büyükşehir Belediyesi'ne yönelik bir operasyon düzenlendi. Operasyon kapsamında 3 kişi gözaltına alındı. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmadı ancak operasyonun belediyenin işleyişine yönelik olduğu belirtiliyor.
 
 Bu gelişme, daha önce İzmir'de CHP'li belediyelere yönelik yapılan operasyonların ardından dikkat çekiyor. Antalya'daki operasyonun kapsamı ve sonuçları hakkında bilgiler geldikçe güncellenecektir.
+
+## Güncelleme - 2026-06-03
+
+İzmir'in Buca ilçesinde, Buca Belediye Başkanı Görkem Duman'ın da aralarında bulunduğu çok sayıda kişi hakkında rüşvet, zimmet, irtikap ve ihaleye fesat karıştırma iddialarıyla gözaltı kararı verildi. CHP'li yetkililer, operasyonun siyasi olduğunu savunarak tepki gösterdi. Bu gelişme, daha önce İzmir Güzelbahçe Belediyesi'ne yönelik yapılan operasyonun ardından CHP'li belediyelere yönelik devam eden soruşturmalar kapsamında değerlendiriliyor.
+
+Antalya Büyükşehir Belediyesi'ne yönelik de bir operasyon düzenlenerek 3 kişi gözaltına alındı. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmadı ancak operasyonun belediyenin işleyişine yönelik olduğu belirtildi. Bu durum, yerel yönetimlere yönelik operasyonların sürdüğünü gösteriyor.
