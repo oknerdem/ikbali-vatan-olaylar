@@ -18,3 +18,9 @@ PKK'nın üst düzey yöneticilerinden Duran Kalkan'ın CHP'ye yönelik eleştir
 MHP'den yapılan açıklamalarda, bayram sonrası 'terörsüz Türkiye' hedefi doğrultusunda önemli adımlar atılacağı belirtildi. Bu kapsamda, DEM Parti heyetinin MHP'ye yaptığı bayram ziyaretinde de benzer hedeflerin gündeme geldiği ve Cumhur İttifakı'ndaki bayramlaşmada da 'terörsüz Türkiye' vurgusu yapıldığı haberlere yansıdı.
 
 Öte yandan, PKK yöneticilerinden Duran Kalkan'ın CHP'ye yönelik eleştirileri, siyasi süreçteki gerilimi artırırken, DEM Parti Milletvekili Gergerlioğlu'nun CHP'deki sarsıntının çözüm sürecini tehdit edebileceği yönündeki açıklamaları, siyasi gelişmelerin çözüm sürecine etkilerine dair endişeleri güçlendirdi.
+
+## Güncelleme - 2026-06-03
+
+MHP Genel Başkanı Devlet Bahçeli'ye yapılan sürpriz bir ziyaretin, 'Terörsüz Türkiye' süreciyle ilgili olabileceği spekülasyonları gündeme geldi. Bu ziyaretin içeriği ve olası etkileri hakkında henüz net bir bilgi bulunmamakla birlikte, sürecin siyasi boyutuna dair yeni bir gelişme olarak kayıtlara geçti.
+
+Öte yandan, Hazine ve Maliye Bakanı Mehmet Şimşek, 'Terörsüz Türkiye' söyleminin ülkenin en zor meselesini çözmüş olacağını belirterek, bu hedefe yönelik kararlılıklarını vurguladı. Şimşek'in açıklamaları, hükümetin terörle mücadele ve toplumsal huzurun sağlanması konusundaki stratejik yaklaşımını yansıttı.
