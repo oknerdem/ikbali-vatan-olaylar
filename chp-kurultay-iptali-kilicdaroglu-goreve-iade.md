@@ -106,3 +106,9 @@ Bu gelişmeler yaşanırken, Kemal Kılıçdaroğlu'nun avukatı aracılığıyl
 TBMM Genel Kurulu'nda, CHP'nin mahkeme kararıyla ilgili olarak yaşanan 'mutlak butlan' krizi nedeniyle tansiyon yükseldi. CHP milletvekilleri, karara tepki göstererek AKP sıralarına yönelik protestoda bulundu ve bu durum üzerine Meclis oturumuna ara verildi. Bu gelişme, mahkeme kararının siyasi arenadaki yansımalarının ne denli sert olduğunu ve partiler arasındaki gerilimin Meclis'e taşındığını göstermektedir.
 
 Yaşanan olaylar, CHP'deki kurultay iptali ve genel başkanlık krizinin sadece parti içi bir mesele olmaktan çıkıp, Türkiye siyasetinin genel gündemini etkileyen bir boyut kazandığını ortaya koymaktadır. Meclis'teki bu protesto, kararın siyasi sonuçlarının ve partiler arası ilişkiler üzerindeki etkilerinin ne kadar derin olabileceğine işaret etmektedir.
+
+## Güncelleme - 2026-06-04
+
+Zafer Partisi Genel Başkanı Ümit Özdağ, MHP Genel Başkanı Devlet Bahçeli'yi Abdullah Öcalan ile ittifak kurmakla suçlayarak sert eleştirilerde bulundu. Özdağ, Bahçeli'nin Zafer Partisi'nin kiminle temas kuracağına karar veremeyeceğini belirtti. Bu açıklama, siyasi kutuplaşmanın arttığı bir dönemde, terörle mücadele söylemlerinin ve ittifak tartışmalarının siyasi gündemdeki yerini daha da belirginleştirdi.
+
+Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi gerilimin, farklı partiler arasında da karşılıklı suçlamalarla tırmandığını göstermektedir. Özdağ'ın bu sert çıkışı, siyasi aktörlerin birbirlerini terörle ilişkilendirme eğiliminin arttığına ve bu tür söylemlerin siyasi rekabette bir araç olarak kullanıldığına işaret etmektedir.
