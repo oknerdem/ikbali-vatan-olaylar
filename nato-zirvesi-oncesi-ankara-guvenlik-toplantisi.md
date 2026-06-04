@@ -20,3 +20,9 @@ Toplantıda, Türkiye'nin NATO içindeki stratejik konumunun ve uluslararası g�
 NATO Zirvesi öncesinde Ankara'da düzenlenen güvenlik toplantısının ardından, zirveye ev sahipliği yapacak şehirde ek güvenlik tedbirleri uygulamaya konuldu. Bu önlemler, özellikle kritik altyapıların korunması ve olası tehditlere karşı hazırlıklı olunması amacıyla hayata geçirildi. Toplantıda, Türkiye'nin NATO içindeki stratejik konumu ve uluslararası güvenlik işbirliğinin önemi bir kez daha vurgulandı. Zirve süresince yaşanabilecek olası provokasyonlara karşı da önlemlerin alındığı ve ilgili birimler arasında koordinasyonun sağlandığı belirtildi.
 
 Bu kapsamda, Danimarka'daki havaalanı güvenliğiyle ilgili gelişmelerin de yakından takip edildiği ve Türkiye'nin kendi güvenlik standartlarını gözden geçirdiği öğrenildi. Avrupa Komisyonu Başkanı Ursula von der Leyen'in İHA güvenliği konusundaki uyarısının da bu güvenlik gündemine dahil edildiği ve ilgili birimlerce değerlendirildiği bildirildi.
+
+## Güncelleme - 2026-06-04
+
+ABD Başkanı Trump'ın NATO Zirvesi kapsamında Ankara'ya yapacağı ziyaretin gündeminde İran, Gazze ve Suriye gibi konuların yer alacağı belirtildi. Bu ziyaret, zirve öncesi diplomatik temasların yoğunlaşacağına işaret ediyor.
+
+Cumhurbaşkanı Erdoğan'ın terör örgütleriyle mücadelede kardeş ülkelerin yanında olduklarını ifade etmesi, Türkiye'nin uluslararası güvenlik politikalarındaki kararlılığını bir kez daha ortaya koydu. Bu açıklama, NATO Zirvesi'nde terörle mücadele konusunun da önemli bir gündem maddesi olacağını gösteriyor.

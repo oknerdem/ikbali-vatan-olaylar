@@ -12,3 +12,7 @@ Ziyaretin gündeminde ikili ilişkiler ve iş birliği konularının yer aldığ
 ## Güncelleme - 2026-05-22
 
 Çalışma ve Sosyal Güvenlik Bakanı Vedat Işıkhan'ın Hollanda ziyaretinde, Türkiye ve Hollanda arasında sosyal güvenlik alanında güçlü bir iş birliği mesajı verildiği belirtildi. Bu temaslar, iki ülke arasındaki mevcut ilişkilerin pekiştirilmesi ve gelecekteki potansiyel iş birliklerinin değerlendirilmesi açısından önem taşıyor.
+
+## Güncelleme - 2026-06-04
+
+Çalışma ve Sosyal Güvenlik Bakanı Vedat Işıkhan'ın Hollanda temasları devam ederken, Türkiye'nin uluslararası alandaki diplomatik faaliyetleri kapsamında yeni gelişmeler yaşandı. Bu temasların, iki ülke arasındaki sosyal güvenlik alanındaki iş birliğinin güçlendirilmesi ve gelecekteki potansiyel iş birliklerinin değerlendirilmesi açısından önem taşıdığı belirtildi.
