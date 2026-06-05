@@ -14,3 +14,7 @@ Bu talimatın ardından Kandil yönetiminden gelen ilk tepkiler, örgüt içinde
 Abdullah Öcalan'ın PKK'ya silah bırakma çağrısının ardından, örgüt içindeki dönüşüm süreci ve olası yasal düzenlemelere dair gelişmeler yaşanmaktadır. Bazı kaynaklar, silah bırakan örgüt üyelerinin Türkiye'ye dönmeleri için 2 aylık bir süre tanınacağını ve bu kapsamda özel bir yasal düzenleme hazırlığı yapıldığını iddia etmektedir. Bu hazırlığın, örgütün kendisini feshetmesi ve sınır dışına çekilmesi sürecini kolaylaştırmayı amaçladığı belirtilmektedir.
 
 Öte yandan, bu süreçle ilgili olarak "kod kanun" veya "9 maddelik yasa" gibi ifadelerle anılan bir yol haritasının şekillendiği yönünde haberler bulunmaktadır. Bu yasal çerçevede, silah bırakan PKK üyelerine belirli bir süre tanınması ve siyaset yasağı gibi unsurların gündemde olduğu iddia edilmektedir. Ancak bu düzenlemelerin detayları ve kesinleşip kesinleşmediği konusunda henüz net bir bilgi bulunmamaktadır.
+
+## Güncelleme - 2026-06-05
+
+Abdullah Öcalan'ın PKK'ya yönelik silah bırakma çağrısının ardından, örgütün kendisini feshetme ve sınır dışına çekilme sürecine dair gelişmeler yaşanmaktadır. Bazı kaynaklar, silah bırakan örgüt mensuplarına Türkiye'ye dönmeleri için 2 aylık bir süre tanınacağını ve bu kapsamda özel bir yasal düzenleme hazırlığı yapıldığını iddia etmektedir. Bu düzenlemenin, örgütün fesih sürecini kolaylaştırması hedeflenmektedir.

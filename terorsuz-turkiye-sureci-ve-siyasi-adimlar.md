@@ -24,3 +24,7 @@ MHP'den yapılan açıklamalarda, bayram sonrası 'terörsüz Türkiye' hedefi d
 MHP Genel Başkanı Devlet Bahçeli'ye yapılan sürpriz bir ziyaretin, 'Terörsüz Türkiye' süreciyle ilgili olabileceği spekülasyonları gündeme geldi. Bu ziyaretin içeriği ve olası etkileri hakkında henüz net bir bilgi bulunmamakla birlikte, sürecin siyasi boyutuna dair yeni bir gelişme olarak kayıtlara geçti.
 
 Öte yandan, Hazine ve Maliye Bakanı Mehmet Şimşek, 'Terörsüz Türkiye' söyleminin ülkenin en zor meselesini çözmüş olacağını belirterek, bu hedefe yönelik kararlılıklarını vurguladı. Şimşek'in açıklamaları, hükümetin terörle mücadele ve toplumsal huzurun sağlanması konusundaki stratejik yaklaşımını yansıttı.
+
+## Güncelleme - 2026-06-05
+
+MHP kulislerinde, 'Terörsüz Türkiye' sürecinin ikinci plana itildiği ve tüm enerjinin CHP'ye yönelik tartışmalara harcandığı yönünde değerlendirmeler yer almaktadır. Bu durum, sürecin ilerleyişi üzerindeki siyasi etkileri ve önceliklendirmelerdeki değişimleri gözler önüne sermektedir.
