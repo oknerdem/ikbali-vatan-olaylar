@@ -22,3 +22,9 @@ Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gazia
 ## Güncelleme - 2026-05-25
 
 Osmaniye merkezli olarak düzenlenen "Yapay Zeka 2" operasyonunda ise 11 şüpheli tutuklandı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-06
+
+Türkiye genelinde 39 ilde eş zamanlı olarak düzenlenen operasyonlarda DEAŞ terör örgütüyle bağlantılı olduğu tespit edilen 361 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan operasyonun devamı niteliğinde değerlendiriliyor. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+Bu geniş çaplı operasyonlar, terör örgütlerinin finansal ve faaliyet ağlarını çökertmeye yönelik önemli bir adım olarak kayıtlara geçti. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
