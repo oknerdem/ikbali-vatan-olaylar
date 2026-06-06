@@ -18,3 +18,13 @@ Kurtulmuş, terörsüz bir Türkiye'nin demokratik kanallarla güçleneceğine i
 ## Güncelleme - 2026-06-01
 
 TBMM Başkanı Numan Kurtulmuş, Finlandiya'da yaptığı açıklamalarda terörle mücadelenin önemine bir kez daha vurgu yaparak, terörsüz bir Türkiye'nin ancak milli dayanışma ile mümkün olacağını belirtti. Kurtulmuş, bu konunun siyasetin de öncelikli gündemlerinden biri olduğunu ve siyasetin bu mücadelede üzerine düşeni yapacağını ifade etti. Yeni anayasa çalışmalarına da değinen Kurtulmuş, bu sürecin toplumsal mutabakatla ilerlemesi gerektiğini sözlerine ekledi.
+
+## Güncelleme - 2026-06-06
+
+DEM Parti Sözcüsü Ayşegül Doğan, Abdullah Öcalan'ın gazetecilerle görüşmek istediğini ve çözüm sürecinin takibini sağlamak üzere bir kurul oluşturulması önerdiğini açıkladı. Bu gelişme, çözüm süreci ve terörle mücadele konularının yeniden gündeme gelmesine neden oldu. Öte yandan, TBMM Başkanı Numan Kurtulmuş, İmralı'dan gelen bu tür taleplerin çözüm sürecinde 'ciddi gecikmelere' yol açtığını belirterek, silahların bırakılması konusunda İmralı'nın iradesinin dışında bir durum olduğunu ifade etti. Kurtulmuş, terörle mücadelenin milli dayanışma ile mümkün olacağını ve yeni anayasa çalışmalarının toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
+
+## Güncelleme - 2026-06-06 (2)
+
+TBMM Başkanı Numan Kurtulmuş, İmralı'dan gelen Abdullah Öcalan'ın gazetecilerle görüşme taleplerinin çözüm sürecinde 'ciddi gecikmelere' yol açtığını belirtti. Kurtulmuş, silah bırakma konusunda İmralı'nın iradesinin dışında bir durum olduğunu ifade ederek, terörle mücadelenin milli dayanışma ile mümkün olacağını ve yeni anayasa çalışmalarının toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
+
+AK Parti Grup Başkanı Abdullah Güler ise terörle mücadele kapsamında 'geçici ve müstakil kanun çalışmaları' olacağını duyurdu. Bu açıklamalar, terörle mücadele ve yeni anayasa gündemlerinin siyasi tartışmalarda öne çıktığını göstermektedir.
