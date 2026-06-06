@@ -20,3 +20,7 @@ Kabine toplantısında, 'Terörsüz Türkiye' hedefi ve ekonomi konularının ya
 Cumhurbaşkanı Erdoğan, kabine toplantısında yaptığı açıklamalarda Türkiye'nin ihracatta Cumhuriyet tarihinin rekorunu kırdığını belirtti. Erdoğan, hizmet ihracatının 2002 yılındaki 14 milyar dolardan geçen yıl 122,6 milyar dolara ulaştığını vurgulayarak, Türkiye'nin en büyük gücünün istikrar ve güven ortamı olduğunu ifade etti.
 
 Bu gelişmeler, toplantıda ele alınan ekonomi başlıklarının somut sonuçlarını ortaya koymaktadır. İhracattaki bu rekor, ülkenin ekonomik performansına dair olumlu bir tablo çizmektedir.
+
+## Güncelleme - 2026-06-07
+
+Bilal Erdoğan, gençlerin Türkiye'nin artık terörü geride bırakmasını istediğini belirterek, 'Terörsüz Türkiye' vurgusu yaptı. Kayseri'de bir araya gelen gençler de benzer şekilde güvenlik ve terörsüz bir Türkiye çağrısında bulundu. Bu gelişmeler, kabine toplantısında ele alınan 'Terörsüz Türkiye' hedefiyle paralellik göstermektedir.
