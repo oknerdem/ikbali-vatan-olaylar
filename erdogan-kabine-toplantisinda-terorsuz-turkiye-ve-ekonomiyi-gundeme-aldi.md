@@ -14,3 +14,9 @@ Kabine toplantısının detayları ve ele alınan diğer konular hakkında ek bi
 ## Güncelleme - 2026-06-01
 
 Kabine toplantısında, 'Terörsüz Türkiye' hedefi ve ekonomi konularının yanı sıra Orta Doğu'daki gelişmeler ve dış politika başlıkları da ele alındı. Toplantıda, terörle mücadeleye yönelik yasal adımların da gündeme geldiği belirtildi.
+
+## Güncelleme - 2026-06-06
+
+Cumhurbaşkanı Erdoğan, kabine toplantısında yaptığı açıklamalarda Türkiye'nin ihracatta Cumhuriyet tarihinin rekorunu kırdığını belirtti. Erdoğan, hizmet ihracatının 2002 yılındaki 14 milyar dolardan geçen yıl 122,6 milyar dolara ulaştığını vurgulayarak, Türkiye'nin en büyük gücünün istikrar ve güven ortamı olduğunu ifade etti.
+
+Bu gelişmeler, toplantıda ele alınan ekonomi başlıklarının somut sonuçlarını ortaya koymaktadır. İhracattaki bu rekor, ülkenin ekonomik performansına dair olumlu bir tablo çizmektedir.
