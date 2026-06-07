@@ -26,3 +26,7 @@ HÜDA PAR da "Terörsüz Türkiye" söylemini destekleyerek, bu yönde bir kanun
 Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli, 15 Temmuz darbe girişimi yıldönümüne kadar "Terörsüz Türkiye" hedefiyle bir çerçeve yasanın çıkarılmasının önemini vurgulayarak, bu adımın terör örgütleriyle mücadelede yeni bir dönemi başlatacağını belirtti. HÜDA PAR da "Terörsüz Türkiye" söylemini destekleyerek, bu yönde bir kanun teklifini Türkiye Büyük Millet Meclisi'ne sundu. Teklifin terörün önlenmesi ve toplumsal huzurun sağlanması amacıyla hazırlandığı ifade edildi.
 
 Bu gelişmeler, Türkiye'nin terörle mücadelesinde siyasi ve hukuki alanda yeni adımların atılacağına işaret ederken, "Kandil'in boşaltılması" gibi konuların da gündemde olduğu ve silah bırakma takviminin netleştiği yönünde haberler yer almaktadır. Bu süreçte yasal düzenlemelerin kritik bir aşamaya geldiği ve geri sayımın başladığı belirtiliyor.
+
+## Güncelleme - 2026-06-08
+
+Silehi Aşireti Lideri Mehmet Atlı, 'Terörsüz Türkiye' söylemini destekleyerek, bunun aynı zamanda 'terörsüz bölge' anlamına geldiğini belirtti. Bu destek, siyasi partilerin ve aşiret liderlerinin terörle mücadele konusundaki ortak duruşunu pekiştiriyor. HÜDA PAR'ın sunduğu kanun teklifi ve MHP'nin vurguladığı çerçeve yasa hazırlığı, konunun siyasi gündemdeki önemini artırıyor.
