@@ -14,3 +14,7 @@ Demokrasi ve Atılım Partisi (DEVA) Genel Başkanı Ali Babacan da konuyla ilgi
 ## Güncelleme - 2026-06-04
 
 CHP içindeki tasfiye tartışmaları, parti içinde eleştirel seslerin ihraç edildiği iddialarıyla gündeme geldi. Bu durum, parti içi demokrasi ve muhalefetin yeri üzerine yeni soruları beraberinde getirdi. Özgür Özel'in kurultay talebi ise parti içi dinamiklerin daha da hareketleneceği beklentisini artırdı.
+
+## Güncelleme - 2026-06-07
+
+CHP içindeki kurultay süreciyle ilgili imza toplama çalışmaları devam ediyor. 7 Haziran 2026 itibarıyla, kurultay talebine destek veren imza sayısının 307'ye ulaştığı belirtiliyor. Ayrıca, 84 eski CHP'li milletvekilinin de kurultayın derhal toplanması yönünde çağrıda bulunduğu haberleri yer alıyor. Bu gelişmeler, parti içindeki muhalif hareketliliğin ve kurultay talebinin güçlendiğini gösteriyor.
