@@ -40,3 +40,7 @@ Bu gelişmeler yaşanırken, İran devlet televizyonu ABD ordusunun Hürmüz Bo�
 ## Güncelleme - 2026-05-28
 
 ABD ve İran arasındaki gerilim, karşılıklı saldırı iddialarıyla tırmanırken, Birleşmiş Milletler'den Kiev'e yönelik kitlesel saldırılar sonrası bir açıklama geldi. ABD'nin bu konudaki tavrı ise dikkat çekti. Bu gelişmeler, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor.
+
+## Güncelleme - 2026-06-07
+
+İran, İsrail'in Beyrut'a yönelik saldırısına sert tepki göstererek, bu eylemlerin bölgesel gerilimi artırdığını belirtti. Tahran yönetimi, uluslararası toplumu İsrail'in saldırganlığını durdurmaya çağırdı. Bu gelişme, daha önce ABD ile İran arasındaki nükleer anlaşma ve Ukrayna'daki durumla ilgili yaşanan diplomatik hareketliliğin ortasında meydana geldi. Koç Holding'e yönelik saldırılara ilişkin AK Parti ve Ömer Çelik'ten gelen sert tepkiler de Türkiye'deki gündemi meşgul etmeye devam etti. Bu tepkiler, ülkenin iç güvenliği ve dış politikadaki hassasiyetlerini bir kez daha gözler önüne serdi.

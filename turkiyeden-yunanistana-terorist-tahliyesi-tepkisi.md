@@ -24,3 +24,7 @@ Söz konusu tahliye kararının, Türkiye'nin ulusal güvenliğine ve terörle m
 ## Güncelleme - 2026-05-26
 
 İçişleri Bakanı Ali Yerlikaya, Yunanistan'ın Türkiye'de iki polis memurunun şehit edilmesiyle ilgili aranan bir terör örgütü mensubunu serbest bırakmasıyla ilgili açıklamalarda bulundu. Bakan Yerlikaya, bu kararın kabul edilemez olduğunu belirterek, Yunanistan'ı sert bir dille kınadı. Bu gelişme, iki ülke arasındaki diplomatik ilişkilerde gerginliğe yol açarken, terörle mücadele konusunda uluslararası iş birliğinin önemini ve bu tür kararların sonuçlarını bir kez daha gündeme getirdi.
+
+## Güncelleme - 2026-06-07
+
+AK Parti Sözcüsü Ömer Çelik, Koç Holding kurumlarına yönelik gerçekleştirilen silahlı saldırıları kınayarak, bu tür eylemlerin ülkeyi karıştırmaya yönelik olduğunu belirtti ve bu tür girişimlere müsaade edilmeyeceğini vurguladı. Saldırılar, Türkiye'de önemli bir iş grubuna yönelik olması ve siyasi parti tarafından sert tepkiyle karşılanması nedeniyle gündemde yer buldu.

@@ -8,3 +8,7 @@ img: "https://cdn.yeniakit.com.tr/cdn-cgi/image/format=webp,quality=85/images/ne
 Nijerya'da terör örgütü tarafından rehin alınan 92 sivil, güvenlik güçlerinin operasyonuyla kurtarıldı. Kurtarma operasyonunun detayları hakkında henüz bilgi verilmedi.
 
 Bu gelişme, terörle mücadele kapsamında önemli bir adım olarak değerlendiriliyor. Bölgedeki terör faaliyetlerinin yoğunluğu göz önüne alındığında, sivillerin güvenliğinin sağlanması büyük önem taşıyor.
+
+## Güncelleme - 2026-06-07
+
+Nijerya ordusu, Boko Haram terör örgütünün elinden 360 kişiyi daha kurtardığını duyurdu. Bu kurtarma operasyonu, daha önce bildirilen 92 sivilin kurtarılmasının ardından bölgedeki rehin alma olaylarına karşı yürütülen mücadelenin devam ettiğini gösteriyor. Operasyonların detayları ve kurtarılan kişilerin durumu hakkında ek bilgiler bekleniyor.
