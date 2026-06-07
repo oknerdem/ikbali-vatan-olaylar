@@ -112,3 +112,7 @@ Yaşanan olaylar, CHP'deki kurultay iptali ve genel başkanlık krizinin sadece 
 Zafer Partisi Genel Başkanı Ümit Özdağ, MHP Genel Başkanı Devlet Bahçeli'yi Abdullah Öcalan ile ittifak kurmakla suçlayarak sert eleştirilerde bulundu. Özdağ, Bahçeli'nin Zafer Partisi'nin kiminle temas kuracağına karar veremeyeceğini belirtti. Bu açıklama, siyasi kutuplaşmanın arttığı bir dönemde, terörle mücadele söylemlerinin ve ittifak tartışmalarının siyasi gündemdeki yerini daha da belirginleştirdi.
 
 Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki siyasi gerilimin, farklı partiler arasında da karşılıklı suçlamalarla tırmandığını göstermektedir. Özdağ'ın bu sert çıkışı, siyasi aktörlerin birbirlerini terörle ilişkilendirme eğiliminin arttığına ve bu tür söylemlerin siyasi rekabette bir araç olarak kullanıldığına işaret etmektedir.
+
+## Güncelleme - 2026-06-07
+
+Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği "mutlak butlan" kararına ilkesel olarak açık ve net bir şekilde karşı çıktıklarını ifade etti. Bu tepki, kararın sadece parti içi bir mesele olmadığını, aynı zamanda Kürt siyasi hareketi ve çözüm süreci gibi daha geniş siyasi dinamikler üzerinde de etkileri olabileceğine işaret ediyor.
