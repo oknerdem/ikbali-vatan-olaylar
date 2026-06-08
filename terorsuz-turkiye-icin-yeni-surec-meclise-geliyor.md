@@ -16,3 +16,7 @@ Adalet Bakanı Akın Gürlek'in açıklamalarının ardından, farklı siyasi pa
 ## Güncelleme - 2026-06-06 (2)
 
 Adalet Bakanı Akın Gürlek'in TBMM'ye sunulacağını belirttiği 'Terörsüz Türkiye' süreciyle ilgili yasal düzenlemeler öncesinde siyasi partilerden ilk değerlendirmeler gelmeye başladı. DEM Parti ve HÜDA PAR, sürecin hukuki altyapısının sağlam kurulması gerektiğini vurgularken, MHP'li Feti Yıldız adaletin önemine dikkat çekerek sürece destek verdi. Bu açıklamalar, TBMM'de yaşanacak tartışmaların ve uzlaşma zeminlerinin önemini ortaya koyuyor.
+
+## Güncelleme - 2026-06-08
+
+AK Parti tarafından hazırlanan ve 21 Mart Nevruz Bayramı'nın resmi tatil ilan edilmesini öngören yasa teklifi TBMM'ye sunuldu. Teklifin, yeni yasama döneminde Ekim ayında Meclis gündemine gelmesi bekleniyor. Bu gelişme, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu 'Terörsüz Türkiye' süreciyle ilgili yasal düzenlemeler gündemine ek olarak değerlendiriliyor.
