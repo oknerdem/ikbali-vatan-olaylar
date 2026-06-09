@@ -16,3 +16,9 @@ Yıllarca "bebek katili" dediği teröristbaşına "kurucu önder" gibi meşrula
 MHP Genel Başkanı Devlet Bahçeli, 23 Mayıs 2026'da yaptığı açıklamalarda, 'terörsüz Türkiye' vurgusu yaparak bunun gelecek nesillerin refahı adına alınmış tarihi bir sorumluluk olduğunu belirtti. Bu açıklama, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin söyleminde bir değişiklik olarak yorumlandı.
 
 Bahçeli'nin bu yeni çıkışı, terörle mücadeledeki kararlılığın altını çizerken, geçmişteki iddiaların aksine, terörün kaynağına ve unsurlarına karşı net bir duruş sergilediği şeklinde değerlendirildi. Bu durum, siyasi çevrelerde ve kamuoyunda farklı yorumlara neden oldu.
+
+## Güncelleme - 2026-06-09
+
+MHP Genel Başkanı Devlet Bahçeli, 9 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve 'terörsüz bir Türkiye'nin milli varlığın zırhı olduğunu vurguladı. Bu ifadeler, daha önce Abdullah Öcalan için 'kurucu önder' gibi söylemler kullandığı iddialarıyla gündeme gelen Bahçeli'nin, terörle mücadele konusundaki duruşunu yeniden netleştirdiği şeklinde yorumlandı.
+
+Bahçeli'nin bu açıklamaları, özellikle CHP Genel Başkanı Özgür Özel'e yönelik bir çağrı olarak da değerlendirildi. Terörün kaynağına ve unsurlarına karşı sergilenen bu net duruş, siyasi çevrelerde ve kamuoyunda farklı değerlendirmelere yol açtı. Bahçeli'nin bu çıkışı, geçmişteki iddiaların aksine, terörle mücadeledeki kararlılığını ve kırmızı çizgilerini yeniden teyit ettiği şeklinde yorumlandı.

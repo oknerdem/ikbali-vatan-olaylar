@@ -2,7 +2,7 @@
 title: Bakan Çiftçi Güvenlik Güçleriyle Bayramlaştı
 date: "2026-05-27"
 category: "Siyasi"
-img: ""
+img: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/06/09/yeni-proje-2026-06-09t120136-hxwz_cover.jpg"
 ---
 
 Bakan Çiftçi, bayram vesilesiyle Konya'da bulunan güvenlik güçleriyle bir araya gelerek bayramlarını kutladı.
@@ -16,3 +16,9 @@ Bayram dolayısıyla Milli Savunma Bakanı Yaşar Güler de Mehmetçikle bir ara
 ## Güncelleme - 2026-05-27 (2)
 
 İçişleri Bakanı Mustafa Çiftçi, 27 Mayıs darbesine ilişkin bir mesaj yayımlayarak, "Milli iradenin üzerinde hiçbir güç yoktur" ifadelerini kullandı. Bakan Çiftçi, mesajında darbe girişimlerinin değişen yöntemlerle devam ettiğini belirterek, milli iradeye sahip çıkmanın önemini vurguladı.
+
+## Güncelleme - 2026-06-09
+
+Türkiye ve Suriye arasındaki ilişkilerde yeni bir dönem başlıyor. Milli Savunma Bakanı Yaşar Güler, Suriyeli mevkidaşı Ebu Kasra ile Ankara'da bir araya gelerek savunma ve güvenlik konularını görüştü. Bu görüşme, iki ülke arasındaki diplomatik temasların artması ve bölgesel istikrarın güçlendirilmesi açısından önem taşıyor.
+
+Ekonomik alanda da iş birliği adımları atılıyor. Suriye Ekonomi Bakanı, Türkiye'yi doğal ortakları olarak gördüklerini belirtirken, Türk bankalarının Suriye'de faaliyet gösterme potansiyeli de gündemde. Hedef, iki ülke arasındaki ticaret hacmini 10 milyar dolara çıkarmak.
