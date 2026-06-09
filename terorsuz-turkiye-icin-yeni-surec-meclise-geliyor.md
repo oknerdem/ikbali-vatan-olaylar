@@ -20,3 +20,7 @@ Adalet Bakanı Akın Gürlek'in TBMM'ye sunulacağını belirttiği 'Terörsüz 
 ## Güncelleme - 2026-06-08
 
 AK Parti tarafından hazırlanan ve 21 Mart Nevruz Bayramı'nın resmi tatil ilan edilmesini öngören yasa teklifi TBMM'ye sunuldu. Teklifin, yeni yasama döneminde Ekim ayında Meclis gündemine gelmesi bekleniyor. Bu gelişme, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu 'Terörsüz Türkiye' süreciyle ilgili yasal düzenlemeler gündemine ek olarak değerlendiriliyor.
+
+## Güncelleme - 2026-06-10
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecini, ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu olarak tanımladı. Bu açıklama, Adalet Bakanı Akın Gürlek'in daha önce duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katarken, vizyonun devlet politikası olarak konumlandırıldığını vurguladı.
