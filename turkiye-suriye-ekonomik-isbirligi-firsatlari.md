@@ -1,0 +1,12 @@
+---
+title: "Türkiye ve Suriye Arasında Ekonomik İşbirliği Fırsatları"
+date: "2026-06-09"
+category: "Global"
+img: "https://www.mersinhaber.com/cropp/1200x675/Depo/haber/664399/org/664399.webp"
+---
+
+Suriye Ekonomi ve Sanayi Bakanı Eş-Şaar, Türkiye'yi doğal ortak olarak gördüklerini belirtti. Bu açıklama, iki ülke arasındaki ekonomik ilişkilerin geliştirilmesi potansiyeline işaret ediyor.
+
+Ticaret Bakanı Ömer Bolat da Türkiye-Suriye hattının ticaretin yeni kilidi olabileceğini vurguladı. Gaziantep'te düzenlenen Halep'teki Kent Ekonomileri Zirvesi'nde de Türkiye ve Suriye arasındaki ticaret ve yatırım fırsatları ele alındı.
+
+Bu gelişmeler, bölgesel ekonomik işbirliği açısından önemli fırsatlar barındırıyor.

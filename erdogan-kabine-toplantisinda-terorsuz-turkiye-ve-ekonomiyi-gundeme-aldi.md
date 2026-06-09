@@ -24,3 +24,9 @@ Bu gelişmeler, toplantıda ele alınan ekonomi başlıklarının somut sonuçla
 ## Güncelleme - 2026-06-07
 
 Bilal Erdoğan, gençlerin Türkiye'nin artık terörü geride bırakmasını istediğini belirterek, 'Terörsüz Türkiye' vurgusu yaptı. Kayseri'de bir araya gelen gençler de benzer şekilde güvenlik ve terörsüz bir Türkiye çağrısında bulundu. Bu gelişmeler, kabine toplantısında ele alınan 'Terörsüz Türkiye' hedefiyle paralellik göstermektedir.
+
+## Güncelleme - 2026-06-09
+
+Cumhurbaşkanı Erdoğan, 9 Haziran 2026'da yaptığı açıklamalarda, "Terörsüz Türkiye" sürecini, ülkenin güvenlik politikasının ötesinde, yeni yüzyılın stratejik devlet vizyonu olarak tanımladı. Bu vurgu, Türkiye'nin terörle mücadelesini sadece bir güvenlik meselesi olmaktan çıkarıp, daha geniş bir devlet stratejisi ve gelecek vizyonu çerçevesinde ele aldığını göstermektedir.
+
+Erdoğan'ın bu açıklamaları, Irak ve Suriye'deki harekatların da güvenlik paradigmasında yeni bir dönemi başlattığı yönündeki ifadeleriyle de desteklenmiştir. Bu bağlamda, terörle mücadelenin, Türkiye'nin bölgesel ve küresel konumuyla entegre bir stratejinin parçası olduğu mesajı verilmiştir.
