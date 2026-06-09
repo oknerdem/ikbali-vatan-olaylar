@@ -116,3 +116,9 @@ Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki
 ## Güncelleme - 2026-06-07
 
 Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği "mutlak butlan" kararına ilkesel olarak açık ve net bir şekilde karşı çıktıklarını ifade etti. Bu tepki, kararın sadece parti içi bir mesele olmadığını, aynı zamanda Kürt siyasi hareketi ve çözüm süreci gibi daha geniş siyasi dinamikler üzerinde de etkileri olabileceğine işaret ediyor.
+
+## Güncelleme - 2026-06-09
+
+CHP'de mahkeme kararı sonrası yaşanan 'mutlak butlan' krizi derinleşerek devam ediyor. Bu kapsamda, Özgür Özel ve Kemal Kılıçdaroğlu'nun parti içindeki farklı grupları temsil eden ayrı grup toplantıları düzenlemesi dikkat çekti. Bu durum, parti içindeki bölünmüşlüğü ve liderlik mücadelesinin somut bir göstergesi olarak yorumlandı.
+
+Öte yandan, mahkeme kararının ardından başlayan hukuki süreç ve parti içi gerilim sürerken, MHP Genel Başkanı Devlet Bahçeli'nin Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini açıklaması ve CHP'nin birleşip kongreye gitmesi yönündeki çağrısı, gelişmelere dışarıdan gelen önemli bir siyasi müdahale olarak değerlendirildi.
