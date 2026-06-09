@@ -18,3 +18,7 @@ CHP içindeki tasfiye tartışmaları, parti içinde eleştirel seslerin ihraç 
 ## Güncelleme - 2026-06-07
 
 CHP içindeki kurultay süreciyle ilgili imza toplama çalışmaları devam ediyor. 7 Haziran 2026 itibarıyla, kurultay talebine destek veren imza sayısının 307'ye ulaştığı belirtiliyor. Ayrıca, 84 eski CHP'li milletvekilinin de kurultayın derhal toplanması yönünde çağrıda bulunduğu haberleri yer alıyor. Bu gelişmeler, parti içindeki muhalif hareketliliğin ve kurultay talebinin güçlendiğini gösteriyor.
+
+## Güncelleme - 2026-06-09
+
+Öte yandan, CHP Grup Toplantısı'nda yaşanan kriz ve Özgür Özel'in 'darbe ve kumpas' açıklamaları, parti içindeki gerilimin arttığına işaret etti. Muharrem İnce'nin de kurultay çağrısı yapmasıyla birlikte, parti içindeki farklı seslerin ve taleplerin daha belirgin hale geldiği gözlemleniyor.

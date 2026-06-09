@@ -10,3 +10,9 @@ Suriye Ekonomi ve Sanayi Bakanı Eş-Şaar, Türkiye'yi doğal ortak olarak gör
 Ticaret Bakanı Ömer Bolat da Türkiye-Suriye hattının ticaretin yeni kilidi olabileceğini vurguladı. Gaziantep'te düzenlenen Halep'teki Kent Ekonomileri Zirvesi'nde de Türkiye ve Suriye arasındaki ticaret ve yatırım fırsatları ele alındı.
 
 Bu gelişmeler, bölgesel ekonomik işbirliği açısından önemli fırsatlar barındırıyor.
+
+## Güncelleme - 2026-06-09
+
+Ticaret Bakanı Ömer Bolat, Türkiye-Suriye ekonomik ilişkilerinin geliştirilmesi ve transit ticaret koridorlarının hayata geçirilmesi yönündeki adımların önemine dikkat çekti. Gaziantep'te düzenlenen "AA Kent Ekonomileri Zirvesi"nde Türkiye ve Suriye'den iş ve siyaset dünyasının temsilcileri bir araya gelerek ticaret ve yatırım fırsatlarını değerlendirdi.
+
+Bu zirve, iki ülke arasındaki ekonomik bağların güçlendirilmesi ve bölgesel ticaretin canlandırılması potansiyelini ortaya koydu. Bakan Bolat'ın açıklamaları, Türkiye-Suriye-Ürdün-Suudi Arabistan transit koridorunun stratejik önemini vurgulayarak, bu hattın ticarette yeni bir dönüm noktası olabileceği mesajını verdi.
