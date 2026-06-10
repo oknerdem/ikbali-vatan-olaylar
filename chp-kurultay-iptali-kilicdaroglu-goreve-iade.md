@@ -122,3 +122,7 @@ Bu gelişmeler, CHP'deki kurultay iptali ve genel başkanlık krizi etrafındaki
 CHP'de mahkeme kararı sonrası yaşanan 'mutlak butlan' krizi derinleşerek devam ediyor. Bu kapsamda, Özgür Özel ve Kemal Kılıçdaroğlu'nun parti içindeki farklı grupları temsil eden ayrı grup toplantıları düzenlemesi dikkat çekti. Bu durum, parti içindeki bölünmüşlüğü ve liderlik mücadelesinin somut bir göstergesi olarak yorumlandı.
 
 Öte yandan, mahkeme kararının ardından başlayan hukuki süreç ve parti içi gerilim sürerken, MHP Genel Başkanı Devlet Bahçeli'nin Kemal Kılıçdaroğlu'nun genel başkanlığını desteklediğini açıklaması ve CHP'nin birleşip kongreye gitmesi yönündeki çağrısı, gelişmelere dışarıdan gelen önemli bir siyasi müdahale olarak değerlendirildi.
+
+## Güncelleme - 2026-06-10
+
+CHP'deki 'mutlak butlan' kararı sonrası parti içi gerilim tırmanırken, mevcut genel başkan Özgür Özel'in destekçileri, Kemal Kılıçdaroğlu'nun genel başkanlığını kabul etmeyerek 9 CHP'li milletvekilinin ihracını istedi. Bu talep, parti tüzüğüne aykırı olduğu gerekçesiyle Özel cephesi tarafından yargıya taşındı. Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği karara ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu.
