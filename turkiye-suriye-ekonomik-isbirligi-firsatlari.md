@@ -16,3 +16,9 @@ Bu gelişmeler, bölgesel ekonomik işbirliği açısından önemli fırsatlar b
 Ticaret Bakanı Ömer Bolat, Türkiye-Suriye ekonomik ilişkilerinin geliştirilmesi ve transit ticaret koridorlarının hayata geçirilmesi yönündeki adımların önemine dikkat çekti. Gaziantep'te düzenlenen "AA Kent Ekonomileri Zirvesi"nde Türkiye ve Suriye'den iş ve siyaset dünyasının temsilcileri bir araya gelerek ticaret ve yatırım fırsatlarını değerlendirdi.
 
 Bu zirve, iki ülke arasındaki ekonomik bağların güçlendirilmesi ve bölgesel ticaretin canlandırılması potansiyelini ortaya koydu. Bakan Bolat'ın açıklamaları, Türkiye-Suriye-Ürdün-Suudi Arabistan transit koridorunun stratejik önemini vurgulayarak, bu hattın ticarette yeni bir dönüm noktası olabileceği mesajını verdi.
+
+## Güncelleme - 2026-06-10
+
+Ticaret Bakanı Ömer Bolat, Türkiye'deki bankaların Suriye'de şube açabileceği yönünde bir gelişme olduğunu duyurdu. Bu adım, iki ülke arasındaki ekonomik entegrasyonu derinleştirebilecek önemli bir potansiyel taşıyor. Türkiye ve Suriye arasındaki ticari ilişkilerin geliştirilmesi ve sınır ötesi finansal hizmetlerin yaygınlaşması, bölgedeki ekonomik hareketliliği artırabilir.
+
+Bu gelişme, daha önce Gaziantep'te düzenlenen Halep'teki Kent Ekonomileri Zirvesi'nde ele alınan ticaret ve yatırım fırsatlarının somutlaşması olarak değerlendiriliyor. Türk bankalarının Suriye'de faaliyet göstermesi, hem Türk hem de Suriyeli firmalar için finansmana erişimi kolaylaştırarak karşılıklı ticareti ve yatırımları teşvik edebilir.
