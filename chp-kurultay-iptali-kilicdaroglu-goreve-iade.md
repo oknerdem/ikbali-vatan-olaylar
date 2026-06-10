@@ -126,3 +126,7 @@ CHP'de mahkeme kararı sonrası yaşanan 'mutlak butlan' krizi derinleşerek dev
 ## Güncelleme - 2026-06-10
 
 CHP'deki 'mutlak butlan' kararı sonrası parti içi gerilim tırmanırken, mevcut genel başkan Özgür Özel'in destekçileri, Kemal Kılıçdaroğlu'nun genel başkanlığını kabul etmeyerek 9 CHP'li milletvekilinin ihracını istedi. Bu talep, parti tüzüğüne aykırı olduğu gerekçesiyle Özel cephesi tarafından yargıya taşındı. Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği karara ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu.
+
+## Güncelleme - 2026-06-11
+
+CHP'de parti içi gerilim tırmanırken, Kemal Kılıçdaroğlu'nun genel başkanlığını destekleyen bir grup tarafından, mevcut genel başkan Özgür Özel'e yakınlığıyla bilinen 9 CHP milletvekilinin partiden kesin ihraçları istendi. Bu talebin, parti tüzüğüne aykırı olduğu gerekçesiyle Özel'in destekçileri tarafından yargıya taşındığı öğrenildi. Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği 'mutlak butlan' kararına ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu.

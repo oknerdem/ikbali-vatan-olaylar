@@ -44,3 +44,7 @@ ABD ve İran arasındaki gerilim, karşılıklı saldırı iddialarıyla tırman
 ## Güncelleme - 2026-06-07
 
 İran, İsrail'in Beyrut'a yönelik saldırısına sert tepki göstererek, bu eylemlerin bölgesel gerilimi artırdığını belirtti. Tahran yönetimi, uluslararası toplumu İsrail'in saldırganlığını durdurmaya çağırdı. Bu gelişme, daha önce ABD ile İran arasındaki nükleer anlaşma ve Ukrayna'daki durumla ilgili yaşanan diplomatik hareketliliğin ortasında meydana geldi. Koç Holding'e yönelik saldırılara ilişkin AK Parti ve Ömer Çelik'ten gelen sert tepkiler de Türkiye'deki gündemi meşgul etmeye devam etti. Bu tepkiler, ülkenin iç güvenliği ve dış politikadaki hassasiyetlerini bir kez daha gözler önüne serdi.
+
+## Güncelleme - 2026-06-11
+
+ABD ordusu, İran'a yönelik yeni saldırılar başlattığını duyurdu. Bu gelişmeler, iki ülke arasındaki gerilimin tırmandığına işaret ederken, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor. İran, İsrail'in Beyrut'a yönelik saldırısına sert tepki göstererek, bu eylemlerin bölgesel gerilimi artırdığını belirtti ve uluslararası toplumu İsrail'in saldırganlığını durdurmaya çağırdı. Bu durum, daha önce ABD ile İran arasındaki nükleer anlaşma ve Ukrayna'daki durumla ilgili yaşanan diplomatik hareketliliğin ortasında meydana geldi.
