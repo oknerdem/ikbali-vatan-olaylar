@@ -44,3 +44,7 @@ Bu görüşmeler, ABD Başkanı Donald Trump'ın İran'a yönelik politikaları 
 ## Güncelleme - 2026-06-10
 
 Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 10 Haziran 2026'da yaptığı açıklamalarda, İsrail'in Suriye ve Lübnan'a yönelik saldırılarının Türkiye'nin güvenliğini de tehdit eder hale geldiğini belirtti. Erdoğan, Türkiye'nin güvenliğinin Hatay'dan değil, Halep ve Beyrut gibi bölgelerden başladığını vurgulayarak, İsrail'e ve bölgedeki tehditlere karşı sert uyarılarda bulundu. Bu açıklamalar, İran diplomasisi bağlamında bölgedeki gerilimlerin ve Türkiye'nin dış politika duruşunun önemini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-06-12
+
+Öte yandan, ABD Başkanı Donald Trump'ın İran ile olası bir anlaşmaya ilişkin "O maddelerin alakası yok" şeklinde bir açıklama yapması, ABD-İran arasındaki mutabakat sürecinde bir krizi işaret etti. İsrail Savunma Bakanı'nın ise Gazze, Lübnan ve Suriye'de işgal ettikleri bölgelerden çekilmeyeceklerini savunması, bölgedeki karmaşık durumu daha da pekiştirdi.
