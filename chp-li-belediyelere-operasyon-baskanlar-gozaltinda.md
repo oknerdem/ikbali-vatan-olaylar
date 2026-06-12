@@ -46,3 +46,9 @@ Bu gelişme, daha önce İzmir'de CHP'li belediyelere yönelik yapılan operasyo
 İzmir'in Buca ilçesinde, Buca Belediye Başkanı Görkem Duman'ın da aralarında bulunduğu çok sayıda kişi hakkında rüşvet, zimmet, irtikap ve ihaleye fesat karıştırma iddialarıyla gözaltı kararı verildi. CHP'li yetkililer, operasyonun siyasi olduğunu savunarak tepki gösterdi. Bu gelişme, daha önce İzmir Güzelbahçe Belediyesi'ne yönelik yapılan operasyonun ardından CHP'li belediyelere yönelik devam eden soruşturmalar kapsamında değerlendiriliyor.
 
 Antalya Büyükşehir Belediyesi'ne yönelik de bir operasyon düzenlenerek 3 kişi gözaltına alındı. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmadı ancak operasyonun belediyenin işleyişine yönelik olduğu belirtildi. Bu durum, yerel yönetimlere yönelik operasyonların sürdüğünü gösteriyor.
+
+## Güncelleme - 2026-06-12
+
+İstanbul Silivri Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Bora Balcıoğlu'nun da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
+
+Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların ardından, yerel yönetimlerdeki hukuki süreçler ve siyasi yansımaları açısından dikkat çekmektedir. Gözaltı kararlarının ardından belediye binasında ve ilgili adreslerde arama çalışmalarının başlatıldığı bildirildi.
