@@ -24,3 +24,7 @@ AK Parti tarafından hazırlanan ve 21 Mart Nevruz Bayramı'nın resmi tatil ila
 ## Güncelleme - 2026-06-10
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecini, ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu olarak tanımladı. Bu açıklama, Adalet Bakanı Akın Gürlek'in daha önce duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katarken, vizyonun devlet politikası olarak konumlandırıldığını vurguladı.
+
+## Güncelleme - 2026-06-12
+
+İçişleri Bakan Yardımcısı Mehmet Akif Turan, Şırnak'ta katıldığı bir programda yaptığı konuşmada, "Terörsüz Türkiye yolunda geri dönüş yok" ifadelerini kullanarak kararlılıklarını vurguladı. Benzer şekilde, bir hafızlık icazet merasimi ve Şırnak'ta düzenlenen "Omuz Omuza" programında da "Terörsüz Türkiye" vurgusu yapıldı. Bu etkinliklerde yapılan açıklamalar, terörle mücadele konusundaki kararlılığın farklı platformlarda dile getirildiğini göstermektedir.
