@@ -30,3 +30,7 @@ Bilal Erdoğan, gençlerin Türkiye'nin artık terörü geride bırakmasını is
 Cumhurbaşkanı Erdoğan, 9 Haziran 2026'da yaptığı açıklamalarda, "Terörsüz Türkiye" sürecini, ülkenin güvenlik politikasının ötesinde, yeni yüzyılın stratejik devlet vizyonu olarak tanımladı. Bu vurgu, Türkiye'nin terörle mücadelesini sadece bir güvenlik meselesi olmaktan çıkarıp, daha geniş bir devlet stratejisi ve gelecek vizyonu çerçevesinde ele aldığını göstermektedir.
 
 Erdoğan'ın bu açıklamaları, Irak ve Suriye'deki harekatların da güvenlik paradigmasında yeni bir dönemi başlattığı yönündeki ifadeleriyle de desteklenmiştir. Bu bağlamda, terörle mücadelenin, Türkiye'nin bölgesel ve küresel konumuyla entegre bir stratejinin parçası olduğu mesajı verilmiştir.
+
+## Güncelleme - 2026-06-13
+
+Cumhurbaşkanı Erdoğan, Edirne'de yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını yineleyerek "Terörsüz Türkiye" hedefi doğrultusunda tempoyu artıracaklarını belirtti. Bu hedef, ülkenin güvenlik politikalarının yanı sıra yeni yüzyılın stratejik devlet vizyonunun bir parçası olarak tanımlandı. Irak ve Suriye'deki operasyonların da bu güvenlik paradigmasında yeni bir dönemi başlattığı ifade edildi. Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve güvenlik konularının devamı niteliğindedir.
