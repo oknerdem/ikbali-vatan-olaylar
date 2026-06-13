@@ -48,3 +48,9 @@ Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 10 Haziran 2026'da yaptığı a�
 ## Güncelleme - 2026-06-12
 
 Öte yandan, ABD Başkanı Donald Trump'ın İran ile olası bir anlaşmaya ilişkin "O maddelerin alakası yok" şeklinde bir açıklama yapması, ABD-İran arasındaki mutabakat sürecinde bir krizi işaret etti. İsrail Savunma Bakanı'nın ise Gazze, Lübnan ve Suriye'de işgal ettikleri bölgelerden çekilmeyeceklerini savunması, bölgedeki karmaşık durumu daha da pekiştirdi.
+
+## Güncelleme - 2026-06-13
+
+ABD Başkanı Donald Trump, İran ile bir anlaşmanın yarın imzalanmasının planlandığını ve imzalanmasının hemen ardından Hürmüz Boğazı'nın herkese açılacağını belirtti. Bu açıklama, İran ile yürütülen diplomatik süreçte önemli bir gelişme olarak öne çıkıyor ve bölgedeki denizcilik güvenliği açısından kritik bir döneme işaret ediyor.
+
+Öte yandan, Trump'ın G-7 Zirvesi planı da ortaya çıktı. Bu zirve, İran'ın nükleer programı ve bölgesel istikrar gibi konuların ele alınacağı bir platform olabilir. Ancak, Hürmüz Boğazı'ndaki mayın operasyonları gibi gelişmeler, bölgedeki gerilimin devam ettiğini ve diplomatik çözümlerin önündeki engellerin sürdüğünü gösteriyor.
