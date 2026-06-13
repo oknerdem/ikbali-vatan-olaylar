@@ -28,3 +28,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecini, ülkenin
 ## Güncelleme - 2026-06-12
 
 İçişleri Bakan Yardımcısı Mehmet Akif Turan, Şırnak'ta katıldığı bir programda yaptığı konuşmada, "Terörsüz Türkiye yolunda geri dönüş yok" ifadelerini kullanarak kararlılıklarını vurguladı. Benzer şekilde, bir hafızlık icazet merasimi ve Şırnak'ta düzenlenen "Omuz Omuza" programında da "Terörsüz Türkiye" vurgusu yapıldı. Bu etkinliklerde yapılan açıklamalar, terörle mücadele konusundaki kararlılığın farklı platformlarda dile getirildiğini göstermektedir.
+
+## Güncelleme - 2026-06-13
+
+AK Parti Milletvekili Hüseyin Yayman, "Terörsüz Türkiye" sürecinin devlet ve millet politikası olduğunu belirterek, sürecin yavaş ancak emin adımlarla ilerlediğini ifade etti. MHP'li Feti Yıldırım da sürecin bölgede bağımsız yaşayabilmenin projesi olduğunu vurgulayarak desteklerini yineledi. Bu açıklamalar, TBMM'ye gelmesi beklenen yasal düzenlemeler öncesinde siyasi partilerin sürece yönelik yaklaşımlarını ve kararlılıklarını ortaya koymaktadır.
