@@ -30,3 +30,7 @@ Bu gelişmeler, Türkiye'nin terörle mücadelesinde siyasi ve hukuki alanda yen
 ## Güncelleme - 2026-06-08
 
 Silehi Aşireti Lideri Mehmet Atlı, 'Terörsüz Türkiye' söylemini destekleyerek, bunun aynı zamanda 'terörsüz bölge' anlamına geldiğini belirtti. Bu destek, siyasi partilerin ve aşiret liderlerinin terörle mücadele konusundaki ortak duruşunu pekiştiriyor. HÜDA PAR'ın sunduğu kanun teklifi ve MHP'nin vurguladığı çerçeve yasa hazırlığı, konunun siyasi gündemdeki önemini artırıyor.
+
+## Güncelleme - 2026-06-14
+
+Kabine toplantısında dış politika ve 'Terörsüz Türkiye' süreci gündeme alındı. Bu toplantı, terörle mücadeledeki güncel siyasi yaklaşımları ve uluslararası ilişkiler bağlamında konunun ele alınışını göstermesi açısından önem taşıyor. Ayrıca, MHP'li yetkililer 'Terörsüz Türkiye'nin bir kardeşlik projesi olduğunu vurgularken, Ahmet Türk de bu sürecin Kürtler tarafından bozulmayacağını belirterek farklı siyasi ve toplumsal kesimlerden destek mesajları geldiğini ortaya koydu.
