@@ -134,3 +134,9 @@ CHP'de parti içi gerilim tırmanırken, Kemal Kılıçdaroğlu'nun genel başka
 ## Güncelleme - 2026-06-12
 
 Bu gelişmeler yaşanırken, TİP Genel Başkanı Erkan Baş, oy çalma yerine aday çalındığını iddia ederek, Mansur Yavaş'ın tutuklanması ve Özgür Özel'in dokunulmazlığının kaldırılması gibi senaryoların bardağı taşırması ihtimaline dikkat çekti. Ayrıca, bazı çevreler tarafından 45 gün içinde olağanüstü kurultay yapılması gerektiği yönünde çağrılar dile getirildi.
+
+## Güncelleme - 2026-06-15
+
+CHP'de yaşanan kurultay iptali ve genel başkanlık krizi sürerken, Kemal Kılıçdaroğlu'nun genel başkanlığını destekleyen bir grup tarafından, mevcut genel başkan Özgür Özel'e yakınlığıyla bilinen 9 CHP milletvekilinin partiden kesin ihraçları istendi. Bu talebin, parti tüzüğüne aykırı olduğu gerekçesiyle Özel'in destekçileri tarafından yargıya taşındığı öğrenildi.
+
+Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği 'mutlak butlan' kararına ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu. Bu gelişmeler, parti içindeki ayrışmaların derinleştiğini ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını göstermektedir.
