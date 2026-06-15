@@ -2,7 +2,7 @@
 title: "Terörsüz Türkiye" Süreci TBMM Gündemine Geliyor
 date: "2026-06-05"
 category: "Siyasi"
-img: ""
+img: "https://i.turkiyegazetesi.com.tr/images/2026/6/15/kabinenin-gundeminde-onemli-basliklar-var-nato-ve-terorsuz-turkiye-1797083_20260615004605.jpg"
 ---
 
 Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" sürecine ilişkin önemli açıklamalarda bulundu. Bakan Gürlek, bu konudaki yasal düzenlemelerin yakın zamanda Türkiye Büyük Millet Meclisi (TBMM) gündemine geleceğini belirtti.
@@ -32,3 +32,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecini, ülkenin
 ## Güncelleme - 2026-06-13
 
 AK Parti Milletvekili Hüseyin Yayman, "Terörsüz Türkiye" sürecinin devlet ve millet politikası olduğunu belirterek, sürecin yavaş ancak emin adımlarla ilerlediğini ifade etti. MHP'li Feti Yıldırım da sürecin bölgede bağımsız yaşayabilmenin projesi olduğunu vurgulayarak desteklerini yineledi. Bu açıklamalar, TBMM'ye gelmesi beklenen yasal düzenlemeler öncesinde siyasi partilerin sürece yönelik yaklaşımlarını ve kararlılıklarını ortaya koymaktadır.
+
+## Güncelleme - 2026-06-15
+
+Kabine toplantısında, Türkiye'nin terörle mücadelesi ve 'Terörsüz Türkiye' süreci ele alındı. Toplantıda ayrıca NATO zirvesi öncesinde güvenlik konuları da gündeme geldi. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını göstermektedir.
