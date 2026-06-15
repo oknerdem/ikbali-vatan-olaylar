@@ -54,3 +54,7 @@ Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 10 Haziran 2026'da yaptığı a�
 ABD Başkanı Donald Trump, İran ile bir anlaşmanın yarın imzalanmasının planlandığını ve imzalanmasının hemen ardından Hürmüz Boğazı'nın herkese açılacağını belirtti. Bu açıklama, İran ile yürütülen diplomatik süreçte önemli bir gelişme olarak öne çıkıyor ve bölgedeki denizcilik güvenliği açısından kritik bir döneme işaret ediyor.
 
 Öte yandan, Trump'ın G-7 Zirvesi planı da ortaya çıktı. Bu zirve, İran'ın nükleer programı ve bölgesel istikrar gibi konuların ele alınacağı bir platform olabilir. Ancak, Hürmüz Boğazı'ndaki mayın operasyonları gibi gelişmeler, bölgedeki gerilimin devam ettiğini ve diplomatik çözümlerin önündeki engellerin sürdüğünü gösteriyor.
+
+## Güncelleme - 2026-06-15
+
+Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 15 Haziran 2026'da yaptığı açıklamalarda, ABD-İran krizi bağlamında Türkiye'nin bölgesel barış ve istikrarı koruma çabalarına değindi. Erdoğan, "Coğrafyamızla birlikte dünyayı uçurumun eşiğine getiren bu krizde tek vatandaşımızın dahi burnu kanamadı. Kardeşi kardeşe kırdırma planları amacına ulaşmadı." ifadeleriyle, Türkiye'nin diplomatik rolünün altını çizdi. Bu açıklamalar, ABD Başkanı Trump'ın İran ile olası bir anlaşmaya yönelik adımları ve bölgedeki gerilimin yönetimi açısından Türkiye'nin stratejik konumunu bir kez daha teyit etti.

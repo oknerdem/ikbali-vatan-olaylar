@@ -36,3 +36,7 @@ AK Parti Milletvekili Hüseyin Yayman, "Terörsüz Türkiye" sürecinin devlet v
 ## Güncelleme - 2026-06-15
 
 Kabine toplantısında, Türkiye'nin terörle mücadelesi ve 'Terörsüz Türkiye' süreci ele alındı. Toplantıda ayrıca NATO zirvesi öncesinde güvenlik konuları da gündeme geldi. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını göstermektedir.
+
+## Güncelleme - 2026-06-15 (2)
+
+AK Parti Milletvekili Belgin Uygur, "Terörsüz Türkiye" sürecinin tarihi bir kazanım olacağını belirtti. Bu süreç, ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu olarak da tanımlanıyor. Sürecin devlet ve millet politikası olduğunu vurgulayan Uygur, ilerlemenin yavaş ancak emin adımlarla devam ettiğini ifade etti. MHP'li Feti Yıldırım da süreci, bölgede bağımsız yaşayabilmenin projesi olarak nitelendirerek desteklerini yineledi. Kabine toplantısında da ele alınan bu konu, terörle mücadelenin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını göstermektedir.
