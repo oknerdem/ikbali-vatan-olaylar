@@ -140,3 +140,7 @@ Bu gelişmeler yaşanırken, TİP Genel Başkanı Erkan Baş, oy çalma yerine a
 CHP'de yaşanan kurultay iptali ve genel başkanlık krizi sürerken, Kemal Kılıçdaroğlu'nun genel başkanlığını destekleyen bir grup tarafından, mevcut genel başkan Özgür Özel'e yakınlığıyla bilinen 9 CHP milletvekilinin partiden kesin ihraçları istendi. Bu talebin, parti tüzüğüne aykırı olduğu gerekçesiyle Özel'in destekçileri tarafından yargıya taşındığı öğrenildi.
 
 Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği 'mutlak butlan' kararına ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu. Bu gelişmeler, parti içindeki ayrışmaların derinleştiğini ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını göstermektedir.
+
+## Güncelleme - 2026-06-16
+
+Bu gelişmeler, parti içindeki ayrışmaların derinleştiğini ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını göstermektedir. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep etmesi de bu durumu pekiştirmektedir.

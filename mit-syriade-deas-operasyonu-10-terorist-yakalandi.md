@@ -20,3 +20,9 @@ Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki istihbar
 Milli İstihbarat Teşkilatı (MİT) ve Emniyet Genel Müdürlüğü'nün ortaklaşa yürüttüğü operasyonda, Fransa'nın terör suçlamasıyla aradığı bir şüphelinin İstanbul'da yakalandığı bildirildi. Bu gelişme, daha önce Suriye'de DEAŞ'a yönelik düzenlenen operasyonda yakalanan 10 teröristle ilgili yürütülen soruşturmalar kapsamında değerlendiriliyor.
 
 Yakalanan şüphelinin, Türkiye'deki terör eylemleriyle bağlantısı olabileceği yönündeki iddialar üzerine detaylı incelemelerin sürdüğü öğrenildi. Operasyonun, MİT'in sınır ötesindeki istihbarat ağının etkinliğini ve uluslararası iş birliğinin önemini bir kez daha ortaya koyduğu belirtildi.
+
+## Güncelleme - 2026-06-16
+
+Terörle mücadele kapsamında, MLKP terör örgütüne yönelik finansman sağladığı iddia edilen şahıslara yönelik operasyonlar düzenlendi. İstanbul'da MASAK ve HTS kayıtları üzerinden yapılan incelemeler sonucunda, Marksist Teori Dergisi ile bağlantılı olduğu düşünülen bir şüpheli yakalandı. Bu operasyon, terör örgütlerinin finans kaynaklarını kurutmaya yönelik devam eden çalışmaların bir parçası olarak değerlendiriliyor.
+
+Bu gelişme, daha önce Suriye'de DEAŞ'a yönelik gerçekleştirilen ve 10 teröristin yakalandığı operasyonla birlikte, MİT'in terörle mücadeledeki çok yönlü etkinliğini ve farklı terör örgütlerine karşı sürdürdüğü kararlı duruşu gözler önüne seriyor. Uluslararası düzeyde de iş birliği ile yürütülen bu tür operasyonlar, terörün finansman ağlarının çökertilmesinde kritik rol oynuyor.
