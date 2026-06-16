@@ -28,3 +28,9 @@ DEM Parti Sözcüsü Ayşegül Doğan, Abdullah Öcalan'ın gazetecilerle görü
 TBMM Başkanı Numan Kurtulmuş, İmralı'dan gelen Abdullah Öcalan'ın gazetecilerle görüşme taleplerinin çözüm sürecinde 'ciddi gecikmelere' yol açtığını belirtti. Kurtulmuş, silah bırakma konusunda İmralı'nın iradesinin dışında bir durum olduğunu ifade ederek, terörle mücadelenin milli dayanışma ile mümkün olacağını ve yeni anayasa çalışmalarının toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
 
 AK Parti Grup Başkanı Abdullah Güler ise terörle mücadele kapsamında 'geçici ve müstakil kanun çalışmaları' olacağını duyurdu. Bu açıklamalar, terörle mücadele ve yeni anayasa gündemlerinin siyasi tartışmalarda öne çıktığını göstermektedir.
+
+## Güncelleme - 2026-06-16
+
+TBMM Başkanı Numan Kurtulmuş, DEM Parti'nin İmralı Heyeti ile bir görüşme gerçekleştirdi. Görüşmede, çözüm süreci ve yeni anayasa çalışmaları ele alındı. Kurtulmuş, terörle mücadelenin milli dayanışma ile mümkün olacağını ve yeni anayasanın toplumsal mutabakatla şekillenmesi gerektiğini yineledi.
+
+DEM Parti heyetinin Abdullah Öcalan'ın gazetecilerle görüşme talebi ve çözüm sürecinin takibi için bir kurul oluşturulması önerisi de gündeme geldi. Kurtulmuş, bu tür taleplerin çözüm sürecinde gecikmelere yol açtığını ve silah bırakma konusunda İmralı'nın iradesinin dışında bir durum olduğunu belirtti.

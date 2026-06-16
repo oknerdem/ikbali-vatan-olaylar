@@ -40,3 +40,9 @@ Kabine toplantısında, Türkiye'nin terörle mücadelesi ve 'Terörsüz Türkiy
 ## Güncelleme - 2026-06-15 (2)
 
 AK Parti Milletvekili Belgin Uygur, "Terörsüz Türkiye" sürecinin tarihi bir kazanım olacağını belirtti. Bu süreç, ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu olarak da tanımlanıyor. Sürecin devlet ve millet politikası olduğunu vurgulayan Uygur, ilerlemenin yavaş ancak emin adımlarla devam ettiğini ifade etti. MHP'li Feti Yıldırım da süreci, bölgede bağımsız yaşayabilmenin projesi olarak nitelendirerek desteklerini yineledi. Kabine toplantısında da ele alınan bu konu, terörle mücadelenin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını göstermektedir.
+
+## Güncelleme - 2026-06-16
+
+Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin TBMM gündemine geleceğini ve bu sürecin 12. Yargı Paketi'nden ayrı olarak yürütüldüğünü belirtti. Bu açıklama, sürecin hukuki ve siyasi boyutlarının ayrı ayrı ele alınacağını ortaya koymaktadır.
+
+İçişleri Bakan Yardımcısı Mehmet Akif Turan, "Terörsüz Türkiye yolunda geri dönüş yok" diyerek kararlılıklarını vurgularken, Cumhurbaşkanı Recep Tayyip Erdoğan da süreci "ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu" olarak tanımladı. Bu ifadeler, terörle mücadelenin devlet politikası olarak benimsendiğini ve kararlılıkla sürdürüldüğünü göstermektedir.
