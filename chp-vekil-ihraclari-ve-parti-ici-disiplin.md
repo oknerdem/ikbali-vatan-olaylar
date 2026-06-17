@@ -14,3 +14,7 @@ Edinilen bilgilere göre, disipline sevk edilen vekil sayısının arttığına 
 CHP'de, Bolu Belediye Başkanı Tanju Özcan ve eski milletvekili Serkan Tuncer'in kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içindeki disiplin süreçlerinin ve ihraç taleplerinin devam ettiğini göstermektedir.
 
 Bu durum, parti yönetiminin aldığı kararların ve bu kararların parti tabanındaki yansımalarının yanı sıra, parti içi muhalefet ve farklı görüşlerin bu süreçlerdeki rolünü yeniden gündeme getirmektedir.
+
+## Güncelleme - 2026-06-17
+
+Ankara'da 6 isim hakkında ihraç sürecinin başlatıldığına dair haberler yer alırken, bu durumun parti içindeki gerilimi artırdığı ifade ediliyor. Ayrıca, Bolu Belediye Başkanı Tanju Özcan ve eski milletvekili Serkan Tuncer'in de kesin ihraç talebiyle disipline sevk edildiği yönündeki bilgiler, bu sürecin devam ettiğini göstermektedir.
