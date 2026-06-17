@@ -52,3 +52,7 @@ Antalya Büyükşehir Belediyesi'ne yönelik de bir operasyon düzenlenerek 3 ki
 İstanbul Silivri Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Bora Balcıoğlu'nun da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların ardından, yerel yönetimlerdeki hukuki süreçler ve siyasi yansımaları açısından dikkat çekmektedir. Gözaltı kararlarının ardından belediye binasında ve ilgili adreslerde arama çalışmalarının başlatıldığı bildirildi.
+
+## Güncelleme - 2026-06-17
+
+İzmir'in Seferihisar Belediyesi'ne yönelik rüşvet ve yolsuzluk operasyonunda gözaltı sayısı hakkında farklı bilgiler yer alıyor. Bazı kaynaklar 6 kişi gözaltına alındığını belirtirken, diğerleri bu sayının 15'e kadar çıktığını ve Başkan Yardımcısı Gökhan Pehlivan'ın da bu kişiler arasında olduğunu bildiriyor. Operasyonun, belediyenin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere ilişkin yürütülen bir soruşturma sonucunda başlatıldığı ve 500 bin TL'lik rüşvet ödemesinin detaylarının incelendiği öne sürülüyor.

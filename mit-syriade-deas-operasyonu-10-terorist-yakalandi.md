@@ -26,3 +26,9 @@ Yakalanan şüphelinin, Türkiye'deki terör eylemleriyle bağlantısı olabilec
 Terörle mücadele kapsamında, MLKP terör örgütüne yönelik finansman sağladığı iddia edilen şahıslara yönelik operasyonlar düzenlendi. İstanbul'da MASAK ve HTS kayıtları üzerinden yapılan incelemeler sonucunda, Marksist Teori Dergisi ile bağlantılı olduğu düşünülen bir şüpheli yakalandı. Bu operasyon, terör örgütlerinin finans kaynaklarını kurutmaya yönelik devam eden çalışmaların bir parçası olarak değerlendiriliyor.
 
 Bu gelişme, daha önce Suriye'de DEAŞ'a yönelik gerçekleştirilen ve 10 teröristin yakalandığı operasyonla birlikte, MİT'in terörle mücadeledeki çok yönlü etkinliğini ve farklı terör örgütlerine karşı sürdürdüğü kararlı duruşu gözler önüne seriyor. Uluslararası düzeyde de iş birliği ile yürütülen bu tür operasyonlar, terörün finansman ağlarının çökertilmesinde kritik rol oynuyor.
+
+## Güncelleme - 2026-06-17
+
+Milli İstihbarat Teşkilatı (MİT), terör örgütü DEAŞ'a yönelik sınır ötesinde yeni bir operasyon gerçekleştirdi. Operasyonda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimlerin yakalandığı bildirildi. Bu operasyon, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğinde.
+
+Yakalanan şahısların sorgularının devam ettiği ve eylemlere ilişkin detayların incelendiği öğrenildi. MİT'in, terör örgütlerinin propaganda ve eylem planlaması gibi kritik faaliyetlerini engellemeye yönelik operasyonlarını sürdürdüğü vurgulandı.
