@@ -32,3 +32,7 @@ CHP'de olağanüstü kurultay için imza toplama süreci devam ederken, bazı mi
 CHP'de olağanüstü kurultay tartışmaları devam ederken, parti MYK'sı beşinci kez toplandı. Toplantıda, Ankara ve İzmir il başkanları başta olmak üzere bazı isimler hakkında ihraç taleplerinin gündeme geldiği belirtiliyor. Bu gelişmeler, parti içindeki gerilimin sürdüğünü ve kurultay sürecini etkileyebilecek yeni dinamikler yarattığını gösteriyor.
 
 Öte yandan, bazı kaynaklarda CHP'den ihraç edilenlerin Türkiye İşçi Partisi'ne (TİP) geçebileceğine dair iddialar da yer alıyor. Bu tür spekülasyonlar, parti içindeki ayrışmaların ve olası siyasi hamlelerin boyutunu gözler önüne seriyor.
+
+## Güncelleme - 2026-06-17 (2)
+
+CHP'de olağanüstü kurultay için yeterli imza toplandığına dair haberler gelmeye devam ediyor. 17 Haziran 2026 itibarıyla, çeşitli kaynaklara göre 800'ü aşkın delegenin imzası noter onaylı olarak CHP Genel Merkezi'ne teslim edildi. Bu imzaların, parti içinde olağanüstü kurultay talebinin somut bir göstergesi olduğu belirtiliyor. Parti kulislerinde, bu gelişmenin genel merkeze yönelik baskıyı artıracağı ve kurultay sürecinin hızlanabileceği yorumları yapılıyor. Teslim edilen imza sayısının kesinleşmesi ve parti yönetiminin bu talebe nasıl yanıt vereceği merakla bekleniyor.

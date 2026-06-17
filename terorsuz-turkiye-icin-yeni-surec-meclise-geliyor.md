@@ -46,3 +46,7 @@ AK Parti Milletvekili Belgin Uygur, "Terörsüz Türkiye" sürecinin tarihi bir 
 Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin TBMM gündemine geleceğini ve bu sürecin 12. Yargı Paketi'nden ayrı olarak yürütüldüğünü belirtti. Bu açıklama, sürecin hukuki ve siyasi boyutlarının ayrı ayrı ele alınacağını ortaya koymaktadır.
 
 İçişleri Bakan Yardımcısı Mehmet Akif Turan, "Terörsüz Türkiye yolunda geri dönüş yok" diyerek kararlılıklarını vurgularken, Cumhurbaşkanı Recep Tayyip Erdoğan da süreci "ülkenin yeni yüzyılına ilişkin stratejik bir devlet vizyonu" olarak tanımladı. Bu ifadeler, terörle mücadelenin devlet politikası olarak benimsendiğini ve kararlılıkla sürdürüldüğünü göstermektedir.
+
+## Güncelleme - 2026-06-17
+
+TBMM Başkanı Numan Kurtulmuş, DEM Parti'nin İmralı heyeti ile bir araya gelerek "Terörsüz Türkiye" süreci üzerine bir değerlendirme yaptı. Bu görüşme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin sürece bakış açısını yansıtması açısından önem taşıyor. Yeniçağ Gazetesi'nin haberine göre, AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu ise Öcalan'ın özgürlüğünün millete sorulması gerektiğini ifade etti. Bu gelişmeler, TBMM'ye gelmesi beklenen yasal düzenlemeler öncesinde sürece dair farklı siyasi görüşlerin ve hassasiyetlerin de gündeme geldiğini gösteriyor.
