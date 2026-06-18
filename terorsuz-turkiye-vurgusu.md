@@ -20,3 +20,9 @@ Bu tür açıklamalar, "Terörsüz Türkiye" temasının sadece etkinliklerle de
 Son günlerdeki gelişmeler, "Terörsüz Türkiye" söyleminin hem toplumsal etkinliklerde hem de üst düzey siyasi açıklamalarda güçlü bir şekilde sürdürüldüğünü göstermektedir. Şırnak'ta düzenlenen "Terörsüz Türkiye Yolunda Omuz Omuza" programı gibi yerel organizasyonlar, bu hedefe yönelik toplumsal sahiplenmeyi pekiştirirken, Cumhurbaşkanı Erdoğan'ın "Terörsüz Türkiye hedefinde önemli mesafe katettik, tempomuzu artıracağız" şeklindeki açıklaması, bu konudaki kararlılığı ve ilerlemeyi vurgulamaktadır.
 
 Bakan Yardımcısı Turan'ın "Terörsüz bir Türkiye için herkes sorumluluk almalı" çağrısı, mücadelenin sadece devletin değil, tüm toplumun ortak sorumluluğu olduğunu belirtmektedir. Bu söylem ve eylemler, terörle mücadelenin ülkenin refahı ve güvenliği için merkezi bir öncelik olduğunu bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-06-18
+
+Milli Güvenlik Kurulu (MGK) son toplantısında, Türkiye'nin terörle mücadelesi ve 'terörsüz Türkiye' hedeflerine yönelik çalışmalar değerlendirildi. Kurulun bildirisinde, bu konudaki kararlılığın teyit edildiği ve bölgesel güvenlik gelişmelerinin de ele alındığı belirtildi.
+
+Bu gelişme, "terörsüz Türkiye" temasının sadece toplumsal etkinliklerle sınırlı kalmayıp, aynı zamanda ulusal güvenlik stratejilerinin merkezinde yer aldığını ve üst düzey devlet kurumları tarafından da önceliklendirildiğini göstermektedir.
