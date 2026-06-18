@@ -22,3 +22,9 @@ CHP içindeki kurultay süreciyle ilgili imza toplama çalışmaları devam ediy
 ## Güncelleme - 2026-06-09
 
 Öte yandan, CHP Grup Toplantısı'nda yaşanan kriz ve Özgür Özel'in 'darbe ve kumpas' açıklamaları, parti içindeki gerilimin arttığına işaret etti. Muharrem İnce'nin de kurultay çağrısı yapmasıyla birlikte, parti içindeki farklı seslerin ve taleplerin daha belirgin hale geldiği gözlemleniyor.
+
+## Güncelleme - 2026-06-18
+
+CHP'de il başkanlarının görevden alınması ve parti içindeki ihraç tartışmaları, kurultay sürecini daha da karmaşık hale getirdi. Bu gelişmeler, parti yönetiminin olağanüstü kurultay için bir yol haritası belirleme çabaları ve disiplin süreçlerinin gündemde olduğunu gösteriyor. Özgür Özel'in liderliğindeki MYK'nın bu konularda adımlar atması bekleniyor.
+
+Öte yandan, bazı çevreler tarafından 'Bay Kemal' olarak anılan Kılıçdaroğlu'na yönelik samimiyet çağrıları ve Ekrem İmamoğlu ile Özgür Özel'in olası ihraçlarına dair spekülasyonlar, parti içindeki ayrışmaların derinleştiği yorumlarına neden oluyor. Bu durum, CHP'nin gelecekteki siyasi pozisyonunu ve iç dinamiklerini şekillendirecek önemli bir dönemeç olarak değerlendiriliyor.
