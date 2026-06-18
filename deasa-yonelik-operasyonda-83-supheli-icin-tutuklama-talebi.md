@@ -34,3 +34,7 @@ Bu geniş çaplı operasyonlar, terör örgütlerinin finansal ve faaliyet ağla
 Zonguldak merkezli olarak 3 ilde eş zamanlı düzenlenen terör örgütü operasyonunda gözaltına alınan 4 öğrenciden 3'ü tutuklandı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
 
 Operasyonların, terör örgütlerinin faaliyetlerini engellemeye yönelik sürdürülen çalışmalar kapsamında gerçekleştirildiği ve gözaltına alınan şüphelilerle ilgili adli süreçlerin devam ettiği öğrenildi.
+
+## Güncelleme - 2026-06-18
+
+Bu gelişmenin ardından, Türkiye genelinde 39 ilde eş zamanlı olarak düzenlenen operasyonlarda DEAŞ terör örgütüyle bağlantılı olduğu tespit edilen 361 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan operasyonun devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.

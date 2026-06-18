@@ -34,3 +34,7 @@ Erdoğan'ın bu açıklamaları, Irak ve Suriye'deki harekatların da güvenlik 
 ## Güncelleme - 2026-06-13
 
 Cumhurbaşkanı Erdoğan, Edirne'de yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını yineleyerek "Terörsüz Türkiye" hedefi doğrultusunda tempoyu artıracaklarını belirtti. Bu hedef, ülkenin güvenlik politikalarının yanı sıra yeni yüzyılın stratejik devlet vizyonunun bir parçası olarak tanımlandı. Irak ve Suriye'deki operasyonların da bu güvenlik paradigmasında yeni bir dönemi başlattığı ifade edildi. Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve güvenlik konularının devamı niteliğindedir.
+
+## Güncelleme - 2026-06-18
+
+Milli Güvenlik Kurulu (MGK) toplantısında, 'terörsüz Türkiye' hedefi ve bu doğrultuda atılacak adımlar ele alındı. Toplantı sonrası yayımlanan bildiride, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel güvenlik konularının da değerlendirildiği belirtildi. Bu kapsamda, Türkiye'nin terör örgütlerine karşı yürüttüğü operasyonların ve uluslararası iş birliklerinin önemi vurgulandı.
