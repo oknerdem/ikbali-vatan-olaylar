@@ -42,3 +42,7 @@ Bu gelişmenin ardından, Türkiye genelinde 39 ilde eş zamanlı olarak düzenl
 ## Güncelleme - 2026-06-19
 
 Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-06-19 (2)
+
+Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. İstanbul Havalimanı'nda hanutçuluk yapanlara yönelik operasyonda ise 12 şüpheli tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.

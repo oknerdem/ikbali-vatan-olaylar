@@ -36,3 +36,7 @@ Kilis Belediye Başkanı Hakan Bilecen, tutuklanan CHP İl Başkanı Mehmet Sapa
 CHP'li Akçakoca Belediye Başkanı Fikret Albayrak'ın 'icbar suretiyle irtikap' suçlamasıyla yürütülen soruşturma kapsamında İçişleri Bakanlığı tarafından görevden uzaklaştırıldığı duyuruldu. Bu karar, Albayrak'ın daha önce tutuklanmasıyla ilgili hukuki sürecin devam ettiğini ve görevine devam edemeyeceğini göstermektedir.
 
 Bu gelişme, yerel yönetimlerdeki hukuki süreçlerin takibi açısından önem taşımakta olup, kamuoyu yargı sürecinin sonuçlanmasını beklemektedir.
+
+## Güncelleme - 2026-06-19
+
+Bolu Belediye Başkanı Tanju Özcan, yolsuzluk iddiaları nedeniyle tutuklanmasının ardından CHP'den istifa etti. Bu gelişme, daha önce benzer suçlamalarla gündeme gelen ve tutuklanan Akçakoca Belediye Başkanı Fikret Albayrak'ın durumuyla paralellik göstermektedir. Özcan'ın istifası, parti içindeki görevden almalar ve hukuki süreçlerin siyasi yansımaları açısından dikkat çekmektedir.
