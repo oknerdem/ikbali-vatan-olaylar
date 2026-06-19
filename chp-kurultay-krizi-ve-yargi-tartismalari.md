@@ -28,3 +28,7 @@ CHP içindeki kurultay süreciyle ilgili imza toplama çalışmaları devam ediy
 CHP'de il başkanlarının görevden alınması ve parti içindeki ihraç tartışmaları, kurultay sürecini daha da karmaşık hale getirdi. Bu gelişmeler, parti yönetiminin olağanüstü kurultay için bir yol haritası belirleme çabaları ve disiplin süreçlerinin gündemde olduğunu gösteriyor. Özgür Özel'in liderliğindeki MYK'nın bu konularda adımlar atması bekleniyor.
 
 Öte yandan, bazı çevreler tarafından 'Bay Kemal' olarak anılan Kılıçdaroğlu'na yönelik samimiyet çağrıları ve Ekrem İmamoğlu ile Özgür Özel'in olası ihraçlarına dair spekülasyonlar, parti içindeki ayrışmaların derinleştiği yorumlarına neden oluyor. Bu durum, CHP'nin gelecekteki siyasi pozisyonunu ve iç dinamiklerini şekillendirecek önemli bir dönemeç olarak değerlendiriliyor.
+
+## Güncelleme - 2026-06-19
+
+CHP'deki kurultay süreciyle ilgili gelişmeler devam ederken, Adalar Belediye Başkanı'nın gözaltına alınması ve Kılıçdaroğlu'na yönelik mektup üzerinden gelen yanıtlar parti içindeki gerilimi artırdı. Bu gelişmeler, kurultay taleplerinin ve parti içindeki farklı seslerin daha da belirginleşmesine neden oldu. Cumhurbaşkanı Erdoğan, CHP'ye yönelik kurultay çağrılarına tepki göstererek, "Becerebilirseniz şaibesiz kurultay yapın" şeklinde konuştu.

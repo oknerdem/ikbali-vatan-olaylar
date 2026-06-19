@@ -16,3 +16,9 @@ Bu olay, TSK içindeki tarikat ve cemaat yapılanmalarının etkisinin arttığ�
 Son günlerde siyasi arenada yaşanan gelişmeler, daha önceki ihraç süreçleriyle paralellikler taşıyor. CHP Milletvekili Orhan Sarıbal'ın Halkevleri'nden ihraç edilmesi, parti içindeki dinamiklerde önemli bir gelişme olarak kayıtlara geçti. Bu durum, siyasi partilerin kendi iç işleyişleri ve üyelik standartları hakkında da tartışmaları beraberinde getirdi.
 
 Öte yandan, CHP Genel Başkanı Özgür Özel'in programını iptal ederek Türkiye Büyük Millet Meclisi'ne (TBMM) gitmesi, siyasi kulislerde dikkatle takip edildi. Bu beklenmedik gelişmenin ardında yatan nedenler ve olası siyasi etkileri henüz tam olarak netleşmese de, parti içindeki hareketliliğin arttığı gözlemleniyor.
+
+## Güncelleme - 2026-06-19
+
+Kara Harp Okulu'ndaki 'kılıçlı yemin' töreni sonrası ihraç edilen 3 komutanın görevlerine iade edilmesine karar verildi. Bu gelişme, daha önce ihraç edilen teğmenler ve komutanlar hakkındaki hukuki süreçlerde yeni bir dönüm noktası olarak değerlendiriliyor. Kararın, TSK bünyesindeki disiplin süreçleri ve geçmişteki ihraç kararlarının yeniden gözden geçirilmesi açısından önemli olduğu belirtiliyor.
+
+Bu iade kararları, 'kılıçlı yemin' olayıyla ilgili hukuki ve idari süreçlerin devam ettiğini gösteriyor. İhraç edilen diğer personel hakkında da benzer hukuki yolların izlenebileceği ve bu kararların emsal teşkil edebileceği yorumları yapılıyor.
