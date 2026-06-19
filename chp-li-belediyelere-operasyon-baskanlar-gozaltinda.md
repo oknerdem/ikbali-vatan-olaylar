@@ -56,3 +56,7 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 ## Güncelleme - 2026-06-17
 
 İzmir'in Seferihisar Belediyesi'ne yönelik rüşvet ve yolsuzluk operasyonunda gözaltı sayısı hakkında farklı bilgiler yer alıyor. Bazı kaynaklar 6 kişi gözaltına alındığını belirtirken, diğerleri bu sayının 15'e kadar çıktığını ve Başkan Yardımcısı Gökhan Pehlivan'ın da bu kişiler arasında olduğunu bildiriyor. Operasyonun, belediyenin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere ilişkin yürütülen bir soruşturma sonucunda başlatıldığı ve 500 bin TL'lik rüşvet ödemesinin detaylarının incelendiği öne sürülüyor.
+
+## Güncelleme - 2026-06-19
+
+Son günlerde CHP'li belediyelere yönelik operasyonlar hız kazandı. İstanbul Adalar Belediyesi'nde rüşvet ve yolsuzluk iddiaları üzerine başlatılan operasyonda Belediye Başkanı Ali Ercan Akpolat dahil 37 kişi gözaltına alındı. Benzer şekilde Mersin'in Silifke Belediyesi'ne de eş zamanlı bir operasyon düzenlendi ve Belediye Başkanı Mustafa Turgut ile birlikte çok sayıda kişi gözaltına alındı. Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin ve siyasi gerilimlerin arttığını göstermektedir. CHP yetkilileri, bu operasyonları siyasi olduğunu belirterek tepki göstermişlerdir.

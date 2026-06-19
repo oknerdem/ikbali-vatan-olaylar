@@ -38,3 +38,7 @@ Operasyonların, terör örgütlerinin faaliyetlerini engellemeye yönelik sürd
 ## Güncelleme - 2026-06-18
 
 Bu gelişmenin ardından, Türkiye genelinde 39 ilde eş zamanlı olarak düzenlenen operasyonlarda DEAŞ terör örgütüyle bağlantılı olduğu tespit edilen 361 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan operasyonun devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-06-19
+
+Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
