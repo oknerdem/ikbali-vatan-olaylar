@@ -144,3 +144,9 @@ CHP'de yaşanan kurultay iptali ve genel başkanlık krizi sürerken, Kemal Kıl
 ## Güncelleme - 2026-06-16
 
 Bu gelişmeler, parti içindeki ayrışmaların derinleştiğini ve hukuki süreçlerin parti içi iktidar mücadelesinde kullanılmaya başlandığını göstermektedir. Kemal Kılıçdaroğlu'nun avukatı aracılığıyla TBMM'ye başvurarak Özgür Özel'in CHP TBMM Grup Başkanlığı seçiminin iptalini talep etmesi de bu durumu pekiştirmektedir.
+
+## Güncelleme - 2026-06-19
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, CHP'deki kurultay sürecine ilişkin yaptığı açıklamalarda, partiyi şaibesiz kurultay yapmaya davet etti. Erdoğan, "Becerebilirseniz şaibesiz kurultay yapın" diyerek, CHP'nin iç işleyişindeki sorunlara dikkat çekti. Bu açıklamalar, mahkemenin verdiği "mutlak butlan" kararının ardından parti içinde yaşanan gerilimin siyasi arenadaki yansımalarını gözler önüne serdi.
+
+Öte yandan, Özgür Özel'in dokunulmazlığının kaldırılmasına yönelik tartışmaların da gündeme geldiği belirtiliyor. Bu durum, CHP'deki mevcut hukuki ve siyasi belirsizliğin daha da karmaşıklaştığını ve partinin geleceğine dair soru işaretlerini artırdığını göstermektedir.

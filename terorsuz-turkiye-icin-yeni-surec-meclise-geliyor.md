@@ -50,3 +50,9 @@ Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" süreciyle ilgili yasal düz
 ## Güncelleme - 2026-06-17
 
 TBMM Başkanı Numan Kurtulmuş, DEM Parti'nin İmralı heyeti ile bir araya gelerek "Terörsüz Türkiye" süreci üzerine bir değerlendirme yaptı. Bu görüşme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin sürece bakış açısını yansıtması açısından önem taşıyor. Yeniçağ Gazetesi'nin haberine göre, AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu ise Öcalan'ın özgürlüğünün millete sorulması gerektiğini ifade etti. Bu gelişmeler, TBMM'ye gelmesi beklenen yasal düzenlemeler öncesinde sürece dair farklı siyasi görüşlerin ve hassasiyetlerin de gündeme geldiğini gösteriyor.
+
+## Güncelleme - 2026-06-19
+
+Adalet Bakanı Akın Gürlek, Rize'de yaptığı açıklamalarda, "Terörsüz Türkiye" sürecinin bir kanunla taçlanacağını ve bu yasanın kısa süre içinde TBMM'ye geleceğini yineledi. Bakan Gürlek, bu sürecin 12. Yargı Paketi'nden ayrı olarak yürütüldüğünü belirtti.
+
+Öte yandan, DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde, sürecin hızlandırılması gerektiği ve "çerçeve yasa"nın 5 günde çıkarılabileceği ifade edildi. Bu gelişmeler, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.
