@@ -150,3 +150,7 @@ Bu gelişmeler, parti içindeki ayrışmaların derinleştiğini ve hukuki süre
 Cumhurbaşkanı Recep Tayyip Erdoğan, CHP'deki kurultay sürecine ilişkin yaptığı açıklamalarda, partiyi şaibesiz kurultay yapmaya davet etti. Erdoğan, "Becerebilirseniz şaibesiz kurultay yapın" diyerek, CHP'nin iç işleyişindeki sorunlara dikkat çekti. Bu açıklamalar, mahkemenin verdiği "mutlak butlan" kararının ardından parti içinde yaşanan gerilimin siyasi arenadaki yansımalarını gözler önüne serdi.
 
 Öte yandan, Özgür Özel'in dokunulmazlığının kaldırılmasına yönelik tartışmaların da gündeme geldiği belirtiliyor. Bu durum, CHP'deki mevcut hukuki ve siyasi belirsizliğin daha da karmaşıklaştığını ve partinin geleceğine dair soru işaretlerini artırdığını göstermektedir.
+
+## Güncelleme - 2026-06-20
+
+Kemal Kılıçdaroğlu, CHP'deki kurultay süreciyle ilgili yaptığı açıklamalarda, partinin 4 ila 5 ay içinde olağanüstü kurultaya gitmesi gerektiğini belirtti. Kılıçdaroğlu, "mutlak butlan" kararını siyasi bir dava olarak nitelendirmese de, parti içindeki mevcut durumu ve geleceğe yönelik adımları değerlendirme ihtiyacına işaret etti. Bu açıklama, parti içindeki liderlik mücadelesinin ve kurultay tartışmalarının devam ettiğini göstermektedir.
