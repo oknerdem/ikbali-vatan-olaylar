@@ -18,3 +18,9 @@ Siyasi partilerden de konuya ilişkin açıklamalar gelmeye devam ediyor. TBMM B
 ## Güncelleme - 2026-06-13
 
 Milliyetçi Hareket Partisi (MHP) Genel Başkan Yardımcısı Sadir Durmaz, "Terörsüz Türkiye" vizyonunun devlet aklının en somut tezahürü olduğunu belirtti. AK Parti Grup Başkanı Abdullah Güler ise terörle mücadele kapsamında geçici ve müstakil kanun çalışmaları olacağını ifade etti. Bu açıklamalar, hazırlanan çerçeve yasa taslağının siyasi partilerce de desteklendiğini ve terörle mücadelede yeni yasal düzenlemelerin gündemde olduğunu göstermektedir.
+
+## Güncelleme - 2026-06-20
+
+Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli'ye sunulan çerçeve yasa taslağı, terörle mücadelede yeni bir döneme işaret ediyor. Bu gelişme, siyasi partilerden gelen destek açıklamalarıyla da pekişiyor. TBMM Başkanvekili Celal Adan, 'Terörsüz Türkiye'nin bir devlet politikası olduğunu vurgularken, AK Parti Grup Başkanı Abdullah Güler, terörle mücadele kapsamında geçici ve müstakil kanun çalışmaları yapılacağını belirtti.
+
+Bu çerçevede, MHP'li Erdemir, liderlerinin gösterdiği istikamette 'Terörsüz Türkiye'yi inşa edeceklerini ifade etti. Ayrıca, Ulaştırma ve Altyapı Bakanı Abdulkadir Uraloğlu, Hakkari'de yaptığı açıklamada, 'Dağlarda artık barış ve huzurun hakim olduğunu' belirterek, 'Terörsüz Türkiye' mesajı verdi. TBMM Başkanı Numan Kurtulmuş ise 'Terörsüz Türkiye ile birlikte terörsüz bir bölgeyi hep birlikte kuracağız' diyerek uluslararası iş birliğine vurgu yaptı.
