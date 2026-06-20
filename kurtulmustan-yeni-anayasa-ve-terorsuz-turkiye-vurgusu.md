@@ -38,3 +38,7 @@ DEM Parti heyetinin Abdullah Öcalan'ın gazetecilerle görüşme talebi ve çö
 ## Güncelleme - 2026-06-20
 
 TBMM Başkanı Numan Kurtulmuş, 20 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve bu kapsamda yasal düzenlemelerin yapılacağını belirtti. Kurtulmuş, terörsüz bir Türkiye'nin ancak milli dayanışma ile mümkün olacağını vurgulayarak, bu hedefe ulaşmak için Meclis'in yol haritasının da hazırlandığını ifade etti. Yeni anayasa çalışmalarının toplumsal mutabakat zemininde ilerlemesi gerektiğinin altını çizen Kurtulmuş, bu sürecin Türkiye'nin demokratikleşmesine katkı sağlayacağını dile getirdi.
+
+## Güncelleme - 2026-06-20 (2)
+
+Yeni anayasa çalışmalarının toplumsal mutabakat zemininde ilerlemesi gerektiğinin altını çizen Kurtulmuş, bu sürecin Türkiye'nin demokratikleşmesine katkı sağlayacağını dile getirdi. Kurtulmuş, terörsüz bir Türkiye ile birlikte terörsüz bir bölgenin de kurulacağına inandığını sözlerine ekledi.
