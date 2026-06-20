@@ -10,3 +10,9 @@ TUSAŞ Genel Müdürü'nün açıklamalarına göre, Türkiye 6. nesil savaş u�
 Son 20 yıllık sürece vurgu yapan Demiroğlu, bu alandaki ilerlemenin altını çizdi. Türkiye'nin bu alanda kaydettiği ilerleme, uluslararası savunma sanayii çevrelerinde de dikkat çekiyor.
 
 Bu gelişmeler, Türkiye'nin kendi savunma ihtiyaçlarını karşılama ve küresel havacılık pazarında rekabet gücünü artırma potansiyelini gösteriyor.
+
+## Güncelleme - 2026-06-20
+
+Türkiye'nin savunma sanayii alanındaki ilerlemeleri devam ederken, Cumhurbaşkanı Erdoğan 20 Haziran 2026'da yaptığı açıklamada, Türkiye'nin ilk kez bir NATO ve Avrupa Birliği üyesi ülkeye savaş gemisi ihraç ettiğini duyurdu. Bu gelişme, Türkiye'nin savunma sanayii kapasitesinin ve küresel pazardaki rekabet gücünün bir göstergesi olarak kayıtlara geçti.
+
+Bu ihracat, Türkiye'nin kendi savunma projelerindeki başarısının yanı sıra, uluslararası alanda da güvenilir bir tedarikçi konumuna geldiğini teyit etmektedir. Bu tür adımlar, ülkenin teknolojik bağımsızlığını güçlendirme ve savunma sanayiinde stratejik bir oyuncu olma hedeflerine hizmet etmektedir.

@@ -34,3 +34,7 @@ AK Parti Grup Başkanı Abdullah Güler ise terörle mücadele kapsamında 'geç
 TBMM Başkanı Numan Kurtulmuş, DEM Parti'nin İmralı Heyeti ile bir görüşme gerçekleştirdi. Görüşmede, çözüm süreci ve yeni anayasa çalışmaları ele alındı. Kurtulmuş, terörle mücadelenin milli dayanışma ile mümkün olacağını ve yeni anayasanın toplumsal mutabakatla şekillenmesi gerektiğini yineledi.
 
 DEM Parti heyetinin Abdullah Öcalan'ın gazetecilerle görüşme talebi ve çözüm sürecinin takibi için bir kurul oluşturulması önerisi de gündeme geldi. Kurtulmuş, bu tür taleplerin çözüm sürecinde gecikmelere yol açtığını ve silah bırakma konusunda İmralı'nın iradesinin dışında bir durum olduğunu belirtti.
+
+## Güncelleme - 2026-06-20
+
+TBMM Başkanı Numan Kurtulmuş, 20 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve bu kapsamda yasal düzenlemelerin yapılacağını belirtti. Kurtulmuş, terörsüz bir Türkiye'nin ancak milli dayanışma ile mümkün olacağını vurgulayarak, bu hedefe ulaşmak için Meclis'in yol haritasının da hazırlandığını ifade etti. Yeni anayasa çalışmalarının toplumsal mutabakat zemininde ilerlemesi gerektiğinin altını çizen Kurtulmuş, bu sürecin Türkiye'nin demokratikleşmesine katkı sağlayacağını dile getirdi.
