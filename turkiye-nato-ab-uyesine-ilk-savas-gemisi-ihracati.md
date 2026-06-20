@@ -12,3 +12,7 @@ Bu ihracat, Türkiye'nin savunma sanayii ihracatında yeni bir dönemin başlang
 ## Güncelleme - 2026-06-20
 
 Cumhurbaşkanı Erdoğan'ın açıklamasına göre, Türkiye bu ihracatla savunma sanayiinde önemli bir kilometre taşını geride bırakmıştır. Bu gelişme, Türk savunma sanayiinin sadece yerli ihtiyaçları karşılamakla kalmayıp, aynı zamanda uluslararası pazarda da rekabetçi ve güvenilir bir oyuncu haline geldiğini göstermektedir. İhracatın, NATO ve AB üyesi bir ülkeye yapılmış olması, Türkiye'nin savunma teknolojileri alanındaki kabiliyetlerinin bu denli önemli aktörler tarafından da tanındığının bir göstergesidir.
+
+## Güncelleme - 2026-06-21
+
+Cumhurbaşkanı Erdoğan'ın açıklamalarına göre, Türkiye'nin tarihinde ilk kez bir NATO ve Avrupa Birliği üyesi ülkeye savaş gemisi ihraç ettiği belirtildi. Bu gelişme, Türk savunma sanayii için önemli bir kilometre taşı olarak kabul ediliyor ve ülkenin uluslararası savunma pazarındaki konumunu güçlendirme potansiyeli taşıyor. İhracatın, NATO ve AB gibi önemli askeri ve ekonomik blokların üyelerine yapılmış olması, Türkiye'nin savunma teknolojileri alanındaki kabiliyetlerinin bu denli önemli aktörler tarafından da tanındığının bir göstergesi olarak yorumlanıyor.
