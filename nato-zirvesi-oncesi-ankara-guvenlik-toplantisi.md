@@ -26,3 +26,7 @@ Bu kapsamda, Danimarka'daki havaalanı güvenliğiyle ilgili gelişmelerin de ya
 ABD Başkanı Trump'ın NATO Zirvesi kapsamında Ankara'ya yapacağı ziyaretin gündeminde İran, Gazze ve Suriye gibi konuların yer alacağı belirtildi. Bu ziyaret, zirve öncesi diplomatik temasların yoğunlaşacağına işaret ediyor.
 
 Cumhurbaşkanı Erdoğan'ın terör örgütleriyle mücadelede kardeş ülkelerin yanında olduklarını ifade etmesi, Türkiye'nin uluslararası güvenlik politikalarındaki kararlılığını bir kez daha ortaya koydu. Bu açıklama, NATO Zirvesi'nde terörle mücadele konusunun da önemli bir gündem maddesi olacağını gösteriyor.
+
+## Güncelleme - 2026-06-21
+
+NATO Zirvesi öncesinde Ankara'da, özellikle zirveye ev sahipliği yapacak bölgelerde, korsan otoparkçılık ve benzeri yasa dışı faaliyetlere yönelik önemli bir operasyon düzenlendi. Bu operasyon kapsamında 30 kişi gözaltına alındı. Gözaltına alınan kişilerin, araç parkı konusunda insanları mağdur ederek bahşiş adı altında para topladıkları iddia edildi. Bu tür operasyonlar, zirve süresince şehirdeki düzenin sağlanması ve olası güvenlik açıklarının kapatılması amacını taşıyor.

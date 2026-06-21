@@ -56,3 +56,7 @@ TBMM Başkanı Numan Kurtulmuş, DEM Parti'nin İmralı heyeti ile bir araya gel
 Adalet Bakanı Akın Gürlek, Rize'de yaptığı açıklamalarda, "Terörsüz Türkiye" sürecinin bir kanunla taçlanacağını ve bu yasanın kısa süre içinde TBMM'ye geleceğini yineledi. Bakan Gürlek, bu sürecin 12. Yargı Paketi'nden ayrı olarak yürütüldüğünü belirtti.
 
 Öte yandan, DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde, sürecin hızlandırılması gerektiği ve "çerçeve yasa"nın 5 günde çıkarılabileceği ifade edildi. Bu gelişmeler, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.
+
+## Güncelleme - 2026-06-21
+
+TBMM'de "Terörsüz Türkiye" süreciyle ilgili ortak bir raporun hazırlandığı ve bu raporun bölge denklemlerindeki değişimlerle birlikte süreci hızlandırdığı belirtiliyor. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını ve devlet politikası olarak ilerlediğini göstermektedir. Öte yandan, "Terörsüz Türkiye" söyleminin, madenciler, öğretmenler ve emekliler gibi farklı toplumsal kesimlerin gündemindeki ekonomik ve sosyal sorunların yanında yeterli etkiyi yaratmadığına dair eleştiriler de bulunmaktadır.
