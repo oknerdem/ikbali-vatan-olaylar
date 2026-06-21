@@ -30,3 +30,9 @@ Cumhurbaşkanı Erdoğan'ın terör örgütleriyle mücadelede kardeş ülkeleri
 ## Güncelleme - 2026-06-21
 
 NATO Zirvesi öncesinde Ankara'da, özellikle zirveye ev sahipliği yapacak bölgelerde, korsan otoparkçılık ve benzeri yasa dışı faaliyetlere yönelik önemli bir operasyon düzenlendi. Bu operasyon kapsamında 30 kişi gözaltına alındı. Gözaltına alınan kişilerin, araç parkı konusunda insanları mağdur ederek bahşiş adı altında para topladıkları iddia edildi. Bu tür operasyonlar, zirve süresince şehirdeki düzenin sağlanması ve olası güvenlik açıklarının kapatılması amacını taşıyor.
+
+## Güncelleme - 2026-06-21 (2)
+
+NATO Zirvesi'nin yaklaşmasıyla birlikte Ankara'da güvenlik önlemleri artırıldı. Zirveye ev sahipliği yapacak bölgelerde, özellikle korsan otoparkçılık gibi yasa dışı faaliyetlere yönelik operasyonlar düzenlendi. Bu kapsamda, insanları mağdur ederek bahşiş adı altında para topladığı iddia edilen şahıslara yönelik operasyonda 30 kişi gözaltına alındı. Bu tür operasyonlar, zirve süresince şehirdeki düzenin sağlanması ve olası güvenlik açıklarının kapatılması amacını taşıyor.
+
+Öte yandan, NATO zirvesi öncesinde Ankara'da protesto eylemleri düzenlenebileceğine dair kararlar alındığı da basına yansıdı. Bu durum, zirve süresince şehirdeki güvenlik ve kamu düzeninin sağlanması konusunda ek tedbirler alınmasını gerektirebilir.
