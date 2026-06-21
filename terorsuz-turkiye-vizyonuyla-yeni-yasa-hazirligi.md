@@ -28,3 +28,7 @@ Bu çerçevede, MHP'li Erdemir, liderlerinin gösterdiği istikamette 'Terörsü
 ## Güncelleme - 2026-06-21
 
 AK Parti Genel Başkan Yardımcısı Yayman, "Terörsüz Türkiye meselesinin bir devlet, millet politikası olduğunu" vurgulayarak, konunun önemine dikkat çekti. Ulaştırma ve Altyapı Bakanı Abdulkadir Uraloğlu ise Hakkari'de yaptığı açıklamada, terörün bittiği ve yatırımların arttığı bir bölge olarak Hakkari'nin Türkiye'nin gücüne güç kattığını belirtti. Bu gelişmeler, "Terörsüz Türkiye" hedefi doğrultusunda atılan adımların hem siyasi hem de bölgesel düzeyde somut etkiler yarattığını göstermektedir.
+
+## Güncelleme - 2026-06-21 (2)
+
+Milliyetçi Hareket Partisi (MHP) yetkilileri, 'Terörsüz Türkiye' vizyonunun devlet politikası olduğunu ve Türk milletinin değişmez bir ideali olduğunu vurguladı. MHP Genel Başkan Yardımcısı Mevlüt Karakaya, bu vizyonun 'Türkiye Yüzyılı' hedeflerinin merkezinde yer aldığını belirtti. TBMM Başkanvekili Celal Adan da, Türkiye'nin küresel çalkantılar içinde bir 'selamet adası' olmasını sağlayan temel unsurun 'Terörsüz Türkiye' vizyonu olduğunu ifade etti. Bu açıklamalar, hazırlanan yasa taslağının siyasi partiler tarafından da güçlü bir destek gördüğünü ve terörle mücadelede kararlılığın siyasi bir mutabakatla pekiştirildiğini göstermektedir.
