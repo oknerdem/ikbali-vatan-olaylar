@@ -48,3 +48,7 @@ ABD ve İran arasındaki gerilim, karşılıklı saldırı iddialarıyla tırman
 ## Güncelleme - 2026-06-11
 
 ABD ordusu, İran'a yönelik yeni saldırılar başlattığını duyurdu. Bu gelişmeler, iki ülke arasındaki gerilimin tırmandığına işaret ederken, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor. İran, İsrail'in Beyrut'a yönelik saldırısına sert tepki göstererek, bu eylemlerin bölgesel gerilimi artırdığını belirtti ve uluslararası toplumu İsrail'in saldırganlığını durdurmaya çağırdı. Bu durum, daha önce ABD ile İran arasındaki nükleer anlaşma ve Ukrayna'daki durumla ilgili yaşanan diplomatik hareketliliğin ortasında meydana geldi.
+
+## Güncelleme - 2026-06-22
+
+İran ve ABD arasındaki görüşmelerde yaşanan krizin perde arkası analiz edildi. Abdulkadir Ünal, bu görüşmelerdeki kritik noktaları ve olası sonuçları değerlendirdi. Bu analizler, iki ülke arasındaki nükleer anlaşma ve bölgesel güvenlik konularındaki mevcut durumu daha iyi anlamamıza yardımcı oluyor.

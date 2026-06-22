@@ -34,3 +34,9 @@ Silehi Aşireti Lideri Mehmet Atlı, 'Terörsüz Türkiye' söylemini destekleye
 ## Güncelleme - 2026-06-14
 
 Kabine toplantısında dış politika ve 'Terörsüz Türkiye' süreci gündeme alındı. Bu toplantı, terörle mücadeledeki güncel siyasi yaklaşımları ve uluslararası ilişkiler bağlamında konunun ele alınışını göstermesi açısından önem taşıyor. Ayrıca, MHP'li yetkililer 'Terörsüz Türkiye'nin bir kardeşlik projesi olduğunu vurgularken, Ahmet Türk de bu sürecin Kürtler tarafından bozulmayacağını belirterek farklı siyasi ve toplumsal kesimlerden destek mesajları geldiğini ortaya koydu.
+
+## Güncelleme - 2026-06-22
+
+AK Parti Sözcüsü Ömer Çelik, terörle mücadele kapsamında yürütülen çalışmaların yasal düzenleme aşamasına geldiğini belirtti. Çelik, "Terörsüz Türkiye sürecinde artık yeni bir aşamadayız" diyerek, bu sürecin silah bırakma ile ilgili yasa taslağının tartışılması aşamasında olduğunu ifade etti. Bu gelişme, Türkiye'nin terörle mücadeledeki kararlılığını ve hukuki altyapısını güçlendirme yönündeki adımlarının somutlaştığını gösteriyor.
+
+Bu çerçevede, HÜDA PAR'ın sunduğu kanun teklifi ve MHP'nin vurguladığı çerçeve yasa hazırlığı, konunun siyasi gündemdeki önemini artırırken, Cumhurbaşkanı Erdoğan'ın da MKYK toplantısında "Terörsüz Türkiye" mesajı vermesi, sürecin siyasi irade tarafından da desteklendiğini ortaya koyuyor. Farklı siyasi ve toplumsal kesimlerden de destek mesajları gelmesi, terörle mücadelede geniş bir mutabakatın oluştuğuna işaret ediyor.
