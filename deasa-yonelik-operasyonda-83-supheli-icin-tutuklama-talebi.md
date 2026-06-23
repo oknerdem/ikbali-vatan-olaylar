@@ -50,3 +50,7 @@ Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle m�
 ## Güncelleme - 2026-06-23
 
 Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-06-23 (2)
+
+Ankara merkezli olarak terör örgütlerine yönelik düzenlenen operasyonda 209 şüpheli gözaltına alındı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.

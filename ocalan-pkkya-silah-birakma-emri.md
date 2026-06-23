@@ -18,3 +18,9 @@ Abdullah Öcalan'ın PKK'ya silah bırakma çağrısının ardından, örgüt i�
 ## Güncelleme - 2026-06-05
 
 Abdullah Öcalan'ın PKK'ya yönelik silah bırakma çağrısının ardından, örgütün kendisini feshetme ve sınır dışına çekilme sürecine dair gelişmeler yaşanmaktadır. Bazı kaynaklar, silah bırakan örgüt mensuplarına Türkiye'ye dönmeleri için 2 aylık bir süre tanınacağını ve bu kapsamda özel bir yasal düzenleme hazırlığı yapıldığını iddia etmektedir. Bu düzenlemenin, örgütün fesih sürecini kolaylaştırması hedeflenmektedir.
+
+## Güncelleme - 2026-06-23
+
+AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakmasının önündeki en önemli engelin örgütün kendisi olduğunu belirterek, "Silah bırakma şartı terör örgütünün feshidir." dedi. Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin oluşturulması gerektiğini vurguladı. Bu açıklama, Öcalan'ın çağrısının ardından örgütün geleceğine dair siyasi ve yasal zeminin şekillendiği bir döneme işaret ediyor.
+
+Bu süreçte, "Terörsüz Türkiye" hedefi doğrultusunda takvimin daraldığı ve silahların bırakılmadan herhangi bir adımın atılmayacağı belirtiliyor. Örgütün feshi ve sınır dışına çekilmesi gibi adımların, olası yasal düzenlemelerle birlikte değerlendirildiği anlaşılıyor. Ancak bu düzenlemelerin detayları ve uygulanma biçimi hakkında henüz netlik kazanmış bir bilgi bulunmamaktadır.
