@@ -66,3 +66,7 @@ TBMM'de "Terörsüz Türkiye" süreciyle ilgili ortak bir raporun hazırlandığ
 AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin gündemde olduğunu belirtti. Çelik, bu yasal çerçevenin hayata geçebilmesi için terör örgütünün tamamen feshedilmesinin şart olduğunu vurguladı. Bu açıklama, TBMM'ye sunulması beklenen 'Terörsüz Türkiye' süreciyle ilgili yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor.
 
 Bu gelişme, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katmaktadır. Siyasi partilerden gelen farklı değerlendirmeler ve hassasiyetler göz önüne alındığında, bu yasal çerçevenin oluşturulması ve kabul edilmesi sürecinde siyasi tartışmaların yoğunlaşması beklenmektedir.
+
+## Güncelleme - 2026-06-24
+
+AK Parti İstanbul Milletvekili Şengül Karslı da Hollanda'da yaptığı açıklamalarda "Terörsüz Türkiye süreci kararlılıkla sürüyor" diyerek vizyonu uluslararası platformda anlattı. Bu gelişmeler, sürecin devlet politikası olarak ilerlediğini ve kararlılıkla sürdürüldüğünü göstermektedir.
