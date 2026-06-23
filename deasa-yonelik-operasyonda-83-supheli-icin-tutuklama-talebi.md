@@ -46,3 +46,7 @@ Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle m�
 ## Güncelleme - 2026-06-19 (2)
 
 Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. İstanbul Havalimanı'nda hanutçuluk yapanlara yönelik operasyonda ise 12 şüpheli tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-23
+
+Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
