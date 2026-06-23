@@ -14,3 +14,9 @@ Bu açıklama, Türkiye'nin gündemindeki hassas konulara dair siyasi partilerin
 İYİ Parti Sözcüsü Buğra Kavuncu, terör örgütü elebaşısı Abdullah Öcalan'ın onayına sunulacak bir yasa teklifinin söz konusu olmadığını ve böyle bir girişimin kendileri için yok hükmünde olacağını belirtti. Bu açıklama, partinin bu konudaki net duruşunu ve hassasiyetini ortaya koymaktadır.
 
 Bu gelişme, Türkiye'nin gündemindeki terörle mücadele ve siyasi partilerin bu konudaki tutumlarına dair önemli bir siyasi duruşu yansıtmaktadır. İYİ Parti'nin bu konudaki kararlı tavrı, kamuoyunda ve siyasi çevrelerde dikkatle takip edilmektedir.
+
+## Güncelleme - 2026-06-23
+
+AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye sürecinde artık yeni bir aşamadayız" açıklamasını yaptı. Bu açıklama, terörle mücadele ve olası yasal düzenlemeler konusunda yeni bir döneme girildiğine işaret ediyor. Ancak, bu sürecin detayları ve somut adımları henüz netlik kazanmış değil.
+
+Bu gelişmeler, İYİ Parti'nin daha önceki "Öcalan'ın onayına sunulacak yasa yok hükmündedir" şeklindeki net duruşuyla birlikte değerlendirildiğinde, siyasi partilerin terörle mücadele ve çözüm süreci gibi hassas konulardaki farklı yaklaşımlarını gözler önüne seriyor.

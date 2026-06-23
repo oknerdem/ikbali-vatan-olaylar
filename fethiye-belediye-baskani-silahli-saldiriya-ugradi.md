@@ -16,3 +16,7 @@ Fethiye Belediye Başkanı Alim Karaca'ya yönelik silahlı saldırının ardın
 ## Güncelleme - 2026-05-27 (2)
 
 Fethiye Belediye Başkanı Alim Karaca'ya yönelik silahlı saldırıya ilişkin yürütülen soruşturma kapsamında 6 kişi tutuklandı. Güvenlik güçleri, olayın ardından şüphelilerin yakalanması için geniş çaplı çalışma başlattı. Olayla ilgili güvenlik kamerası kayıtlarının da incelendiği bildirildi.
+
+## Güncelleme - 2026-06-23
+
+Fethiye Belediye Başkanı Alim Karaca'ya yönelik silahlı saldırının ardından başlatılan soruşturma kapsamında 6 kişi tutuklandı. Güvenlik güçleri, olayın ardından şüphelilerin yakalanması için geniş çaplı çalışma başlattı ve güvenlik kamerası kayıtlarını incelemeye aldı. Vali Akbıyık, saldırı sonrası Karaca'yı hastanede ziyaret ederek geçmiş olsun dileklerini iletti. Karaca'nın sağlık durumunun iyi olduğu bildirilmişti.

@@ -36,3 +36,11 @@ NATO Zirvesi öncesinde Ankara'da, özellikle zirveye ev sahipliği yapacak böl
 NATO Zirvesi'nin yaklaşmasıyla birlikte Ankara'da güvenlik önlemleri artırıldı. Zirveye ev sahipliği yapacak bölgelerde, özellikle korsan otoparkçılık gibi yasa dışı faaliyetlere yönelik operasyonlar düzenlendi. Bu kapsamda, insanları mağdur ederek bahşiş adı altında para topladığı iddia edilen şahıslara yönelik operasyonda 30 kişi gözaltına alındı. Bu tür operasyonlar, zirve süresince şehirdeki düzenin sağlanması ve olası güvenlik açıklarının kapatılması amacını taşıyor.
 
 Öte yandan, NATO zirvesi öncesinde Ankara'da protesto eylemleri düzenlenebileceğine dair kararlar alındığı da basına yansıdı. Bu durum, zirve süresince şehirdeki güvenlik ve kamu düzeninin sağlanması konusunda ek tedbirler alınmasını gerektirebilir.
+
+## Güncelleme - 2026-06-23
+
+Ankara merkezli olarak 81 ilde eş zamanlı düzenlenen terör örgütü operasyonunda 209 şüpheli gözaltına alındı. Operasyonların NATO Zirvesi öncesi güvenlik önlemlerinin bir parçası olduğu ve terörle mücadeledeki kararlılığı gösterdiği belirtildi. Gözaltına alınan şahısların çeşitli terör eylemlerine karıştığı iddia edildi.
+
+## Güncelleme - 2026-06-23 (2)
+
+Ankara merkezli olarak 81 ilde eş zamanlı düzenlenen ve NATO Zirvesi öncesi güvenlik önlemlerinin bir parçası olarak değerlendirilen terör örgütü operasyonunda 209 şüpheli gözaltına alındı. Gözaltına alınan şahısların çeşitli terör eylemlerine karıştığı iddia edildi. Bu operasyonlar, Türkiye'nin terörle mücadeledeki kararlılığını bir kez daha ortaya koydu.
