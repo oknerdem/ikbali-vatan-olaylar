@@ -44,3 +44,7 @@ Ankara merkezli olarak 81 ilde eş zamanlı düzenlenen terör örgütü operasy
 ## Güncelleme - 2026-06-23 (2)
 
 Ankara merkezli olarak 81 ilde eş zamanlı düzenlenen ve NATO Zirvesi öncesi güvenlik önlemlerinin bir parçası olarak değerlendirilen terör örgütü operasyonunda 209 şüpheli gözaltına alındı. Gözaltına alınan şahısların çeşitli terör eylemlerine karıştığı iddia edildi. Bu operasyonlar, Türkiye'nin terörle mücadeledeki kararlılığını bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-06-23 (3)
+
+NATO Zirvesi öncesinde Ankara ve İstanbul'da eş zamanlı olarak düzenlenen operasyonlarda toplam 233 kişi gözaltına alındı. Bu operasyonların, zirve güvenliğini sağlamak ve olası tehditleri bertaraf etmek amacıyla gerçekleştirildiği belirtildi. Gözaltına alınanlar arasında Ankara Üniversitesi'nde bir öğretim üyesinin de bulunduğu bildirildi. Operasyonların, Türkiye'nin terörle mücadeledeki kararlılığını pekiştirdiği ve uluslararası güvenlik işbirliğinin önemini vurguladığı ifade edildi.

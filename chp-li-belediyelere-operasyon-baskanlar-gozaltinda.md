@@ -66,3 +66,9 @@ Son günlerde CHP'li belediyelere yönelik operasyonlar hız kazandı. İstanbul
 İstanbul Adalar Belediyesi'ne yönelik rüşvet ve yolsuzluk operasyonunda gözaltına alınan 39 şüpheli, emniyetteki işlemlerinin ardından adliyeye sevk edildi. Soruşturma kapsamında Belediye Başkanı Ali Ercan Akpolat'ın da bulunduğu şüpheliler hakkında rüşvet, zimmet, irtikap ve ihaleye fesat karıştırma gibi suçlamalarla ilgili delil toplama ve ifade alma süreçlerinin sürdüğü öğrenildi.
 
 Benzer şekilde Mersin'in Silifke Belediyesi'ne de eş zamanlı bir operasyon düzenlendi. Bu operasyonda da Belediye Başkanı Mustafa Turgut ile birlikte çok sayıda kişi gözaltına alındı. Gözaltı gerekçeleri ve operasyonun detayları hakkında resmi açıklamalar bekleniyor.
+
+## Güncelleme - 2026-06-23
+
+Son iki yılda, çeşitli yolsuzluk ve rüşvet iddiaları gerekçe gösterilerek birçok CHP'li belediyeye yönelik operasyonlar düzenlendi. Bu operasyonlar kapsamında çok sayıda belediye başkanı ve belediye yetkilisi gözaltına alındı, bazıları ise tutuklandı veya görevden uzaklaştırıldı. İzmir Güzelbahçe, Buca, İstanbul Adalar, Mersin Silifke, Antalya Büyükşehir ve İstanbul Silivri belediyeleri bu operasyonların hedefi oldu.
+
+Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin yanı sıra siyasi tartışmaları da beraberinde getirdi. CHP yetkilileri, bu operasyonların siyasi olduğunu savunarak tepki gösterirken, soruşturmaların sonuçları ve kapsamı kamuoyu tarafından yakından takip edilmektedir.
