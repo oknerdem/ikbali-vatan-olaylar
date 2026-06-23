@@ -32,3 +32,7 @@ AK Parti Genel Başkan Yardımcısı Yayman, "Terörsüz Türkiye meselesinin bi
 ## Güncelleme - 2026-06-21 (2)
 
 Milliyetçi Hareket Partisi (MHP) yetkilileri, 'Terörsüz Türkiye' vizyonunun devlet politikası olduğunu ve Türk milletinin değişmez bir ideali olduğunu vurguladı. MHP Genel Başkan Yardımcısı Mevlüt Karakaya, bu vizyonun 'Türkiye Yüzyılı' hedeflerinin merkezinde yer aldığını belirtti. TBMM Başkanvekili Celal Adan da, Türkiye'nin küresel çalkantılar içinde bir 'selamet adası' olmasını sağlayan temel unsurun 'Terörsüz Türkiye' vizyonu olduğunu ifade etti. Bu açıklamalar, hazırlanan yasa taslağının siyasi partiler tarafından da güçlü bir destek gördüğünü ve terörle mücadelede kararlılığın siyasi bir mutabakatla pekiştirildiğini göstermektedir.
+
+## Güncelleme - 2026-06-23
+
+Öte yandan, Türkiye Gazetesi'nde yer alan bir habere göre, 'silah eldeyken kanun çıkmaz' ilkesi gereği, terör örgütü mensuplarının silah bırakması şartı öne sürülerek çerçeve yasa taslağının geciktiği belirtildi. Elips Haber'de yer alan bir başka haber de bu durumu teyit ederek, silah bırakma şartının taslakta öne çıkan bir unsur olduğunu aktardı. Bu durum, yasal düzenlemenin hayata geçirilmesinde önemli bir dönemeç olarak değerlendiriliyor.
