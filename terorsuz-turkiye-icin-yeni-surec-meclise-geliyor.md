@@ -60,3 +60,9 @@ Adalet Bakanı Akın Gürlek, Rize'de yaptığı açıklamalarda, "Terörsüz T�
 ## Güncelleme - 2026-06-21
 
 TBMM'de "Terörsüz Türkiye" süreciyle ilgili ortak bir raporun hazırlandığı ve bu raporun bölge denklemlerindeki değişimlerle birlikte süreci hızlandırdığı belirtiliyor. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak ele alındığını ve devlet politikası olarak ilerlediğini göstermektedir. Öte yandan, "Terörsüz Türkiye" söyleminin, madenciler, öğretmenler ve emekliler gibi farklı toplumsal kesimlerin gündemindeki ekonomik ve sosyal sorunların yanında yeterli etkiyi yaratmadığına dair eleştiriler de bulunmaktadır.
+
+## Güncelleme - 2026-06-23
+
+AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin gündemde olduğunu belirtti. Çelik, bu yasal çerçevenin hayata geçebilmesi için terör örgütünün tamamen feshedilmesinin şart olduğunu vurguladı. Bu açıklama, TBMM'ye sunulması beklenen 'Terörsüz Türkiye' süreciyle ilgili yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor.
+
+Bu gelişme, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katmaktadır. Siyasi partilerden gelen farklı değerlendirmeler ve hassasiyetler göz önüne alındığında, bu yasal çerçevenin oluşturulması ve kabul edilmesi sürecinde siyasi tartışmaların yoğunlaşması beklenmektedir.
