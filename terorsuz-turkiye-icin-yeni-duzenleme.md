@@ -40,3 +40,9 @@ Kabine toplantısında dış politika ve 'Terörsüz Türkiye' süreci gündeme 
 AK Parti Sözcüsü Ömer Çelik, terörle mücadele kapsamında yürütülen çalışmaların yasal düzenleme aşamasına geldiğini belirtti. Çelik, "Terörsüz Türkiye sürecinde artık yeni bir aşamadayız" diyerek, bu sürecin silah bırakma ile ilgili yasa taslağının tartışılması aşamasında olduğunu ifade etti. Bu gelişme, Türkiye'nin terörle mücadeledeki kararlılığını ve hukuki altyapısını güçlendirme yönündeki adımlarının somutlaştığını gösteriyor.
 
 Bu çerçevede, HÜDA PAR'ın sunduğu kanun teklifi ve MHP'nin vurguladığı çerçeve yasa hazırlığı, konunun siyasi gündemdeki önemini artırırken, Cumhurbaşkanı Erdoğan'ın da MKYK toplantısında "Terörsüz Türkiye" mesajı vermesi, sürecin siyasi irade tarafından da desteklendiğini ortaya koyuyor. Farklı siyasi ve toplumsal kesimlerden de destek mesajları gelmesi, terörle mücadelede geniş bir mutabakatın oluştuğuna işaret ediyor.
+
+## Güncelleme - 2026-06-24
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, terörün tasfiyesi amacıyla yeni bir yasal düzenlemenin Türkiye Büyük Millet Meclisi'ne geleceğini duyurdu. Bu açıklama, 'Terörsüz Türkiye' hedefi doğrultusunda atılacak adımların hukuki zemininin güçlendirileceği anlamına geliyor.
+
+Bu yeni düzenlemenin, terörle mücadeledeki mevcut yasal çerçeveyi daha etkin hale getirmesi ve terör örgütleriyle mücadelede yeni bir dönemi başlatması bekleniyor. Sürecin, daha önceki yasal hazırlıklar ve siyasi partilerin sunduğu tekliflerle paralel ilerlediği gözlemleniyor.

@@ -10,3 +10,9 @@ Antalya'nın Manavgat ilçesinde sosyal medya ve canlı yayınlar üzerinden ter
 Yapılan incelemeler sonucunda, gözaltına alınan şahıslardan ikisi hakkında tutuklama kararı verildi. Bu kişiler, terör örgütü propagandası yapmak ve halkı kin ve düşmanlığa tahrik etmek suçlamalarıyla adliyeye sevk edildi. Mahkeme, delilleri değerlendirerek şahısların tutuklanmasına hükmetti.
 
 Operasyonlar, dijital platformlarda yapılan terör propagandasıyla mücadele kapsamında değerlendirilirken, benzer eylemlere karşı emniyet güçlerinin kararlılığı bir kez daha gözler önüne serildi. Kamuoyunda geniş yankı bulan bu olay, sanal ortamdaki suçlarla mücadelede alınan tedbirlerin önemini vurguladı.
+
+## Güncelleme - 2026-06-24
+
+Antalya'nın Manavgat ilçesinde, sosyal medya ve canlı yayınlar üzerinden terör örgütü propagandası yaptığı belirlenen şahıslara yönelik operasyonlar devam ediyor. Jandarma ve polis ekiplerinin eş zamanlı olarak düzenlediği operasyonlarda gözaltına alınan şahıslardan ikisi, çıkarıldıkları mahkemece tutuklandı. Bu kişilerin, terör örgütü propagandası yapmak ve halkı kin ve düşmanlığa tahrik etmek suçlamalarıyla yargılanacağı belirtildi.
+
+Operasyonlar, dijital platformlarda yapılan terör propagandasıyla mücadele kapsamında değerlendirilirken, emniyet güçlerinin bu tür eylemlere karşı kararlılığı bir kez daha vurgulandı. Kamuoyunda geniş yankı bulan bu gelişme, sanal ortamdaki suçlarla mücadelede alınan tedbirlerin önemini bir kez daha ortaya koydu.
