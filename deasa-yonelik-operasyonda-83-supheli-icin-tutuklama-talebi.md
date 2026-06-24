@@ -54,3 +54,7 @@ Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle m�
 ## Güncelleme - 2026-06-23 (2)
 
 Ankara merkezli olarak terör örgütlerine yönelik düzenlenen operasyonda 209 şüpheli gözaltına alındı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-06-24
+
+Ankara ve Diyarbakır'da terör örgütlerine yönelik düzenlenen operasyonlarda 31 şüpheli yakalandı. Ayrıca, sosyal medyada terör örgütü propagandası yapanlara yönelik jandarma tarafından operasyonlar gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.

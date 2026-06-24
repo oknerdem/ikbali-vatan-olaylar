@@ -38,3 +38,7 @@ Cumhurbaşkanı Erdoğan, Edirne'de yaptığı açıklamalarda, Türkiye'nin ter
 ## Güncelleme - 2026-06-18
 
 Milli Güvenlik Kurulu (MGK) toplantısında, 'terörsüz Türkiye' hedefi ve bu doğrultuda atılacak adımlar ele alındı. Toplantı sonrası yayımlanan bildiride, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel güvenlik konularının da değerlendirildiği belirtildi. Bu kapsamda, Türkiye'nin terör örgütlerine karşı yürüttüğü operasyonların ve uluslararası iş birliklerinin önemi vurgulandı.
+
+## Güncelleme - 2026-06-24
+
+Cumhurbaşkanı Erdoğan, 24 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını vurgulayarak, 'terörsüz Türkiye' hedefi doğrultusunda ilerlemeye devam edeceklerini belirtti. Bu süreçte, ülkenin güvenlik politikalarının yanı sıra yeni yüzyılın stratejik devlet vizyonunun da önemli bir parçasını oluşturduğu ifade edildi. Irak ve Suriye'deki operasyonların, güvenlik paradigmasında yeni bir dönemi başlattığı ve terörle mücadelenin Türkiye'nin bölgesel ve küresel konumunu güçlendirdiği kaydedildi. Bu açıklamalar, daha önceki kabine toplantılarında ele alınan güvenlik ve terörle mücadele konularının devamı niteliğindedir.
