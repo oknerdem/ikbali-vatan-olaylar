@@ -52,3 +52,7 @@ NATO Zirvesi öncesinde Ankara ve İstanbul'da eş zamanlı olarak düzenlenen o
 ## Güncelleme - 2026-06-24
 
 NATO Zirvesi öncesinde Ankara'da gerçekleştirilen güvenlik toplantılarının ardından, "Operasyon Turkuaz" adı altında geniş çaplı bir operasyon düzenlendi. Bu operasyon kapsamında, Ankara merkezli olarak 81 ilde eş zamanlı yapılan çalışmalarda 209 şüpheli gözaltına alındı. Gözaltına alınan kişilerin çeşitli terör eylemlerine karıştığı iddia edildi. Benzer şekilde İstanbul'da da operasyonlar yapıldığı ve toplamda 233 kişinin gözaltına alındığı bildirildi. Gözaltına alınanlar arasında Ankara Üniversitesi'nde bir öğretim üyesinin de bulunduğu belirtildi. Bu operasyonların, zirve güvenliğini sağlamak ve olası tehditleri bertaraf etmek amacıyla yapıldığı vurgulandı.
+
+## Güncelleme - 2026-06-25
+
+CNN Türk ve Orta Doğu Haber'in 24 Haziran 2026 tarihli haberlerine göre, NATO zirvesi öncesi DEAŞ'a yönelik operasyonlar da gerçekleştirildi. Bu operasyonların da zirve güvenliği kapsamında değerlendirildiği ve Türkiye'nin terörle mücadeledeki kararlılığını gösterdiği belirtildi.

@@ -158,3 +158,7 @@ Kemal Kılıçdaroğlu, CHP'deki kurultay süreciyle ilgili yaptığı açıklam
 ## Güncelleme - 2026-06-20 (2)
 
 Öte yandan, Cumhurbaşkanı Recep Tayyip Erdoğan, CHP'deki kurultay sürecine ilişkin yaptığı açıklamalarda, partiyi şaibesiz kurultay yapmaya davet ederek, "Becerebilirseniz şaibesiz kurultay yapın" dedi. Bu açıklamalar, mahkemenin verdiği "mutlak butlan" kararının ardından parti içinde yaşanan gerilimin siyasi arenadaki yansımalarını gözler önüne serdi. Özgür Özel'in dokunulmazlığının kaldırılmasına yönelik tartışmaların da gündeme geldiği belirtiliyor.
+
+## Güncelleme - 2026-06-25
+
+Kemal Kılıçdaroğlu, CHP'nin PKK ile ilişkilendirilmesine yönelik çabalar olduğunu ve Selahattin Demirtaş'ın derhal tahliye edilmesi gerektiğini belirterek, bunun dışındaki tartışmaların suni gündem yaratma çabası olduğunu ifade etti. Bu açıklamalar, CHP'deki kurultay iptali ve genel başkanlık krizi bağlamında, partinin terörle ilişkilendirilmesi yönündeki siyasi tartışmalara yeni bir boyut kazandırdı.
