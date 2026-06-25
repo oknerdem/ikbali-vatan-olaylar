@@ -14,3 +14,9 @@ Bu rakam, yılbaşından itibaren güvenlik güçlerinin yürüttüğü operasyo
 Milli Savunma Bakanlığı'nın yılbaşından bu yana teslim olan terörist sayısını 99 olarak duyurmasının ardından, bu rakamın güncelliğini koruduğu ve terörle mücadeledeki kararlılığın bir göstergesi olduğu belirtildi.
 
 Güvenlik güçlerinin başarılı operasyonları ve uyguladığı etkili politikalar sayesinde terör örgütlerinden kopuşların devam ettiği ve teslim olan terörist sayısındaki artışın, örgütlerin zayıfladığına işaret ettiği değerlendirilmektedir.
+
+## Güncelleme - 2026-06-25
+
+Milli Savunma Bakanlığı (MSB) tarafından yapılan son açıklamalara göre, son bir haftada 7 PKK'lı terörist güvenlik güçlerine teslim oldu. Bu gelişme, yılbaşından bu yana teslim olan terörist sayısını güncelleyerek terörle mücadeledeki devamlılığı ve başarıyı teyit etmektedir.
+
+Ayrıca, aynı dönemde hudut birlikleri tarafından 434 kişinin yakalandığı bilgisi de paylaşıldı. Bu rakamlar, sınır güvenliğinin sağlanması ve terörün önlenmesi yönündeki operasyonel faaliyetlerin etkinliğini göstermektedir.
