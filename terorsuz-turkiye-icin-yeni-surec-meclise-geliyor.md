@@ -70,3 +70,7 @@ Bu gelişme, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM günd
 ## Güncelleme - 2026-06-24
 
 AK Parti İstanbul Milletvekili Şengül Karslı da Hollanda'da yaptığı açıklamalarda "Terörsüz Türkiye süreci kararlılıkla sürüyor" diyerek vizyonu uluslararası platformda anlattı. Bu gelişmeler, sürecin devlet politikası olarak ilerlediğini ve kararlılıkla sürdürüldüğünü göstermektedir.
+
+## Güncelleme - 2026-06-25
+
+Son gelişmelerde, AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin gündemde olduğunu ve bu çerçevenin hayata geçebilmesi için terör örgütünün tamamen feshedilmesinin şart olduğunu belirtti. Bu durum, TBMM'ye sunulacak yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor. Farklı siyasi partilerden gelen değerlendirmeler ve hassasiyetler göz önüne alındığında, bu yasal çerçevenin oluşturulması ve kabul edilmesi sürecinde siyasi tartışmaların yoğunlaşması beklenmektedir.

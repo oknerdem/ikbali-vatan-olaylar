@@ -72,3 +72,9 @@ Benzer şekilde Mersin'in Silifke Belediyesi'ne de eş zamanlı bir operasyon d�
 Son iki yılda, çeşitli yolsuzluk ve rüşvet iddiaları gerekçe gösterilerek birçok CHP'li belediyeye yönelik operasyonlar düzenlendi. Bu operasyonlar kapsamında çok sayıda belediye başkanı ve belediye yetkilisi gözaltına alındı, bazıları ise tutuklandı veya görevden uzaklaştırıldı. İzmir Güzelbahçe, Buca, İstanbul Adalar, Mersin Silifke, Antalya Büyükşehir ve İstanbul Silivri belediyeleri bu operasyonların hedefi oldu.
 
 Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin yanı sıra siyasi tartışmaları da beraberinde getirdi. CHP yetkilileri, bu operasyonların siyasi olduğunu savunarak tepki gösterirken, soruşturmaların sonuçları ve kapsamı kamuoyu tarafından yakından takip edilmektedir.
+
+## Güncelleme - 2026-06-25
+
+İzmir'de Balçova ve Seferihisar belediyelerine yönelik yolsuzluk ve rüşvet operasyonları kapsamında, Balçova Belediye Başkanı Onur Yiğit ve Seferihisar Belediye Başkanı İsmail Yetişkin'in de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Operasyonların, belediyelerin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere ilişkin yürütülen soruşturmalar sonucunda başlatıldığı belirtildi. Bazı kaynaklar gözaltı sayısının 24'e ulaştığını bildirirken, soruşturmanın detayları ve kapsamı hakkında resmi açıklamalar bekleniyor.
+
+Bu gelişmeler, daha önce CHP'li belediyelere yönelik düzenlenen diğer operasyonların ardından, yerel yönetimlerdeki hukuki süreçler ve siyasi tartışmalar açısından önem taşımaktadır. CHP yetkilileri, bu tür operasyonların siyasi olduğunu savunarak tepki göstermişlerdir.

@@ -56,3 +56,7 @@ NATO Zirvesi öncesinde Ankara'da gerçekleştirilen güvenlik toplantılarını
 ## Güncelleme - 2026-06-25
 
 CNN Türk ve Orta Doğu Haber'in 24 Haziran 2026 tarihli haberlerine göre, NATO zirvesi öncesi DEAŞ'a yönelik operasyonlar da gerçekleştirildi. Bu operasyonların da zirve güvenliği kapsamında değerlendirildiği ve Türkiye'nin terörle mücadeledeki kararlılığını gösterdiği belirtildi.
+
+## Güncelleme - 2026-06-25 (2)
+
+NATO zirvesi öncesinde, Türkiye'nin terörle mücadeledeki kararlılığını bir kez daha gösteren önemli operasyonlar gerçekleştirildi. Özellikle DEAŞ terör örgütüne yönelik düzenlenen operasyonlarda, zirve güvenliğinin sağlanması hedeflendi. Bu operasyonlar, Türkiye'nin uluslararası güvenlik işbirliği çerçevesindeki rolünü ve terörle mücadeledeki etkinliğini vurguladı.
