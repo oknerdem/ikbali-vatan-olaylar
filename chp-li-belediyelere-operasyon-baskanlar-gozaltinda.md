@@ -78,3 +78,9 @@ Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin yanı sıra siyasi tar
 İzmir'de Balçova ve Seferihisar belediyelerine yönelik yolsuzluk ve rüşvet operasyonları kapsamında, Balçova Belediye Başkanı Onur Yiğit ve Seferihisar Belediye Başkanı İsmail Yetişkin'in de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Operasyonların, belediyelerin imar ve ruhsatlandırma süreçlerindeki usulsüzlüklere ilişkin yürütülen soruşturmalar sonucunda başlatıldığı belirtildi. Bazı kaynaklar gözaltı sayısının 24'e ulaştığını bildirirken, soruşturmanın detayları ve kapsamı hakkında resmi açıklamalar bekleniyor.
 
 Bu gelişmeler, daha önce CHP'li belediyelere yönelik düzenlenen diğer operasyonların ardından, yerel yönetimlerdeki hukuki süreçler ve siyasi tartışmalar açısından önem taşımaktadır. CHP yetkilileri, bu tür operasyonların siyasi olduğunu savunarak tepki göstermişlerdir.
+
+## Güncelleme - 2026-06-26
+
+Son günlerde Türkiye genelinde birçok CHP'li belediyeye yönelik yolsuzluk ve rüşvet iddiaları üzerine operasyonlar düzenlenmeye devam etti. Bu kapsamda, İstanbul Şile Belediyesi'ne de bir operasyon yapıldı ve çok sayıda kişi gözaltına alındı. Operasyonların, belediyelerin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
+
+Öte yandan, NATO Zirvesi öncesinde Ankara merkezli olarak 8 ilde düzenlenen operasyonda ise 37 şüpheli gözaltına alındı. Bu operasyonlarda toplamda 103 kişinin tutuklandığı bildirildi. Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin yanı sıra siyasi tartışmaları da beraberinde getirerek, CHP yetkililerinden operasyonların siyasi olduğu yönünde tepkilere neden oldu.

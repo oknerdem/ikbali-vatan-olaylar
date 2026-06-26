@@ -58,3 +58,9 @@ Ankara merkezli olarak terör örgütlerine yönelik düzenlenen operasyonda 209
 ## Güncelleme - 2026-06-24
 
 Ankara ve Diyarbakır'da terör örgütlerine yönelik düzenlenen operasyonlarda 31 şüpheli yakalandı. Ayrıca, sosyal medyada terör örgütü propagandası yapanlara yönelik jandarma tarafından operasyonlar gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-26
+
+Türkiye genelinde 81 ilde eş zamanlı olarak düzenlenen ve sokak çeteleri ile organize suç örgütlerini hedef alan operasyonlarda toplam 841 şüpheli hakkında işlem yapıldı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
+
+Operasyonlarda yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele ve organize suçlarla mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Bu geniş çaplı operasyonlar, suç örgütlerinin faaliyetlerini engellemeye yönelik önemli bir adım olarak kayıtlara geçti.
