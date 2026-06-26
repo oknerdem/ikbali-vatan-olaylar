@@ -16,3 +16,7 @@ Operasyonlar, dijital platformlarda yapılan terör propagandasıyla mücadele k
 Antalya'nın Manavgat ilçesinde, sosyal medya ve canlı yayınlar üzerinden terör örgütü propagandası yaptığı belirlenen şahıslara yönelik operasyonlar devam ediyor. Jandarma ve polis ekiplerinin eş zamanlı olarak düzenlediği operasyonlarda gözaltına alınan şahıslardan ikisi, çıkarıldıkları mahkemece tutuklandı. Bu kişilerin, terör örgütü propagandası yapmak ve halkı kin ve düşmanlığa tahrik etmek suçlamalarıyla yargılanacağı belirtildi.
 
 Operasyonlar, dijital platformlarda yapılan terör propagandasıyla mücadele kapsamında değerlendirilirken, emniyet güçlerinin bu tür eylemlere karşı kararlılığı bir kez daha vurgulandı. Kamuoyunda geniş yankı bulan bu gelişme, sanal ortamdaki suçlarla mücadelede alınan tedbirlerin önemini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-06-27
+
+Ankara merkezli olarak yürütülen ve terör örgütlerine yönelik olduğu belirtilen geniş çaplı operasyonlarda, gözaltına alınan 212 şüpheliden 178'i tutuklandı. Bu operasyonlar, terörle mücadele kapsamında dijital platformlardaki faaliyetleri de kapsayarak sürdürülüyor. Tutuklanan şahısların terör örgütü propagandası yapmak ve benzeri suçlamalarla yargılanacağı bildirildi.
