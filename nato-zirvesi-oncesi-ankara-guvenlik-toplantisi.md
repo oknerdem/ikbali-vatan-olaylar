@@ -64,3 +64,9 @@ NATO zirvesi öncesinde, Türkiye'nin terörle mücadeledeki kararlılığını 
 ## Güncelleme - 2026-06-25 (3)
 
 CNN Türk ve Orta Doğu Haber'in 24 Haziran 2026 tarihli haberlerine göre, bu operasyonların yanı sıra DEAŞ terör örgütüne yönelik operasyonlar da gerçekleştirildi. Bu operasyonların da zirve güvenliği kapsamında değerlendirildiği ve Türkiye'nin terörle mücadeledeki kararlılığını gösterdiği belirtildi.
+
+## Güncelleme - 2026-06-26
+
+NATO Zirvesi öncesinde Ankara'da terör örgütlerine yönelik düzenlenen eş zamanlı operasyonlarda 103 kişi tutuklandı. Haberhergün ve Manşet Haber'in 26 Haziran 2026 tarihli haberlerine göre, bu operasyonların zirve güvenliğini sağlamak amacıyla gerçekleştirildiği belirtildi.
+
+Bundle'ın 25 Haziran 2026 tarihli haberinde ise, aynı kapsamda terör suçlamasıyla 57 kişinin tutuklandığı bilgisi yer aldı. Bu tutuklamalar, Türkiye'nin uluslararası güvenlik işbirliği çerçevesindeki terörle mücadeledeki kararlılığını ve etkinliğini bir kez daha ortaya koydu.
