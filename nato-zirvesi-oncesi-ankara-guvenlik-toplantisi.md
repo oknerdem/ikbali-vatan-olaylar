@@ -70,3 +70,9 @@ CNN Türk ve Orta Doğu Haber'in 24 Haziran 2026 tarihli haberlerine göre, bu o
 NATO Zirvesi öncesinde Ankara'da terör örgütlerine yönelik düzenlenen eş zamanlı operasyonlarda 103 kişi tutuklandı. Haberhergün ve Manşet Haber'in 26 Haziran 2026 tarihli haberlerine göre, bu operasyonların zirve güvenliğini sağlamak amacıyla gerçekleştirildiği belirtildi.
 
 Bundle'ın 25 Haziran 2026 tarihli haberinde ise, aynı kapsamda terör suçlamasıyla 57 kişinin tutuklandığı bilgisi yer aldı. Bu tutuklamalar, Türkiye'nin uluslararası güvenlik işbirliği çerçevesindeki terörle mücadeledeki kararlılığını ve etkinliğini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-06-26 (2)
+
+NATO Zirvesi öncesinde Türkiye genelinde terör örgütlerine yönelik düzenlenen operasyonlarda tutuklama sayıları artmaya devam etti. Haberhergün ve Manşet Haber'in 26 Haziran 2026 tarihli haberlerine göre, operasyonlar kapsamında 103 kişi tutuklandı. Bundle'ın 25 Haziran 2026 tarihli haberinde ise, aynı kapsamda terör suçlamasıyla 57 kişinin tutuklandığı bilgisi yer almıştı. Bu tutuklamalar, zirve güvenliğini sağlamak ve Türkiye'nin terörle mücadeledeki kararlılığını uluslararası alanda göstermek amacıyla gerçekleştirildi.
+
+Ayrıca, İlke Haber Ajansı'nın 26 Haziran 2026 tarihli haberine göre, NATO Zirvesi öncesinde Ankara'da NATO'nun küresel sömürü düzeninin askerî ayağı olduğunu savunan protesto eylemleri düzenlendi. Medyascope'un aynı tarihli haberinde ise, NATO Zirvesi öncesi gözaltına alınan 49 kişinin daha adliyeye sevk edildiği belirtildi.

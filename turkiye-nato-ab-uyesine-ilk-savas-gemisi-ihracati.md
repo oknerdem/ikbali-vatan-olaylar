@@ -16,3 +16,7 @@ Cumhurbaşkanı Erdoğan'ın açıklamasına göre, Türkiye bu ihracatla savunm
 ## Güncelleme - 2026-06-21
 
 Cumhurbaşkanı Erdoğan'ın açıklamalarına göre, Türkiye'nin tarihinde ilk kez bir NATO ve Avrupa Birliği üyesi ülkeye savaş gemisi ihraç ettiği belirtildi. Bu gelişme, Türk savunma sanayii için önemli bir kilometre taşı olarak kabul ediliyor ve ülkenin uluslararası savunma pazarındaki konumunu güçlendirme potansiyeli taşıyor. İhracatın, NATO ve AB gibi önemli askeri ve ekonomik blokların üyelerine yapılmış olması, Türkiye'nin savunma teknolojileri alanındaki kabiliyetlerinin bu denli önemli aktörler tarafından da tanındığının bir göstergesi olarak yorumlanıyor.
+
+## Güncelleme - 2026-06-26
+
+Cumhurbaşkanı Erdoğan, Türkiye'nin savunma sanayii ihracatında yeni bir dönemin başladığını belirterek, "Bir yılda yaptığımız ihracatı artık bir haftada yapıyoruz" açıklamasında bulundu. Bu gelişme, Türk savunma sanayiinin küresel pazardaki rekabet gücünü ve hızını gösteriyor. Ayrıca, ihracatçıların desteklenmesi amacıyla reeskont kredi limitinin 5 milyar liraya çıkarıldığı müjdelendi. Bu adımlar, Türkiye'nin savunma sanayii ve genel ihracat hedeflerine ulaşmasında önemli bir rol oynaması bekleniyor.
