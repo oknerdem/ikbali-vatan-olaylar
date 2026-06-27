@@ -84,3 +84,9 @@ Ayrıca, İlke Haber Ajansı'nın 26 Haziran 2026 tarihli haberine göre, NATO Z
 ## Güncelleme - 2026-06-27 (2)
 
 26-27 Haziran 2026 tarihlerinde, NATO Zirvesi öncesinde Ankara'da terör örgütlerine yönelik düzenlenen eş zamanlı operasyonlarda gözaltına alınan şahıslardan toplam 178 kişinin tutuklandığı bildirildi. Bu tutuklamalar, zirve güvenliğini sağlamak ve Türkiye'nin terörle mücadeledeki kararlılığını uluslararası alanda göstermek amacıyla gerçekleştirildi. Farklı tarihlerde yapılan operasyonlarda gözaltına alınanların sayısının ve tutuklananların toplam sayısının güncellenmesiyle bu rakama ulaşılmıştır.
+
+## Güncelleme - 2026-06-27 (3)
+
+NATO Zirvesi öncesinde Ankara'da düzenlenen protesto eylemleri kapsamında, bazı sendika ve meslek örgütleri tarafından "NATO Zirvesi'ne Hayır" yürüyüşleri gerçekleştirildi. Bu eylemlerde "Türkiye NATO'dan çıksın" gibi sloganlar atıldığı ve zirvenin iptal edilmesi yönünde çağrılar yapıldığı basına yansıdı.
+
+Bu protestolar, zirve süresince şehirdeki kamu düzeninin sağlanması ve olası gerilimlerin yönetilmesi açısından ek güvenlik önlemlerinin alınmasına neden olabilir. Ayrıca, bu tür eylemlerin Türkiye'nin uluslararası güvenlik politikaları ve NATO ile ilişkileri üzerindeki etkileri de tartışılmaktadır.
