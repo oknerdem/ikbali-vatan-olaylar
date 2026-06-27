@@ -46,3 +46,9 @@ Bu çerçevede, HÜDA PAR'ın sunduğu kanun teklifi ve MHP'nin vurguladığı �
 Cumhurbaşkanı Recep Tayyip Erdoğan, terörün tasfiyesi amacıyla yeni bir yasal düzenlemenin Türkiye Büyük Millet Meclisi'ne geleceğini duyurdu. Bu açıklama, 'Terörsüz Türkiye' hedefi doğrultusunda atılacak adımların hukuki zemininin güçlendirileceği anlamına geliyor.
 
 Bu yeni düzenlemenin, terörle mücadeledeki mevcut yasal çerçeveyi daha etkin hale getirmesi ve terör örgütleriyle mücadelede yeni bir dönemi başlatması bekleniyor. Sürecin, daha önceki yasal hazırlıklar ve siyasi partilerin sunduğu tekliflerle paralel ilerlediği gözlemleniyor.
+
+## Güncelleme - 2026-06-27
+
+TBMM Başkanı Numan Kurtulmuş, terörle mücadelenin büyük ölçüde tamamlandığını belirterek, 'Terör işinin yüzde 80-90'ı bitti. Yakın zamanda artık terör Türkiye’nin tamamıyla gündeminden kalkacaktır.' açıklamasında bulundu. Kurtulmuş, çıkarılacak yeni yasanın geçici, müstakil ve asla af niteliğinde olmayacağını vurguladı.
+
+Cumhurbaşkanı Erdoğan da terörsüz Türkiye gibi milli meselelerde uzlaşıya hazır olduklarını ifade ederek, bu sürecin başarıya ulaşmasının ülke için istendiğini belirtti. Bu açıklamalar, terörle mücadelede gelinen son noktayı ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşıyor.
