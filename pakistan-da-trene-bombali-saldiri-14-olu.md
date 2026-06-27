@@ -12,3 +12,7 @@ Demir yolu hattında meydana gelen patlamanın ardından olay yerine çok sayıd
 ## Güncelleme - 2026-05-24
 
 Pakistan'ın Belucistan eyaletinde askeri personeli taşıyan bir trene bombalı saldırı düzenlendiği bildirildi. Saldırıda hayatını kaybedenlerin sayısının en az 24'e yükseldiği belirtildi. Türkiye, saldırıyı en güçlü şekilde kınayarak Pakistan halkına ve hükümetine başsağlığı dileklerini iletti.
+
+## Güncelleme - 2026-06-28
+
+Pakistan'ın Karaçi kentinde, yarı askeri güvenlik güçlerine ait bir karargaha yönelik bombalı saldırı düzenlendi. Saldırıda 3 kişinin hayatını kaybettiği bildirildi. Olayla ilgili soruşturma başlatıldı.

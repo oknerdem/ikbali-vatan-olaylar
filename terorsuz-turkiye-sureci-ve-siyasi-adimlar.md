@@ -28,3 +28,9 @@ MHP Genel Başkanı Devlet Bahçeli'ye yapılan sürpriz bir ziyaretin, 'Terörs
 ## Güncelleme - 2026-06-05
 
 MHP kulislerinde, 'Terörsüz Türkiye' sürecinin ikinci plana itildiği ve tüm enerjinin CHP'ye yönelik tartışmalara harcandığı yönünde değerlendirmeler yer almaktadır. Bu durum, sürecin ilerleyişi üzerindeki siyasi etkileri ve önceliklendirmelerdeki değişimleri gözler önüne sermektedir.
+
+## Güncelleme - 2026-06-28
+
+TBMM Başkanı Numan Kurtulmuş ve AK Parti Sözcüsü Ömer Çelik, Türkiye'nin terörle mücadelesinde yeni bir aşamaya gelindiğini belirterek, terörün ülke gündeminden kalkacağı yönündeki beklentilerini dile getirdiler. Bu açıklamalar, 'Terörsüz Türkiye' söyleminin siyasi gündemdeki yerini koruduğunu ve bu hedefe yönelik kararlılığın sürdüğünü göstermektedir.
+
+DEM Parti'den de benzer bir vurgu gelirken, Hatimoğulları'nın 'Terörsüz Türkiye' çıkışı, konunun farklı siyasi aktörler tarafından da gündemde tutulduğunu ortaya koydu. Bu gelişmeler, terörle mücadele ve toplumsal huzurun sağlanması konularının siyasi tartışmaların merkezinde yer almaya devam ettiğini teyit etmektedir.
