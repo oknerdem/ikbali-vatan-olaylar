@@ -48,3 +48,9 @@ Yeni anayasa çalışmalarının toplumsal mutabakat zemininde ilerlemesi gerekt
 TBMM Başkanı Numan Kurtulmuş, 27 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin büyük ölçüde tamamlandığını ve Türkiye'nin yakın zamanda terörsüz bir döneme gireceğini belirtti. Kurtulmuş, terör işinin yüzde 80-90'ının bittiğini ifade ederek, çıkarılacak yasal düzenlemelerin af niteliğinde olmayacağını vurguladı. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini sözlerine ekledi.
 
 Bu açıklamalar, terörle mücadeledeki gelinen noktaya ve yeni anayasa sürecine dair önemli bir siyasi değerlendirme olarak kayıtlara geçmiştir. Kurtulmuş'un ifadeleri, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri yansıtmaktadır.
+
+## Güncelleme - 2026-06-27 (2)
+
+TBMM Başkanı Numan Kurtulmuş, 27 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve işin büyük bölümünün tamamlandığını belirtti. Kurtulmuş, terörsüz bir Türkiye'nin yakın zamanda gerçekleşeceğini ifade ederek, bu süreçte çıkarılacak yasal düzenlemelerin kesinlikle af niteliği taşımayacağını vurguladı. Yeni anayasa çalışmalarının ise toplumsal mutabakat zemininde ilerlemesi gerektiğine dikkat çekti.
+
+Bu açıklamalar, terörle mücadeledeki mevcut durumu ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşımaktadır. Kurtulmuş'un ifadeleri, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri yansıtmaktadır.

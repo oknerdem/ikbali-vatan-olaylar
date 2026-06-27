@@ -46,3 +46,7 @@ Cumhurbaşkanı Erdoğan, 24 Haziran 2026'da yaptığı açıklamalarda, Türkiy
 ## Güncelleme - 2026-06-27
 
 Cumhurbaşkanı Erdoğan, 27 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını bir kez daha vurgulayarak, "Terörü ülkemiz için sona erdiriyoruz" ifadesini kullandı. Erdoğan, terörsüz bir Türkiye'nin başarıya ulaşmasının kendileri için değil, ülkenin geleceği ve aydınlık yarınları için istendiğini belirtti. Bu süreçte milli meselelerde uzlaşıya hazır olunduğunun altını çizdi. Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve güvenlik konularının devamı niteliğindedir.
+
+## Güncelleme - 2026-06-27 (2)
+
+Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve güvenlik konularının devamı niteliğindedir. Erdoğan'ın bu ifadeleri, Türkiye'nin terörle mücadelesini sadece bir güvenlik meselesi olmaktan çıkarıp, daha geniş bir devlet stratejisi ve gelecek vizyonu çerçevesinde ele aldığını göstermektedir.
