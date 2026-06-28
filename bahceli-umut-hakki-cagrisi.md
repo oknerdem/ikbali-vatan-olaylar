@@ -18,3 +18,7 @@ MHP Genel Başkanı Devlet Bahçeli, 23 Mayıs 2026'da yaptığı açıklamalard
 ## Güncelleme - 2026-06-04
 
 DEM Parti, 12. Yargı Paketi'ne yönelik eleştirilerinde, iktidara 'umut hakkı'ndan başlamaları gerektiğini belirterek, bu konunun çözüm süreci ve yargı reformları bağlamında ele alınması gerektiğini ifade etti. Bu talep, daha önce MHP lideri Devlet Bahçeli'nin gündeme getirdiği 'umut hakkı' ve terörle mücadele konularındaki tartışmaların devamı niteliğindedir.
+
+## Güncelleme - 2026-06-29
+
+DEM Parti, 28 Haziran 2026'da Bağcılar ve Diyarbakır'da Abdullah Öcalan'a yönelik 'umut hakkı' ve özgürlük taleplerini dile getiren mitingler düzenledi. Parti sözcüsü Tuncer Bakırhan, bu hakkın tanınmadan barışın mümkün olmayacağını belirtti. Bu gelişmeler, daha önce MHP lideri Devlet Bahçeli'nin gündeme getirdiği ve siyasi tartışmalara yol açan 'umut hakkı' konusunun yeniden gündeme gelmesine neden oldu. İYİ Parti'den gelen tepkilerde ise 'terörist sevicilere geçit yok' ifadeleri kullanıldı.
