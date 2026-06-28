@@ -14,3 +14,7 @@ Bu gelişmeler, ülkenin güvenlik ve siyasi gündeminde önemli bir yer tutarke
 ## Güncelleme - 2026-06-27
 
 TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" süreci kapsamında hazırlanan yasa taslağının kesinlikle bir af niteliği taşımayacağını vurguladı. Kurtulmuş, bu düzenlemenin bir infaz düzenlemesi olacağını belirterek, terörle mücadele kapsamında atılan adımların kararlılıkla sürdürüleceğini ifade etti. Bu açıklamalar, taslağın içeriği ve amacı hakkındaki tartışmalara yeni bir boyut kazandırdı.
+
+## Güncelleme - 2026-06-28
+
+AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' sürecinde yeni bir aşamaya gelindiğini belirterek, yasal zeminin bir an önce Meclis'e gelmesi gerektiğini ifade etti. Çeşitli kaynaklara göre, hazırlanan yasa teklifinin kapsamı netleşirken, ağır suçların ve kısmi ya da genel af uygulamasının bu düzenlemenin dışında tutulacağı belirtiliyor. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor.
