@@ -18,3 +18,7 @@ TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" süreci kapsamında hazı
 ## Güncelleme - 2026-06-28
 
 AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' sürecinde yeni bir aşamaya gelindiğini belirterek, yasal zeminin bir an önce Meclis'e gelmesi gerektiğini ifade etti. Çeşitli kaynaklara göre, hazırlanan yasa teklifinin kapsamı netleşirken, ağır suçların ve kısmi ya da genel af uygulamasının bu düzenlemenin dışında tutulacağı belirtiliyor. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor.
+
+## Güncelleme - 2026-06-28 (2)
+
+Çeşitli kaynaklara göre, hazırlanan çerçeve yasa teklifinin kapsamı netleşmiş olup, ağır suçlar ve kısmi ya da genel af uygulamasının bu düzenlemenin dışında tutulacağı belirtiliyor. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor. Ayrıca, yasa teklifinin Abdullah Öcalan ve terör örgütü yöneticilerini kapsamayacağı da vurgulanıyor.
