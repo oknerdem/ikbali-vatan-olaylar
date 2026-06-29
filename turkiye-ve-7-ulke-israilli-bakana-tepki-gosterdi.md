@@ -14,3 +14,9 @@ Uluslararası sularda gerçekleşen olaylara dair yapılan açıklamada, Türkiy
 İsrail Ulusal Güvenlik Bakanı Itamar Ben-Gvir'in, Gazze'ye insani yardım taşıyan ve 'Küresel Sumud Filosu' olarak adlandırılan gemilere yönelik sert açıklamaları ve müdahaleleri, Türkiye'nin de aralarında bulunduğu 8 ülke tarafından ortaklaşa kınandı. Bu ülkeler, Ben-Gvir'in eylemlerini ve söylemlerini uluslararası hukuka aykırı ve provokatif olarak nitelendirdi.
 
 Yapılan ortak açıklamada, bu ülkeler İsrail'in uluslararası sulardaki eylemlerini ve Filistinlilere yönelik muamelelerini eleştirerek, bölgedeki gerilimi tırmandıracak adımlardan kaçınılması çağrısında bulundu. Tepkinin, İsrailli bakanın eylemlerinin uluslararası alanda yarattığı rahatsızlığın bir göstergesi olduğu belirtildi.
+
+## Güncelleme - 2026-06-30
+
+Türkiye ve Suriye, İsrail'in Suriye topraklarına yönelik saldırılarını kınadı. AK Parti Sözcüsü Ömer Çelik, İsrail'in Suriye'nin egemenliğini hedef alan eylemlerini en güçlü şekilde kınadıklarını belirtti. Bu gelişme, daha önce Türkiye'nin de aralarında bulunduğu 8 ülkenin İsrailli bir bakana tepki gösterdiği olayın ardından bölgedeki gerilimin devam ettiğini gösteriyor.
+
+Suriye'nin de Türkiye ile birlikte İsrail'e tepki göstermesi, bölgesel iş birliği açısından dikkat çekici bir gelişme olarak değerlendiriliyor. Bu ortak tepki, İsrail'in bölgedeki askeri operasyonlarına karşı uluslararası alanda artan bir muhalefetin varlığına işaret ediyor.
