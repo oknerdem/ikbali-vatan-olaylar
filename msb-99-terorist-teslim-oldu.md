@@ -20,3 +20,7 @@ Güvenlik güçlerinin başarılı operasyonları ve uyguladığı etkili politi
 Milli Savunma Bakanlığı (MSB) tarafından yapılan son açıklamalara göre, son bir haftada 7 PKK'lı terörist güvenlik güçlerine teslim oldu. Bu gelişme, yılbaşından bu yana teslim olan terörist sayısını güncelleyerek terörle mücadeledeki devamlılığı ve başarıyı teyit etmektedir.
 
 Ayrıca, aynı dönemde hudut birlikleri tarafından 434 kişinin yakalandığı bilgisi de paylaşıldı. Bu rakamlar, sınır güvenliğinin sağlanması ve terörün önlenmesi yönündeki operasyonel faaliyetlerin etkinliğini göstermektedir.
+
+## Güncelleme - 2026-06-29
+
+Son olarak, 29 Haziran 2026 tarihinde İçişleri Bakanlığı tarafından yapılan açıklamada, ikna çalışmaları sonucunda 2026 yılı başından bu yana teslim olan terörist sayısının 134'e ulaştığı duyuruldu. Bu gelişme, terörle mücadelede elde edilen başarıların ve sürdürülen kararlılığın bir göstergesi olarak kayıtlara geçmiştir.

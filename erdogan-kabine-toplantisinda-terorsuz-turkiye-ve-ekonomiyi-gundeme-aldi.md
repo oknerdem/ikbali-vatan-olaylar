@@ -50,3 +50,7 @@ Cumhurbaşkanı Erdoğan, 27 Haziran 2026'da yaptığı açıklamalarda, Türkiy
 ## Güncelleme - 2026-06-27 (2)
 
 Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve güvenlik konularının devamı niteliğindedir. Erdoğan'ın bu ifadeleri, Türkiye'nin terörle mücadelesini sadece bir güvenlik meselesi olmaktan çıkarıp, daha geniş bir devlet stratejisi ve gelecek vizyonu çerçevesinde ele aldığını göstermektedir.
+
+## Güncelleme - 2026-06-29
+
+Cumhurbaşkanı Erdoğan, 29 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını yineleyerek, 'terörsüz Türkiye' hedefinin yeni yüzyılın stratejik devlet vizyonunun bir parçası olduğunu belirtti. Bu süreçte, Irak ve Suriye'deki operasyonların güvenlik paradigmasında yeni bir dönemi başlattığı ve terörle mücadelenin Türkiye'nin bölgesel ve küresel konumunu güçlendirdiği ifade edildi. Ayrıca, Gazze'deki gelişmeler ve Türk Dünyası ile ilişkiler de gündeme gelen diğer önemli başlıklar arasındaydı.
