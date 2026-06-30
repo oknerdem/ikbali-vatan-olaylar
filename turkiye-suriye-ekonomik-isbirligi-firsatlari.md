@@ -22,3 +22,9 @@ Bu zirve, iki ülke arasındaki ekonomik bağların güçlendirilmesi ve bölges
 Ticaret Bakanı Ömer Bolat, Türkiye'deki bankaların Suriye'de şube açabileceği yönünde bir gelişme olduğunu duyurdu. Bu adım, iki ülke arasındaki ekonomik entegrasyonu derinleştirebilecek önemli bir potansiyel taşıyor. Türkiye ve Suriye arasındaki ticari ilişkilerin geliştirilmesi ve sınır ötesi finansal hizmetlerin yaygınlaşması, bölgedeki ekonomik hareketliliği artırabilir.
 
 Bu gelişme, daha önce Gaziantep'te düzenlenen Halep'teki Kent Ekonomileri Zirvesi'nde ele alınan ticaret ve yatırım fırsatlarının somutlaşması olarak değerlendiriliyor. Türk bankalarının Suriye'de faaliyet göstermesi, hem Türk hem de Suriyeli firmalar için finansmana erişimi kolaylaştırarak karşılıklı ticareti ve yatırımları teşvik edebilir.
+
+## Güncelleme - 2026-07-01
+
+Türkiye ve Suriye arasında afet ve acil durum yönetimi alanında bir iş birliği protokolü imzalandı. Bu protokol, iki ülke arasındaki iş birliğinin kapsamını genişleterek, bölgesel dayanışma ve koordinasyonun güçlendirilmesine katkı sağlayacak.
+
+Bu gelişme, daha önce gündeme gelen ekonomik iş birliği ve ticaret fırsatlarının yanı sıra, insani yardım ve afet müdahalesi gibi alanlarda da ortak adımlar atılacağının bir göstergesi olarak öne çıkıyor. İki ülke arasındaki ilişkilerin bu şekilde çeşitlenmesi, bölgesel istikrar ve kalkınma açısından olumlu bir gelişme olarak değerlendiriliyor.

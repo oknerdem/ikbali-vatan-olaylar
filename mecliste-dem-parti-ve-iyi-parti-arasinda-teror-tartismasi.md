@@ -12,3 +12,7 @@ Meclis'teki bu gerginlik, ülkenin güvenlik gündemindeki hassasiyetleri bir ke
 ## Güncelleme - 2026-06-24
 
 TBMM'de İYİ Parti ve DEM Parti milletvekilleri arasında, 'terörsüz Türkiye' söylemi üzerinden başlayan tartışma devam etti. İki parti grubundan yapılan açıklamalarda, terörle mücadele ve bu konunun siyasi söylemlerdeki yeri bir kez daha gündeme geldi. Bu gerilim, ülkenin güvenlik gündemindeki hassasiyetleri ve partilerin bu konudaki farklı yaklaşımlarını gözler önüne serdi.
+
+## Güncelleme - 2026-07-01
+
+TBMM Genel Kurulu'nda devam eden oturumlarda, DEM Parti ve İYİ Parti milletvekilleri arasında 'terör' konusuna ilişkin karşılıklı suçlamalar ve sert eleştiriler yaşandı. Özellikle 'terörle mücadele' yöntemleri ve bu konunun siyasi istismar edildiği iddiaları üzerine yoğunlaşan tartışmalar, Meclis'teki tansiyonu artırdı. İki parti grubundan yapılan açıklamalarda, birbirlerinin söylemlerini eleştirerek kendi pozisyonlarını savundular. Bu durum, Türkiye'nin güvenlik ve terörle mücadele gündemindeki siyasi kutuplaşmayı bir kez daha gözler önüne serdi.

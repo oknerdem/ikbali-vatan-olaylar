@@ -64,3 +64,9 @@ Ankara ve Diyarbakır'da terör örgütlerine yönelik düzenlenen operasyonlard
 Türkiye genelinde 81 ilde eş zamanlı olarak düzenlenen ve sokak çeteleri ile organize suç örgütlerini hedef alan operasyonlarda toplam 841 şüpheli hakkında işlem yapıldı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
 
 Operasyonlarda yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele ve organize suçlarla mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Bu geniş çaplı operasyonlar, suç örgütlerinin faaliyetlerini engellemeye yönelik önemli bir adım olarak kayıtlara geçti.
+
+## Güncelleme - 2026-07-01
+
+Düzce ve Bursa'da terör örgütü IŞİD'e yönelik düzenlenen operasyonda 13 kişi gözaltına alındı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
+
+Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı. Bu gelişmeler, terörle mücadele ve organize suçlarla mücadele kapsamında yürütülen operasyonların kararlılıkla devam ettiğini göstermektedir.
