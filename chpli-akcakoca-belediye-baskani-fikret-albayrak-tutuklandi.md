@@ -40,3 +40,9 @@ Bu gelişme, yerel yönetimlerdeki hukuki süreçlerin takibi açısından önem
 ## Güncelleme - 2026-06-19
 
 Bolu Belediye Başkanı Tanju Özcan, yolsuzluk iddiaları nedeniyle tutuklanmasının ardından CHP'den istifa etti. Bu gelişme, daha önce benzer suçlamalarla gündeme gelen ve tutuklanan Akçakoca Belediye Başkanı Fikret Albayrak'ın durumuyla paralellik göstermektedir. Özcan'ın istifası, parti içindeki görevden almalar ve hukuki süreçlerin siyasi yansımaları açısından dikkat çekmektedir.
+
+## Güncelleme - 2026-06-30
+
+Son günlerde CHP'li belediyelere yönelik artan operasyonlar kapsamında, Seferihisar Belediye Başkanı İsmail Yetişkin'in de aralarında bulunduğu 12 kişi, rüşvet soruşturması kapsamında tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasıyla birlikte, partiye yönelik yargısal süreçlerin devam ettiğini göstermektedir.
+
+Bu tutuklamalar, siyasi gündemde geniş yankı bulurken, CHP'den yapılan açıklamalarda bu durumun siyasi baskı olduğu iddiaları dile getirilmiştir. Yargı süreçlerinin nasıl ilerleyeceği ve partinin bu duruma vereceği tepkiler merak konusu olmaya devam etmektedir.
