@@ -20,3 +20,7 @@ Anlaşmanın detayları henüz tam olarak açıklanmamış olsa da, sağlık ala
 19 Haziran 2026 tarihinde Türkiye ve Suriye arasında sağlık ve tıp bilimleri alanında bir iş birliği mutabakat zaptı imzalandı. Bu gelişme, daha önce yükseköğretim alanında atılan adımların ardından iki ülke arasındaki iş birliğinin sağlık sektörüne de genişlediğini göstermektedir.
 
 Anlaşma, iki ülke arasındaki mevcut ilişkilerin çeşitli alanlarda ilerlediğine işaret ederken, sağlık alanındaki bu somut adımın detayları kamuoyu ile paylaşılmaya devam edecektir.
+
+## Güncelleme - 2026-06-30
+
+Türkiye ve Suriye arasında 30 Haziran 2026 tarihinde güvenlik ve afet yönetimi alanlarında önemli iş birlikleri imzalandı. Şam'da gerçekleşen zirvede, İçişleri Bakanı Ali Yerlikaya ve Suriyeli mevkidaşı Muhammed Halid Rahmun, geri dönüş, sınır güvenliği ve teknik iş birliği konularını ele aldı. Bu görüşmelerin ardından, iki ülke arasında afet ve acil durum yönetimi alanında bir iş birliği protokolü imzalandı. Bu protokol, daha önce yükseköğretim ve sağlık alanlarında atılan adımların ardından, iki ülke arasındaki ilişkilerin güvenlik ve insani yardım gibi kritik alanlarda da ilerlediğini göstermektedir.
