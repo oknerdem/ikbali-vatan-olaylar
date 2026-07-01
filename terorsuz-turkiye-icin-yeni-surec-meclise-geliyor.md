@@ -80,3 +80,7 @@ Son gelişmelerde, AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah 
 Ana muhalefet partisi lideri Kemal Kılıçdaroğlu, "Terörsüz Türkiye" süreciyle ilgili yaptığı açıklamada, tüm siyasi partileri sorumluluk almaya davet etti. Kılıçdaroğlu, bu sürecin milli bir mesele olduğunu ve partilerin uzlaşarak ilerlemesi gerektiğini belirtti. Bu çağrı, TBMM'ye sunulması beklenen yasal düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve iş birliği beklentisini artırdı.
 
 Cumhurbaşkanı Recep Tayyip Erdoğan da benzer bir yaklaşımla, "Terörsüz Türkiye" süreci başta olmak üzere milli meselelerde uzlaşmaya hazır olduklarını ifade etti. Bu açıklamalar, sürecin devlet politikası olarak benimsendiğini ve farklı siyasi görüşlerin bir araya gelerek çözüm üretmesi gerektiği mesajını verdi.
+
+## Güncelleme - 2026-07-01
+
+İYİ Parti lideri Müsavat Dervişoğlu, AK Parti Sözcüsü Ömer Çelik'in terör örgütünün silah bırakması için yasal çerçeve oluşturulması yönündeki açıklamalarına sert tepki gösterdi. Dervişoğlu, "TBMM terör örgütü için yasa çıkarmaz" diyerek, böyle bir adımın söz konusu olamayacağını belirtti. Öte yandan, Zafer Partisi Genel Başkanı Ümit Özdağ ise "Terörsüz Türkiye" söylemini, "Büyük Orta Doğu Projesi'nin bir parçası" olarak nitelendirdi. Bu açıklamalar, TBMM'ye sunulması beklenen yasal düzenlemeler öncesinde siyasi partiler arasındaki görüş ayrılıklarını ve hassasiyetleri daha da belirgin hale getirdi.
