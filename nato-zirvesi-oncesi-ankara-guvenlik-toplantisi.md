@@ -90,3 +90,7 @@ Ayrıca, İlke Haber Ajansı'nın 26 Haziran 2026 tarihli haberine göre, NATO Z
 NATO Zirvesi öncesinde Ankara'da düzenlenen protesto eylemleri kapsamında, bazı sendika ve meslek örgütleri tarafından "NATO Zirvesi'ne Hayır" yürüyüşleri gerçekleştirildi. Bu eylemlerde "Türkiye NATO'dan çıksın" gibi sloganlar atıldığı ve zirvenin iptal edilmesi yönünde çağrılar yapıldığı basına yansıdı.
 
 Bu protestolar, zirve süresince şehirdeki kamu düzeninin sağlanması ve olası gerilimlerin yönetilmesi açısından ek güvenlik önlemlerinin alınmasına neden olabilir. Ayrıca, bu tür eylemlerin Türkiye'nin uluslararası güvenlik politikaları ve NATO ile ilişkileri üzerindeki etkileri de tartışılmaktadır.
+
+## Güncelleme - 2026-07-01
+
+Avrupa Parlamentosu (AP) Türkiye Raportörü Nacho Amor, NATO Zirvesi öncesinde Türkiye'de yaşanan gözaltılara tepki göstererek, bu durumun kabul edilemez olduğunu belirtti. Amor, gözaltıların zirve öncesi artan güvenlik önlemleri kapsamında yapıldığına dair endişeleri dile getirdi ve insan hakları ile hukukun üstünlüğü ilkelerine vurgu yaptı. Bu açıklama, zirve öncesinde Türkiye'deki insan hakları durumu ve güvenlik politikaları üzerindeki uluslararası baskıyı artırdı.
