@@ -14,3 +14,9 @@ AK Parti Milletvekili Şengül Karslı, bölgelerindeki ateş çemberine karşı
 Hazine ve Maliye Bakanı Mehmet Şimşek, terörle mücadeleye harcanan kaynakların insani kalkınma ve gelişmeye aktarılacağını belirtti. Bu durum, 'terörsüz Türkiye' vizyonunun ekonomik kalkınma ile doğrudan ilişkilendirildiğini göstermektedir.
 
 AK Parti İstanbul Milletvekili Şengül Karslı da Kalkınma Yolu Projesi'nin güvencesinin 'terörsüz Türkiye' olduğunu vurgulayarak, bu vizyonun ekonomik ilerleme için temel şart olduğunu ifade etti.
+
+## Güncelleme - 2026-07-01
+
+İçişleri Bakanlığı, terörle mücadele kapsamında yollarda bulunan arama noktalarının kaldırıldığını duyurdu. Bu adım, 'Terörsüz Türkiye' vizyonunun somut bir göstergesi olarak değerlendiriliyor ve güvenlik stratejilerinde bir değişime işaret ediyor.
+
+Bu gelişme, daha önce dile getirilen ve koruculara 'kır bekçisi' gibi yeni roller verilmesi önerisiyle birlikte, terörle mücadele yöntemlerinin ve güvenlik anlayışının evrildiğini göstermektedir. Bakanlık açıklaması, ülkenin terörden arındırılması hedefine yönelik atılan adımların devamı niteliğindedir.
