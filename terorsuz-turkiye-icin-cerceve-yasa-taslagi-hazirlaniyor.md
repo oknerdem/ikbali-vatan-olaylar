@@ -22,3 +22,7 @@ AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' sürecinde yeni bir aşa
 ## Güncelleme - 2026-06-28 (2)
 
 Çeşitli kaynaklara göre, hazırlanan çerçeve yasa teklifinin kapsamı netleşmiş olup, ağır suçlar ve kısmi ya da genel af uygulamasının bu düzenlemenin dışında tutulacağı belirtiliyor. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor. Ayrıca, yasa teklifinin Abdullah Öcalan ve terör örgütü yöneticilerini kapsamayacağı da vurgulanıyor.
+
+## Güncelleme - 2026-07-01
+
+İçişleri Bakanı Ali Yerlikaya, 'Terörsüz Türkiye' vizyonu kapsamında bugüne kadar 2 bin 763 kontrol ve arama noktasının kaldırıldığını duyurdu. Bu adım, terörle mücadelede elde edilen başarıların somut bir göstergesi olarak değerlendiriliyor ve ülkenin genel güvenlik durumunun iyileşmesine yönelik önemli bir gelişme olarak kayıtlara geçiyor.
