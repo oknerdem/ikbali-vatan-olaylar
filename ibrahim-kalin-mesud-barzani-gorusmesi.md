@@ -10,3 +10,7 @@ Milli İstihbarat Teşkilatı (MİT) Başkanı İbrahim Kalın, Irak Kürt Bölg
 Görüşmede, bölgesel gelişmeler ve iki taraf arasındaki ilişkilerin ele alındığı belirtildi. Detaylar hakkında henüz resmi bir açıklama yapılmadı.
 
 Bu görüşme, Türkiye'nin Irak ve bölgedeki istikrarı konusundaki diplomatik çabalarının bir parçası olarak değerlendiriliyor.
+
+## Güncelleme - 2026-07-02
+
+Milli İstihbarat Teşkilatı (MİT) Başkanı İbrahim Kalın, Irak temasları kapsamında Erbil'de Kürdistan Demokrat Partisi (KDP) lideri Mesud Barzani ile bir araya geldi. Görüşmede, bölgesel güvenlik dinamikleri ve Türkiye'nin Irak ile olan ilişkilerinin güncel durumu ele alındı. Bu görüşme, bölgedeki istikrarın sağlanması ve terörle mücadele gibi hassas konularda iki taraf arasındaki koordinasyonun önemini vurgulamaktadır.
