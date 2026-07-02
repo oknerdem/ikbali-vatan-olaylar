@@ -24,3 +24,7 @@ Ayrıca, aynı dönemde hudut birlikleri tarafından 434 kişinin yakalandığı
 ## Güncelleme - 2026-06-29
 
 Son olarak, 29 Haziran 2026 tarihinde İçişleri Bakanlığı tarafından yapılan açıklamada, ikna çalışmaları sonucunda 2026 yılı başından bu yana teslim olan terörist sayısının 134'e ulaştığı duyuruldu. Bu gelişme, terörle mücadelede elde edilen başarıların ve sürdürülen kararlılığın bir göstergesi olarak kayıtlara geçmiştir.
+
+## Güncelleme - 2026-07-02
+
+Milli Savunma Bakanlığı (MSB) tarafından yapılan son açıklamalara göre, 29 Haziran 2026 tarihi itibarıyla ikna çalışmaları sonucunda 2026 yılı başından bu yana teslim olan terörist sayısı 134'e ulaşmıştır. Bu rakam, daha önceki güncellemelerde belirtilen 99'luk sayıyı da kapsamaktadır ve terörle mücadeledeki kararlılığın sürdüğünü göstermektedir.

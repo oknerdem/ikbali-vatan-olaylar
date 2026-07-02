@@ -162,3 +162,9 @@ Kemal Kılıçdaroğlu, CHP'deki kurultay süreciyle ilgili yaptığı açıklam
 ## Güncelleme - 2026-06-25
 
 Kemal Kılıçdaroğlu, CHP'nin PKK ile ilişkilendirilmesine yönelik çabalar olduğunu ve Selahattin Demirtaş'ın derhal tahliye edilmesi gerektiğini belirterek, bunun dışındaki tartışmaların suni gündem yaratma çabası olduğunu ifade etti. Bu açıklamalar, CHP'deki kurultay iptali ve genel başkanlık krizi bağlamında, partinin terörle ilişkilendirilmesi yönündeki siyasi tartışmalara yeni bir boyut kazandırdı.
+
+## Güncelleme - 2026-07-02
+
+Zafer Partisi Genel Başkanı Ümit Özdağ, hükümetin "süreç" olarak adlandırılan politikalarını eleştirerek, PKK için yasal zemin hazırlanıp hazırlanmadığını sordu. Özdağ, "Hani PKK kayıtsız şartsız silah bırakıyordu? Öcalan'a taviz verilmesini mi bekliyoruz?" diyerek, terörle mücadele ve çözüm süreci gibi hassas konularda atılan adımların şeffaf olması gerektiğini vurguladı.
+
+Bu eleştiriler, CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, siyasi gündemin terör ve güvenlik konularıyla da şekillendiğini göstermektedir. Özdağ'ın açıklamaları, siyasi aktörlerin birbirlerini terörle ilişkilendirme eğiliminin arttığına ve bu tür söylemlerin siyasi rekabette bir araç olarak kullanıldığına işaret etmektedir.
