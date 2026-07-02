@@ -12,3 +12,7 @@ Suriye'nin başkenti Şam'da Uluslararası Türk Okulu'nun kurulması için çal
 ## Güncelleme - 2026-07-02
 
 Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde bir kafede patlama meydana geldiği ve olayda yaralıların olduğu bildirilmiştir. Bu gelişme, bölgedeki güvenlik durumuna dair endişeleri artırmıştır.
+
+## Güncelleme - 2026-07-02 (2)
+
+Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde bir kafede meydana gelen patlamada ilk belirlemelere göre 9 kişi hayatını kaybetti, 20 kişi ise yaralandı. Bu trajik olay, bölgedeki güvenlik endişelerini daha da artırdı.

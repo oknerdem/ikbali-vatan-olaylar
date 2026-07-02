@@ -16,3 +16,7 @@ Pakistan'ın Belucistan eyaletinde, Quetta yakınlarında bir yolcu trenine yön
 ## Güncelleme - 2026-06-23
 
 Dışişleri Bakanlığı, 22 Haziran 2026'da Karadeniz'de Türk sahipli bir kuru yük gemisine yönelik gerçekleştirilen saldırıyı kınadı. Bakanlık, saldırının uluslararası denizcilik güvenliği açısından endişe verici olduğunu belirtti ve faillerin bulunarak hesap vermesi çağrısında bulundu. Bu olay, Türkiye'nin deniz güvenliği ve uluslararası sulardaki seyrüsefer serbestisi konularındaki hassasiyetini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-07-02
+
+Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde meydana gelen terör saldırısını Türkiye'den Dışişleri Bakanlığı ve Cumhurbaşkanlığı Yardımcısı Cevdet Yılmaz kınadı. Bakanlık, saldırının uluslararası terörle mücadeledeki işbirliğinin önemini bir kez daha ortaya koyduğunu belirtti ve Türkiye'nin Suriye halkıyla dayanışmasını sürdüreceğini ifade etti. Saldırının bölgedeki istikrarı hedef aldığı vurgulandı.
