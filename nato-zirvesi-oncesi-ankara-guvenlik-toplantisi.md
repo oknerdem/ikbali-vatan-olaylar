@@ -94,3 +94,9 @@ Bu protestolar, zirve süresince şehirdeki kamu düzeninin sağlanması ve olas
 ## Güncelleme - 2026-07-01
 
 Avrupa Parlamentosu (AP) Türkiye Raportörü Nacho Amor, NATO Zirvesi öncesinde Türkiye'de yaşanan gözaltılara tepki göstererek, bu durumun kabul edilemez olduğunu belirtti. Amor, gözaltıların zirve öncesi artan güvenlik önlemleri kapsamında yapıldığına dair endişeleri dile getirdi ve insan hakları ile hukukun üstünlüğü ilkelerine vurgu yaptı. Bu açıklama, zirve öncesinde Türkiye'deki insan hakları durumu ve güvenlik politikaları üzerindeki uluslararası baskıyı artırdı.
+
+## Güncelleme - 2026-07-02
+
+2 Temmuz 2026 tarihinde, Türkiye'nin gündeminde "Terörsüz Türkiye Yasası" hazırlığı ve bu konudaki siyasi partilerin açıklamaları yer aldı. AK Parti kurmayları, yasanın çıkması için "Kandil" şartı koşarken, Kandil'den ise "Bir yasa çıkarırız, gelen gelir, gelmeyen gelmez, olmaz" şeklinde bir açıklama geldi. Bu gelişmeler, çözüm süreci ve terörle mücadele kapsamında önemli bir siyasi tartışmayı başlattı.
+
+Öte yandan, NATO Zirvesi öncesinde Ankara'da alınan güvenlik tedbirleri de gündemdeki yerini korudu. Habertürk'ün haberine göre, zirveyle ilgili güvenlik önlemleri kapsamında gözaltılar yaşandığına dair bilgiler yer aldı. Bu durum, zirve öncesi artan güvenlik önlemleri ve insan hakları arasındaki hassas dengeyi yeniden gündeme getirdi.
