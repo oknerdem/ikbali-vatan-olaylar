@@ -52,3 +52,9 @@ Bu yeni düzenlemenin, terörle mücadeledeki mevcut yasal çerçeveyi daha etki
 TBMM Başkanı Numan Kurtulmuş, terörle mücadelenin büyük ölçüde tamamlandığını belirterek, 'Terör işinin yüzde 80-90'ı bitti. Yakın zamanda artık terör Türkiye’nin tamamıyla gündeminden kalkacaktır.' açıklamasında bulundu. Kurtulmuş, çıkarılacak yeni yasanın geçici, müstakil ve asla af niteliğinde olmayacağını vurguladı.
 
 Cumhurbaşkanı Erdoğan da terörsüz Türkiye gibi milli meselelerde uzlaşıya hazır olduklarını ifade ederek, bu sürecin başarıya ulaşmasının ülke için istendiğini belirtti. Bu açıklamalar, terörle mücadelede gelinen son noktayı ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşıyor.
+
+## Güncelleme - 2026-07-02
+
+TBMM Başkanı Numan Kurtulmuş, terörle mücadelenin büyük ölçüde tamamlandığını ve çıkarılacak yeni yasanın geçici, müstakil ve asla af niteliğinde olmayacağını belirtti. Cumhurbaşkanı Erdoğan da terörsüz Türkiye gibi milli meselelerde uzlaşıya hazır olduklarını ifade etti. Bu açıklamalar, terörle mücadelede gelinen son noktayı ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşıyor.
+
+Öte yandan, Ümit Özdağ, Ömer Çelik'in açıklamaları sonrası "PKK için yasal zemin mi hazırlanıyor?" sorusunu gündeme getirerek, sürecin şeffaflığına dair eleştirilerde bulundu. Bu durum, yasal düzenlemelerin kamuoyunda farklı yorumlara yol açabileceğini gösteriyor.
