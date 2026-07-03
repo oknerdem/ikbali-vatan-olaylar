@@ -90,3 +90,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan da benzer bir yaklaşımla, "Terörsüz T�
 TBMM Başkanı Numan Kurtulmuş'un DEM Parti'nin İmralı heyeti ile 'Terörsüz Türkiye' süreci üzerine yaptığı değerlendirme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin yaklaşımlarını ortaya koydu. Yeniçağ Gazetesi'nin haberine göre, AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu'nun Öcalan'ın özgürlüğünün millete sorulması gerektiği yönündeki açıklaması, sürece dair siyasi hassasiyetleri ve tartışmaları gündeme getirdi.
 
 Adalet Bakanı Akın Gürlek'in, sürecin bir kanunla taçlanacağı ve bu yasanın kısa süre içinde TBMM'ye geleceği yönündeki açıklamaları ve 12. Yargı Paketi'nden ayrı yürütüldüğü bilgisi, sürecin hukuki ve siyasi boyutlarının ayrı ayrı ele alınacağını gösteriyor. DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde sürecin hızlandırılması ve 'çerçeve yasa'nın 5 günde çıkarılabileceği yönündeki ifadeleri ise, TBMM'ye sunulacak düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.
+
+## Güncelleme - 2026-07-03 (2)
+
+DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde, 'Terörsüz Türkiye' süreci için bir çerçeve yasanın 5 günde çıkarılabileceği ifade edildi. Bu durum, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.

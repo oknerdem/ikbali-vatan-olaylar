@@ -18,3 +18,9 @@ Güvenlik güçleri tarafından terör örgütlerine yönelik düzenlenen operas
 İstanbul Valisi Ali Yerlikaya, terör örgütlerine yönelik operasyonların bir önceki döneme göre yüzde 51 arttığını açıkladı. Bu artış, güvenlik güçlerinin terörle mücadeledeki kararlılığını ve operasyonel yoğunluğunu gözler önüne seriyor.
 
 Öte yandan, İletişim Başkanı Fahrettin Altun, Suriye'nin Şam kentinde meydana gelen hain terör saldırısını kınayarak, bu tür saldırıların lanetlenmesi gerektiğini belirtti. Bu açıklama, Türkiye'nin terörün her türlüsüne karşı uluslararası alanda da duruşunu pekiştiriyor.
+
+## Güncelleme - 2026-07-03 (2)
+
+Ankara merkezli olarak düzenlenen ve "yeni nesil" suç örgütlerini hedef alan operasyonlarda 55 şüphelinin tutuklandığı bildirildi. Bu operasyonlar, terörle mücadele kapsamında güvenlik güçlerinin sürdürdüğü çalışmaların bir parçası olarak öne çıkıyor.
+
+Öte yandan, İstanbul Valisi Ali Yerlikaya, terör örgütlerine yönelik operasyonların bir önceki döneme göre yüzde 51 arttığını açıkladı. Bu artış, güvenlik güçlerinin terörle mücadeledeki kararlılığını ve operasyonel yoğunluğunu göstermektedir.
