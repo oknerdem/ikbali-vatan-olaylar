@@ -20,3 +20,7 @@ Bu gelişmeler, Birleşmiş Milletler'in (BM) İsrail'in Suriye'deki faaliyetler
 Suriye'nin başkenti Şam'da meydana gelen terör saldırısının ardından Türkiye'den sert tepki geldi. Dışişleri Bakanlığı tarafından yapılan açıklamalarda, saldırının 'güçlü bir şekilde' kınandığı belirtildi. Açıklamada, Türkiye'nin terörle mücadelede Suriye halkının ve hükümetinin yanında olduğu vurgulandı.
 
 Bu gelişmeler, İsrail'in Suriye'deki eylemlerine ilişkin BM raporunun yayınlanmasının ardından uluslararası kamuoyunun dikkatini bölgedeki duruma çekti. Raporun, İsrail'in Suriye'deki operasyonlarının uluslararası hukuka aykırı olduğuna dair bulguları teyit ettiği yönündeki haberler, Türkiye'nin kınama mesajının önemini artırdı.
+
+## Güncelleme - 2026-07-03 (2)
+
+Suriye'nin başkenti Şam'da meydana gelen ve 9 kişinin hayatını kaybettiği, 20 kişinin yaralandığı terör saldırısını Türkiye Dışişleri Bakanlığı sert bir dille kınadı. Bakanlık, saldırının bölgesel barış ve istikrarı tehdit ettiğini belirterek, terörle mücadelede Suriye halkının ve hükümetinin yanında olduğunu yineledi.
