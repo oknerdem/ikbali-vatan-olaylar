@@ -18,3 +18,9 @@ DEM Parti'nin Merkez Yürütme Kurulu (MYK) toplantısında, Abdullah Öcalan'ı
 ## Güncelleme - 2026-07-03
 
 Son gelişmelere göre, PKK'nın Gara Dağı'ndaki kritik bir kampını boşalttığı ve bu bölgeden çekildiği yönünde teyitler gelmiştir. Bu çekilmenin, Abdullah Öcalan'a sunulan ve üzerinde mutabakat sağlandığı iddia edilen 'çerçeve yasa' teklifiyle ilişkilendirildiği öne sürülmektedir. Habere göre, boşaltılan kampta yer altı bomba laboratuvarı bulunduğu belirtilmiştir.
+
+## Güncelleme - 2026-07-03 (2)
+
+DEM Parti, 'Terörsüz Türkiye' süreciyle ilgili desteklerini açıklarken, Abdullah Öcalan ile 40 gündür görüşme yapılmadığını ve yasal çerçevenin kapsamının belirsiz olduğunu belirtti. Bu açıklamalar, partinin çözüm süreci ve siyasi taleplerine ilişkin mevcut pozisyonunu yansıtmaktadır.
+
+Öte yandan, PKK'nın Gara Dağı'ndaki bir kampını boşalttığı ve bu çekilmenin Öcalan'a sunulan 'çerçeve yasa' teklifiyle ilişkilendirildiği iddia edilmektedir. Boşaltılan kampta yer altı bomba laboratuvarı bulunduğu da haberlerde yer almıştır.
