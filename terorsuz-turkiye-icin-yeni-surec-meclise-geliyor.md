@@ -84,3 +84,9 @@ Cumhurbaşkanı Recep Tayyip Erdoğan da benzer bir yaklaşımla, "Terörsüz T�
 ## Güncelleme - 2026-07-01
 
 İYİ Parti lideri Müsavat Dervişoğlu, AK Parti Sözcüsü Ömer Çelik'in terör örgütünün silah bırakması için yasal çerçeve oluşturulması yönündeki açıklamalarına sert tepki gösterdi. Dervişoğlu, "TBMM terör örgütü için yasa çıkarmaz" diyerek, böyle bir adımın söz konusu olamayacağını belirtti. Öte yandan, Zafer Partisi Genel Başkanı Ümit Özdağ ise "Terörsüz Türkiye" söylemini, "Büyük Orta Doğu Projesi'nin bir parçası" olarak nitelendirdi. Bu açıklamalar, TBMM'ye sunulması beklenen yasal düzenlemeler öncesinde siyasi partiler arasındaki görüş ayrılıklarını ve hassasiyetleri daha da belirgin hale getirdi.
+
+## Güncelleme - 2026-07-03
+
+TBMM Başkanı Numan Kurtulmuş'un DEM Parti'nin İmralı heyeti ile 'Terörsüz Türkiye' süreci üzerine yaptığı değerlendirme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin yaklaşımlarını ortaya koydu. Yeniçağ Gazetesi'nin haberine göre, AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu'nun Öcalan'ın özgürlüğünün millete sorulması gerektiği yönündeki açıklaması, sürece dair siyasi hassasiyetleri ve tartışmaları gündeme getirdi.
+
+Adalet Bakanı Akın Gürlek'in, sürecin bir kanunla taçlanacağı ve bu yasanın kısa süre içinde TBMM'ye geleceği yönündeki açıklamaları ve 12. Yargı Paketi'nden ayrı yürütüldüğü bilgisi, sürecin hukuki ve siyasi boyutlarının ayrı ayrı ele alınacağını gösteriyor. DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde sürecin hızlandırılması ve 'çerçeve yasa'nın 5 günde çıkarılabileceği yönündeki ifadeleri ise, TBMM'ye sunulacak düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.

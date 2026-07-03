@@ -100,3 +100,7 @@ Avrupa Parlamentosu (AP) Türkiye Raportörü Nacho Amor, NATO Zirvesi öncesind
 2 Temmuz 2026 tarihinde, Türkiye'nin gündeminde "Terörsüz Türkiye Yasası" hazırlığı ve bu konudaki siyasi partilerin açıklamaları yer aldı. AK Parti kurmayları, yasanın çıkması için "Kandil" şartı koşarken, Kandil'den ise "Bir yasa çıkarırız, gelen gelir, gelmeyen gelmez, olmaz" şeklinde bir açıklama geldi. Bu gelişmeler, çözüm süreci ve terörle mücadele kapsamında önemli bir siyasi tartışmayı başlattı.
 
 Öte yandan, NATO Zirvesi öncesinde Ankara'da alınan güvenlik tedbirleri de gündemdeki yerini korudu. Habertürk'ün haberine göre, zirveyle ilgili güvenlik önlemleri kapsamında gözaltılar yaşandığına dair bilgiler yer aldı. Bu durum, zirve öncesi artan güvenlik önlemleri ve insan hakları arasındaki hassas dengeyi yeniden gündeme getirdi.
+
+## Güncelleme - 2026-07-03
+
+NATO Zirvesi öncesinde Ankara'da terör saldırısı yaşanacağına dair çıkan asılsız iddialar, Dışişleri Bakanlığı tarafından yalanlandı. Bakanlık, bu tür spekülasyonların gerçeği yansıtmadığını ve zirve süresince gerekli tüm güvenlik önlemlerinin alındığını belirtti. Bu açıklama, zirveye yönelik olası provokasyonlara karşı alınan önlemlerin bir parçası olarak değerlendirildi.

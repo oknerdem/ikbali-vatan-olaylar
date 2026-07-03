@@ -54,3 +54,7 @@ Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle 
 ## Güncelleme - 2026-06-29
 
 Cumhurbaşkanı Erdoğan, 29 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesindeki kararlılığını yineleyerek, 'terörsüz Türkiye' hedefinin yeni yüzyılın stratejik devlet vizyonunun bir parçası olduğunu belirtti. Bu süreçte, Irak ve Suriye'deki operasyonların güvenlik paradigmasında yeni bir dönemi başlattığı ve terörle mücadelenin Türkiye'nin bölgesel ve küresel konumunu güçlendirdiği ifade edildi. Ayrıca, Gazze'deki gelişmeler ve Türk Dünyası ile ilişkiler de gündeme gelen diğer önemli başlıklar arasındaydı.
+
+## Güncelleme - 2026-07-03
+
+Cumhurbaşkanı Erdoğan, 3 Temmuz 2026'da yaptığı açıklamalarda, 'terörsüz Türkiye' sürecinin etkilerinin her alanda görüldüğünü belirtti. Erdoğan, terör sorununun tamamen çözülmesiyle birlikte tarım başta olmak üzere çeşitli alanlarda büyük atılımlar yapılacağını ifade etti. Ayrıca, çiftçilere yönelik müjdelerin de peş peşe sıralanacağını duyurdu. Bu açıklamalar, daha önceki kabine toplantılarında gündeme gelen terörle mücadele ve ekonomi konularının devamı niteliğindedir.
