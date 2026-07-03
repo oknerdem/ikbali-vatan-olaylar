@@ -16,3 +16,7 @@ Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde bir kafede patlama meydana 
 ## Güncelleme - 2026-07-02 (2)
 
 Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde bir kafede meydana gelen patlamada ilk belirlemelere göre 9 kişi hayatını kaybetti, 20 kişi ise yaralandı. Bu trajik olay, bölgedeki güvenlik endişelerini daha da artırdı.
+
+## Güncelleme - 2026-07-03
+
+Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde bir kafeye yönelik gerçekleştirilen ve ilk belirlemelere göre 9 kişinin hayatını kaybettiği, 20 kişinin ise yaralandığı terör saldırısı, bölgedeki güvenlik endişelerini daha da artırmıştır. Türkiye Dışişleri Bakanlığı, saldırıyı kınayarak bölgede barış ve istikrarın önemine vurgu yapmıştır. Bu olay, Şam'daki Türk Okulu projesi ve Türkiye'nin bölgesel etkisini genişletme stratejisi bağlamında, bölgedeki mevcut hassasiyetleri gözler önüne sermektedir.

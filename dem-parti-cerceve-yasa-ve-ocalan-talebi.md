@@ -14,3 +14,7 @@ Partinin bu talebi, geçmişteki çözüm süreci tartışmalarını yeniden gü
 DEM Parti'nin Merkez Yürütme Kurulu (MYK) toplantısında, Abdullah Öcalan'ın durumu ve bir 'çerçeve yasa' çıkarılması konularının gündeme geldiği bildirildi. Bu gelişmeler, partinin çözüm süreci ve siyasi taleplerine ilişkin mevcut pozisyonunu pekiştirir nitelikte.
 
 Öte yandan, Cumhurbaşkanı Erdoğan'ın da 'çözüm süreci takvimi'ne ilişkin açıklamalarda bulunduğu ve 'çerçeve yasa'nın Meclis tatile girmeden çıkarılacağı yönündeki ifadeleri, konunun siyasi gündemdeki yerini daha da belirginleştirdi.
+
+## Güncelleme - 2026-07-03
+
+Son gelişmelere göre, PKK'nın Gara Dağı'ndaki kritik bir kampını boşalttığı ve bu bölgeden çekildiği yönünde teyitler gelmiştir. Bu çekilmenin, Abdullah Öcalan'a sunulan ve üzerinde mutabakat sağlandığı iddia edilen 'çerçeve yasa' teklifiyle ilişkilendirildiği öne sürülmektedir. Habere göre, boşaltılan kampta yer altı bomba laboratuvarı bulunduğu belirtilmiştir.
