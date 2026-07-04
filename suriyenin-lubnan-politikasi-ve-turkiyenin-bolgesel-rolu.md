@@ -14,3 +14,7 @@ Suriye Cumhurbaşkanı Şara, Lübnan'a yönelik geçmişteki müdahale anlayı�
 Suriye Dışişleri Bakanlığı, Suriye'nin aylık gümrük düzenlemesini sadece Türkiye'ye yönelik yaptığı yönündeki iddiaları yalanladı. Bu gelişme, iki ülke arasındaki ekonomik ve siyasi ilişkilerde şeffaflık ve karşılıklı güvenin önemini bir kez daha ortaya koydu.
 
 Türkiye, Suriye'deki istikrarı sekteye uğratmayı amaçlayanlara verilecek en iyi yanıtın birlik ve beraberlik olacağını vurguladı. Bu açıklama, bölgesel güvenlik ve işbirliği konularında Türkiye'nin duruşunu pekiştirmektedir.
+
+## Güncelleme - 2026-07-04
+
+Suriye Halk Meclisi'ne Türkiye'den 4 kişinin atandığı bildirildi. Bu atamalar, Suriye'nin iç siyasetine Türkiye'nin müdahil olduğu şeklinde yorumlara neden oldu. Suriyeli milletvekili Cendeli ise geçiş dönemi adaletinin Meclisin önceliği olacağını belirtti.
