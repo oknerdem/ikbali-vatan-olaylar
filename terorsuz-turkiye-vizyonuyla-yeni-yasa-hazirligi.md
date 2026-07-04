@@ -36,3 +36,9 @@ Milliyetçi Hareket Partisi (MHP) yetkilileri, 'Terörsüz Türkiye' vizyonunun 
 ## Güncelleme - 2026-06-23
 
 Öte yandan, Türkiye Gazetesi'nde yer alan bir habere göre, 'silah eldeyken kanun çıkmaz' ilkesi gereği, terör örgütü mensuplarının silah bırakması şartı öne sürülerek çerçeve yasa taslağının geciktiği belirtildi. Elips Haber'de yer alan bir başka haber de bu durumu teyit ederek, silah bırakma şartının taslakta öne çıkan bir unsur olduğunu aktardı. Bu durum, yasal düzenlemenin hayata geçirilmesinde önemli bir dönemeç olarak değerlendiriliyor.
+
+## Güncelleme - 2026-07-04
+
+Milliyetçi Hareket Partisi (MHP) yetkilileri, 'terörsüz Türkiye' vizyonunun devlet politikası olduğunu ve Türk milletinin değişmez bir ideali olduğunu vurguladı. MHP Grup Başkan Vekili Akçay, Devlet Bahçeli'nin bu politikasıyla 'Hz. Nuh'un gemisini yeniden inşa ettiğini' ifade ederken, MHP'li Büyükataman ise 'terörsüz Türkiye'nin milli savunma kalkanı haline geldiğini belirtti. Bu açıklamalar, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partilerce güçlü bir şekilde desteklendiğini ve ulusal güvenlik stratejisinin önemli bir parçası olarak görüldüğünü ortaya koymaktadır.
+
+Öte yandan, MHP'li Küçük'ün Diyarbakır'daki 'terörsüz Türkiye' çıkışı, bu vizyonun kardeşlik temelinde inşa edileceği mesajını verirken, Cem Tufan'ın '81 il kardeş' vurgusu da toplumsal bütünlüğe dikkat çekmektedir. Bu söylemler, hazırlanan yasa taslağının sadece güvenlik odaklı değil, aynı zamanda toplumsal barış ve birlik ideallerini de barındırdığını göstermektedir.
