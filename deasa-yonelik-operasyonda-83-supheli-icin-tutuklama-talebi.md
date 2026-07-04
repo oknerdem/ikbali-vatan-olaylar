@@ -70,3 +70,7 @@ Operasyonlarda yakalanan şüphelilerin emniyetteki işlemleri sürerken, terör
 Düzce ve Bursa'da terör örgütü IŞİD'e yönelik düzenlenen operasyonda 13 kişi gözaltına alındı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
 
 Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı. Bu gelişmeler, terörle mücadele ve organize suçlarla mücadele kapsamında yürütülen operasyonların kararlılıkla devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-04
+
+14 ilde siber suçlara yönelik düzenlenen operasyonlarda 306 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
