@@ -28,3 +28,7 @@ Söz konusu tahliye kararının, Türkiye'nin ulusal güvenliğine ve terörle m
 ## Güncelleme - 2026-06-07
 
 AK Parti Sözcüsü Ömer Çelik, Koç Holding kurumlarına yönelik gerçekleştirilen silahlı saldırıları kınayarak, bu tür eylemlerin ülkeyi karıştırmaya yönelik olduğunu belirtti ve bu tür girişimlere müsaade edilmeyeceğini vurguladı. Saldırılar, Türkiye'de önemli bir iş grubuna yönelik olması ve siyasi parti tarafından sert tepkiyle karşılanması nedeniyle gündemde yer buldu.
+
+## Güncelleme - 2026-07-05
+
+Gazeteci Murat İde, Yunanistan'ın serbest bıraktığı teröristin "pişman değiliz" şeklindeki ifadelerine sert tepki göstererek, devletin bu teröristi pişman etmesi gerektiğini belirtti. Bu yorum, olayın toplumsal ve siyasi yankısını derinleştirmekte ve terörle mücadelede devletin kararlılığının önemini vurgulamaktadır.

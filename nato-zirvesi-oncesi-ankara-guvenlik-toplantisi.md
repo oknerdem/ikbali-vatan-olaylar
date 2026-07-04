@@ -110,3 +110,7 @@ NATO Zirvesi öncesinde Ankara'da terör saldırısı yaşanacağına dair çık
 Dışişleri Bakanlığı, NATO Zirvesi öncesinde Ankara'da terör saldırısı düzenleneceğine dair çıkan asılsız iddiaları yalanladı. Bakanlık, bu tür spekülasyonların gerçeği yansıtmadığını ve zirve süresince gerekli tüm güvenlik önlemlerinin alındığını belirtti.
 
 Bu açıklama, zirveye yönelik olası provokasyonlara karşı alınan önlemlerin bir parçası olarak değerlendirildi. Habertürk'ün haberine göre, zirveyle ilgili güvenlik önlemleri kapsamında gözaltılar yaşandığına dair bilgiler yer alırken, bu durum zirve öncesi artan güvenlik önlemleri ve insan hakları arasındaki hassas dengeyi yeniden gündeme getirdi.
+
+## Güncelleme - 2026-07-05
+
+NATO Zirvesi öncesinde Ankara'da düzenlenen güvenlik toplantılarının ardından, özellikle zirveye ev sahipliği yapacak bölgelerde alınan ek tedbirler kapsamında, korsan otoparkçılık ve benzeri yasa dışı faaliyetlere yönelik operasyonlar düzenlendi. Bu operasyonlarda 30 kişi gözaltına alındı. Gözaltına alınanların araç parkı konusunda insanları mağdur ederek para topladığı iddia edildi.
