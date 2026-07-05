@@ -20,3 +20,7 @@ Cumhurbaşkanı Erdoğan'ın açıklamalarına göre, Türkiye'nin tarihinde ilk
 ## Güncelleme - 2026-06-26
 
 Cumhurbaşkanı Erdoğan, Türkiye'nin savunma sanayii ihracatında yeni bir dönemin başladığını belirterek, "Bir yılda yaptığımız ihracatı artık bir haftada yapıyoruz" açıklamasında bulundu. Bu gelişme, Türk savunma sanayiinin küresel pazardaki rekabet gücünü ve hızını gösteriyor. Ayrıca, ihracatçıların desteklenmesi amacıyla reeskont kredi limitinin 5 milyar liraya çıkarıldığı müjdelendi. Bu adımlar, Türkiye'nin savunma sanayii ve genel ihracat hedeflerine ulaşmasında önemli bir rol oynaması bekleniyor.
+
+## Güncelleme - 2026-07-05
+
+HAVELSAN, NATO üyesi Romanya'ya ADVENT Savaş Yönetim Sistemi'ni ihraç ederek Türkiye'nin savunma sanayii ihracatında yeni bir başarıya imza attı. Bu gelişme, Türkiye'nin NATO ve AB üyesi ülkelere yönelik ilk savaş gemisi ihracatının ardından, savunma teknolojileri alanındaki yetkinliğini bir kez daha kanıtlamış oldu. İhracatın, Romanya'nın deniz kuvvetleri envanterine girmesiyle birlikte, Türk savunma sanayiinin uluslararası pazardaki rekabet gücünün arttığı gözlemleniyor.

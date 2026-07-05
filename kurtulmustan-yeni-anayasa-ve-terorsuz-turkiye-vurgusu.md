@@ -54,3 +54,9 @@ Bu açıklamalar, terörle mücadeledeki gelinen noktaya ve yeni anayasa süreci
 TBMM Başkanı Numan Kurtulmuş, 27 Haziran 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve işin büyük bölümünün tamamlandığını belirtti. Kurtulmuş, terörsüz bir Türkiye'nin yakın zamanda gerçekleşeceğini ifade ederek, bu süreçte çıkarılacak yasal düzenlemelerin kesinlikle af niteliği taşımayacağını vurguladı. Yeni anayasa çalışmalarının ise toplumsal mutabakat zemininde ilerlemesi gerektiğine dikkat çekti.
 
 Bu açıklamalar, terörle mücadeledeki mevcut durumu ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşımaktadır. Kurtulmuş'un ifadeleri, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri yansıtmaktadır.
+
+## Güncelleme - 2026-07-05
+
+TBMM Başkanı Numan Kurtulmuş, 5 Temmuz 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve sürecin büyük ölçüde tamamlandığını belirtti. Kurtulmuş, "Terörsüz Türkiye" sürecinde sona yaklaşıldığını ve yaz bitmeden bu konuda gereği neyse yapılacağını ifade etti. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
+
+Bu açıklamalar, terörle mücadeledeki mevcut durumu ve geleceğe yönelik atılacak adımlara dair önemli bir siyasi değerlendirme olarak öne çıkmaktadır. Kurtulmuş'un ifadeleri, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri yansıtmaktadır.
