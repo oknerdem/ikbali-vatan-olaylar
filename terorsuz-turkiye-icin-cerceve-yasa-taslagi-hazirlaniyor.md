@@ -26,3 +26,7 @@ AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' sürecinde yeni bir aşa
 ## Güncelleme - 2026-07-01
 
 İçişleri Bakanı Ali Yerlikaya, 'Terörsüz Türkiye' vizyonu kapsamında bugüne kadar 2 bin 763 kontrol ve arama noktasının kaldırıldığını duyurdu. Bu adım, terörle mücadelede elde edilen başarıların somut bir göstergesi olarak değerlendiriliyor ve ülkenin genel güvenlik durumunun iyileşmesine yönelik önemli bir gelişme olarak kayıtlara geçiyor.
+
+## Güncelleme - 2026-07-05
+
+TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" süreciyle ilgili yaptığı açıklamalarda, hazırlanan yasa taslağının bir af niteliği taşımayacağını ve infaz düzenlemesi olacağını belirtti. Kurtulmuş, terör örgütünün silah bırakması ve tasfiyesiyle bu sürecin tamamen geride kalacağını ifade ederek, sürecin sona yaklaşıldığına işaret etti. AK Parti Sözcüsü Ömer Çelik de yasal zeminin Meclis'e gelmesi gerektiğini vurgulayarak, ağır suçların ve genel af uygulamasının teklifin dışında tutulacağını belirtti. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı ve bir infaz düzenlemesi niteliğini pekiştiriyor.

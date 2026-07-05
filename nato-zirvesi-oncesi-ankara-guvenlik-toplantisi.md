@@ -114,3 +114,9 @@ Bu açıklama, zirveye yönelik olası provokasyonlara karşı alınan önlemler
 ## Güncelleme - 2026-07-05
 
 NATO Zirvesi öncesinde Ankara'da düzenlenen güvenlik toplantılarının ardından, özellikle zirveye ev sahipliği yapacak bölgelerde alınan ek tedbirler kapsamında, korsan otoparkçılık ve benzeri yasa dışı faaliyetlere yönelik operasyonlar düzenlendi. Bu operasyonlarda 30 kişi gözaltına alındı. Gözaltına alınanların araç parkı konusunda insanları mağdur ederek para topladığı iddia edildi.
+
+## Güncelleme - 2026-07-05 (2)
+
+NATO Zirvesi öncesinde Türkiye genelinde artan güvenlik önlemleri kapsamında çok sayıda kişi gözaltına alındı. Bu gözaltılar arasında gazeteciler, avukatlar ve öğrenciler de bulunuyor. CHP milletvekili Orhan Sarıbal, gözaltıların NATO zirvesi için özgürlüklerin askıya alınması anlamına geldiğini belirterek serbest bırakılmalarını talep etti. Benzer şekilde, CHP lideri Kemal Kılıçdaroğlu da Cumhurbaşkanı Erdoğan'a tepki göstererek bu durumun kabul edilemez olduğunu ifade etti. Avrupa Parlamentosu Türkiye Raportörü Nacho Amor da gözaltılara tepki göstererek insan hakları ve hukukun üstünlüğü ilkelerine vurgu yaptı.
+
+Bu gelişmeler, zirve öncesi artan güvenlik önlemleri ile insan hakları ve ifade özgürlüğü arasındaki hassas dengeyi yeniden gündeme getirdi. Ayrıca, İstanbul'da NATO Zirvesi öncesinde ABD Başkanı Trump'a yönelik Epstein protestosu gerçekleştirildiği de haberlere yansıdı.
