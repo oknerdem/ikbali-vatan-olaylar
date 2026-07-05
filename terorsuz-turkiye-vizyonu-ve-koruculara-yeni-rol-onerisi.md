@@ -20,3 +20,9 @@ AK Parti İstanbul Milletvekili Şengül Karslı da Kalkınma Yolu Projesi'nin g
 İçişleri Bakanlığı, terörle mücadele kapsamında yollarda bulunan arama noktalarının kaldırıldığını duyurdu. Bu adım, 'Terörsüz Türkiye' vizyonunun somut bir göstergesi olarak değerlendiriliyor ve güvenlik stratejilerinde bir değişime işaret ediyor.
 
 Bu gelişme, daha önce dile getirilen ve koruculara 'kır bekçisi' gibi yeni roller verilmesi önerisiyle birlikte, terörle mücadele yöntemlerinin ve güvenlik anlayışının evrildiğini göstermektedir. Bakanlık açıklaması, ülkenin terörden arındırılması hedefine yönelik atılan adımların devamı niteliğindedir.
+
+## Güncelleme - 2026-07-05
+
+HAK-PAR Genel Başkanı Düzgün Kaplan, mevcut süreci bir çözüm süreci olarak değil, 'terörsüz Türkiye süreci' olarak tanımladı. Bu ifade, terörle mücadeledeki siyasi söylemin ve hedeflerin yeniden çerçevelendiğini göstermektedir.
+
+Mehmet Uçum ise 'terörsüz Türkiye süreci'nin geri dönüşü olmayan bir eşiği geçtiğini belirterek, bu sürecin kalıcılığına ve önemine dikkat çekti. Bu değerlendirmeler, terörle mücadele stratejilerinde ve toplumsal kabullerde yaşanan dönüşüme işaret etmektedir.

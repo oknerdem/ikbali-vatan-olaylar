@@ -24,3 +24,7 @@ Güvenlik güçleri tarafından terör örgütlerine yönelik düzenlenen operas
 Ankara merkezli olarak düzenlenen ve "yeni nesil" suç örgütlerini hedef alan operasyonlarda 55 şüphelinin tutuklandığı bildirildi. Bu operasyonlar, terörle mücadele kapsamında güvenlik güçlerinin sürdürdüğü çalışmaların bir parçası olarak öne çıkıyor.
 
 Öte yandan, İstanbul Valisi Ali Yerlikaya, terör örgütlerine yönelik operasyonların bir önceki döneme göre yüzde 51 arttığını açıkladı. Bu artış, güvenlik güçlerinin terörle mücadeledeki kararlılığını ve operasyonel yoğunluğunu göstermektedir.
+
+## Güncelleme - 2026-07-05
+
+5 Temmuz 2026 tarihinde İstanbul merkezli 8 ilde gerçekleştirilen operasyonda 39 şüpheli gözaltına alındı. Aynı gün Şanlıurfa'da yapılan terör operasyonunda ise 9 kişi yakalandı. Kocaeli'de ise terör şüphelisi 28 kişi gözaltına alındı. Bu operasyonlar, Türkiye genelinde terörle mücadelenin sürdüğünü ve farklı bölgelerde eş zamanlı olarak operasyonlar yapıldığını göstermektedir.
