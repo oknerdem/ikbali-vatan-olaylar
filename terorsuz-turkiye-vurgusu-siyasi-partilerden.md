@@ -22,3 +22,7 @@ Bu çerçevede, MHP'li yetkililerin açıklamaları, terörün bertaraf edildiğ
 AK Parti Sözcüsü Ömer Çelik, Türkiye'nin terörle mücadele sürecinde yeni bir aşamaya geçildiğini belirtti. Bu açıklama, terörün tamamen bertaraf edilerek ülkenin güvenliğinin pekiştirilmesi hedefine yönelik siyasi iradenin devam ettiğini göstermektedir.
 
 MHP'li yetkililer de terörsüz bir Türkiye'nin güçlü ekonomi ve demokrasi anlamına geldiğini vurgulayarak, bu hedefin milli ve tarihi bir amaç olduğunu ifade ettiler. Bu söylemler, farklı siyasi partilerin terörle mücadele konusundaki kararlılıklarını ve ortak vizyonlarını yansıtmaktadır.
+
+## Güncelleme - 2026-07-06
+
+MHP Grup Başkanvekili Erkan Akçay, Cudi Dağı'nda yaptığı açıklamada, "Terörsüz Türkiye, milletimizin ortak selamet gemisidir" ifadesini kullanarak, terörle mücadelenin ülkenin huzuru ve güvenliği için taşıdığı önemi bir kez daha vurguladı. Bu söylem, partinin terörle mücadeledeki kararlılığını ve 'terörsüz Türkiye' vizyonunu pekiştirmektedir.

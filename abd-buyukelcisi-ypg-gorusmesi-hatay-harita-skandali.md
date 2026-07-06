@@ -14,3 +14,7 @@ Skandal, Barrack’ın kendi sosyal medya hesabından paylaştığı fotoğrafla
 ABD'nin Suriye Özel Temsilcisi Tom Barrack'ın görev süresinin sona erdiği bildirilmiştir. Bu gelişme, daha önce YPG elebaşı Mazlum Abdi ile görüşen ve Hatay'ı Suriye toprağı olarak gösteren bir harita önünde poz veren Barrack ile ilgili daha önceki olayların ardından gelmiştir.
 
 Barrack'ın görev süresinin dolması, ABD'nin bölgedeki diplomatik temsilinde bir değişikliğe işaret etmektedir. Bu durumun Türkiye'nin dış politikası ve bölgesel dengeler üzerindeki etkileri ilerleyen dönemde daha net görülecektir.
+
+## Güncelleme - 2026-07-06
+
+Dışişleri Bakanı Hakan Fidan, 6 Temmuz 2026'da ABD'nin Türkiye Büyükelçisi Tom Barrack ile bir görüşme gerçekleştirdi. NATO Zirvesi öncesinde gerçekleşen bu görüşme, daha önce Hatay'ı Suriye toprağı olarak gösteren bir harita önünde YPG elebaşı Mazlum Abdi ile poz vermesiyle gündeme gelen Barrack ile ilgili diplomatik temasların devam ettiğini göstermektedir.
