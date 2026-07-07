@@ -84,3 +84,7 @@ Bu gelişmeler, daha önce CHP'li belediyelere yönelik düzenlenen diğer opera
 Son günlerde Türkiye genelinde birçok CHP'li belediyeye yönelik yolsuzluk ve rüşvet iddiaları üzerine operasyonlar düzenlenmeye devam etti. Bu kapsamda, İstanbul Şile Belediyesi'ne de bir operasyon yapıldı ve çok sayıda kişi gözaltına alındı. Operasyonların, belediyelerin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
 
 Öte yandan, NATO Zirvesi öncesinde Ankara merkezli olarak 8 ilde düzenlenen operasyonda ise 37 şüpheli gözaltına alındı. Bu operasyonlarda toplamda 103 kişinin tutuklandığı bildirildi. Bu gelişmeler, yerel yönetimlerdeki hukuki süreçlerin yanı sıra siyasi tartışmaları da beraberinde getirerek, CHP yetkililerinden operasyonların siyasi olduğu yönünde tepkilere neden oldu.
+
+## Güncelleme - 2026-07-07
+
+NATO Zirvesi öncesinde Ankara'da düzenlenen operasyonlarda 8 ilde toplam 37 şüpheli gözaltına alındı. Bu operasyonlarda toplamda 103 kişinin tutuklandığı bildirildi. CHP yetkilileri, bu gözaltıların siyasi olduğunu belirterek tepki gösterdi ve ülkenin 'paranoyak bir olağanüstü halin' içinde olduğunu savundu.
