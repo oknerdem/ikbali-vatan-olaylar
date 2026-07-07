@@ -20,3 +20,9 @@ Dışişleri Bakanlığı, 22 Haziran 2026'da Karadeniz'de Türk sahipli bir kur
 ## Güncelleme - 2026-07-02
 
 Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde meydana gelen terör saldırısını Türkiye'den Dışişleri Bakanlığı ve Cumhurbaşkanlığı Yardımcısı Cevdet Yılmaz kınadı. Bakanlık, saldırının uluslararası terörle mücadeledeki işbirliğinin önemini bir kez daha ortaya koyduğunu belirtti ve Türkiye'nin Suriye halkıyla dayanışmasını sürdüreceğini ifade etti. Saldırının bölgedeki istikrarı hedef aldığı vurgulandı.
+
+## Güncelleme - 2026-07-07
+
+Suriye'nin başkenti Şam'da 2 Temmuz 2026 tarihinde meydana gelen terör saldırısı, Türkiye'nin dış politikasında önemli bir gündem maddesi haline geldi. Dışişleri Bakanlığı ve Cumhurbaşkanlığı Yardımcısı Cevdet Yılmaz, saldırıyı sert bir dille kınayarak, uluslararası terörle mücadelede işbirliğinin önemini bir kez daha vurguladılar. Türkiye, Suriye halkıyla dayanışma içinde olduğunu belirterek, bu tür saldırıların bölgedeki istikrarı hedef aldığını ifade etti.
+
+Bu gelişme, daha önce Pakistan'daki terör saldırısı ve Karadeniz'de Türk gemisine yönelik saldırı sonrası yapılan açıklamalarla birlikte, Türkiye'nin terörle mücadeledeki küresel duruşunu ve bölgesel güvenlik konularındaki hassasiyetini pekiştirdi. Şam'daki saldırıya verilen tepki, Türkiye'nin uluslararası platformlarda terörle mücadeledeki kararlılığını ve diplomatik çabalarını yansıtmaktadır.
