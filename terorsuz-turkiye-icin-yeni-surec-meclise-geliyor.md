@@ -94,3 +94,9 @@ Adalet Bakanı Akın Gürlek'in, sürecin bir kanunla taçlanacağı ve bu yasan
 ## Güncelleme - 2026-07-03 (2)
 
 DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde, 'Terörsüz Türkiye' süreci için bir çerçeve yasanın 5 günde çıkarılabileceği ifade edildi. Bu durum, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi partiler arasındaki diyalog ve hassasiyetleri ön plana çıkarıyor.
+
+## Güncelleme - 2026-07-08
+
+DEM Parti'den yapılan açıklamalarda, Selahattin Demirtaş'ın serbest bırakılmadan 'Terörsüz Türkiye' sürecinin anlatılamayacağı belirtildi. Bu durum, sürecin siyasi aktörler arasındaki farklı yaklaşımlarını ve taleplerini ön plana çıkarırken, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi tartışmaların derinleşebileceğine işaret ediyor.
+
+Öte yandan, AK Parti Sözcüsü Ömer Çelik'in terör örgütünün silah bırakması için yasal bir çerçeve oluşturulması yönündeki açıklamaları ve bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğu vurgusu, sürecin ilerleyişine dair önemli bir koşul olarak öne çıkıyor. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
