@@ -24,3 +24,7 @@ Cumhurbaşkanı Erdoğan, Türkiye'nin savunma sanayii ihracatında yeni bir dö
 ## Güncelleme - 2026-07-05
 
 HAVELSAN, NATO üyesi Romanya'ya ADVENT Savaş Yönetim Sistemi'ni ihraç ederek Türkiye'nin savunma sanayii ihracatında yeni bir başarıya imza attı. Bu gelişme, Türkiye'nin NATO ve AB üyesi ülkelere yönelik ilk savaş gemisi ihracatının ardından, savunma teknolojileri alanındaki yetkinliğini bir kez daha kanıtlamış oldu. İhracatın, Romanya'nın deniz kuvvetleri envanterine girmesiyle birlikte, Türk savunma sanayiinin uluslararası pazardaki rekabet gücünün arttığı gözlemleniyor.
+
+## Güncelleme - 2026-07-08
+
+HAVELSAN tarafından NATO üyesi Romanya'ya ADVENT Savaş Yönetim Sistemi'nin ihraç edilmesi, Türkiye'nin savunma sanayii alanındaki uluslararası başarısını pekiştirdi. Bu gelişme, daha önce bir NATO ve AB üyesine yapılan ilk savaş gemisi ihracatının ardından, Türk savunma teknolojilerinin küresel pazardaki rekabet gücünü ve güvenilirliğini bir kez daha ortaya koydu. Romanya'nın deniz kuvvetleri envanterine giren bu sistem, Türk savunma sanayiinin teknolojik kabiliyetlerinin uluslararası alanda tanındığının önemli bir göstergesi olarak değerlendiriliyor.

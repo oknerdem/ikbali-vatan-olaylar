@@ -28,3 +28,9 @@ Ankara merkezli olarak düzenlenen ve "yeni nesil" suç örgütlerini hedef alan
 ## Güncelleme - 2026-07-05
 
 5 Temmuz 2026 tarihinde İstanbul merkezli 8 ilde gerçekleştirilen operasyonda 39 şüpheli gözaltına alındı. Aynı gün Şanlıurfa'da yapılan terör operasyonunda ise 9 kişi yakalandı. Kocaeli'de ise terör şüphelisi 28 kişi gözaltına alındı. Bu operasyonlar, Türkiye genelinde terörle mücadelenin sürdüğünü ve farklı bölgelerde eş zamanlı olarak operasyonlar yapıldığını göstermektedir.
+
+## Güncelleme - 2026-07-08
+
+Son günlerde Türkiye genelinde terör örgütlerine yönelik düzenlenen operasyonlarda gözaltına alınan şüphelilerle ilgili yeni gelişmeler yaşanıyor. Özellikle İstanbul merkezli operasyonlarda çok sayıda kişi yakalanırken, bu operasyonların bir önceki döneme göre artış gösterdiği belirtiliyor. Güvenlik güçlerinin terörle mücadelesini kararlılıkla sürdürdüğü ve operasyonel yoğunluğun arttığı gözlemleniyor.
+
+Bu kapsamda, NATO operasyonlarında gözaltına alınan 33 kişi hakkında tutuklama talebiyle ilgili hukuki süreç devam ederken, siyasi parti üye ve yöneticilerinin tutuklanmaya sevk edilmelerinin siyasi saiklerle hareket edildiği yönünde değerlendirmeler de yapılıyor. Terörle mücadelede yeni bir güvenlik felsefesi gerektiği vurgulanırken, bu tür operasyonların ülkenin güvenliği açısından önemi bir kez daha ortaya konuluyor.
