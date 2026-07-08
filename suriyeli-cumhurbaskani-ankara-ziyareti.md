@@ -16,3 +16,9 @@ Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyareti sırasında ABD Başkan�
 ## Güncelleme - 2026-07-08 (2)
 
 Suriye Cumhurbaşkanı Ahmed Şara, Ankara ziyaretinde Türkiye ve Körfez ülkelerine, Suriye'nin yeniden inşasına verdikleri destekten dolayı teşekkür etti. Bu ziyaret, bölgesel ilişkiler ve Türkiye'nin dış politikası açısından önemli bir gelişme olarak kayıtlara geçti.
+
+## Güncelleme - 2026-07-09
+
+Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyareti, ABD Başkanı Donald Trump'ın Suriye'yi terör destekçisi ülkeler listesinden çıkarma niyetini açıklamasının ardından gerçekleşti. Trump, Şara'yı saygı duyulan bir lider olarak nitelendirerek, bu adımın atılacağını belirtti. Bu gelişmeler, iki ülke arasındaki diplomatik ilişkiler ve bölgesel dengeler açısından önemli bir dönüm noktası olarak değerlendiriliyor.
+
+Ziyaret kapsamında Cumhurbaşkanı Erdoğan ve Suriye Cumhurbaşkanı Şara bir araya geldi. Ayrıca, Şara'nın Türkiye ve Körfez ülkelerinin Suriye'nin yeniden inşasına verdikleri destekten dolayı teşekkür ettiği bildirildi. Bu temaslar, bölgesel iş birliği ve istikrarın artırılması yönündeki çabaları yansıtıyor.
