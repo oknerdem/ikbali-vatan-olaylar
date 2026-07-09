@@ -18,3 +18,9 @@ Barrack'ın görev süresinin dolması, ABD'nin bölgedeki diplomatik temsilinde
 ## Güncelleme - 2026-07-06
 
 Dışişleri Bakanı Hakan Fidan, 6 Temmuz 2026'da ABD'nin Türkiye Büyükelçisi Tom Barrack ile bir görüşme gerçekleştirdi. NATO Zirvesi öncesinde gerçekleşen bu görüşme, daha önce Hatay'ı Suriye toprağı olarak gösteren bir harita önünde YPG elebaşı Mazlum Abdi ile poz vermesiyle gündeme gelen Barrack ile ilgili diplomatik temasların devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-09
+
+ABD Dışişleri Bakanlığı, 8 Temmuz 2026 tarihinde Suriye'yi 'teröre destek veren ülkeler' listesinden çıkarma kararı aldığını duyurdu. Bu karar, daha önce ABD'nin Türkiye Büyükelçisi Tom Barrack'ın YPG elebaşı Mazlum Abdi ile görüşmesi ve Hatay'ı Suriye toprağı olarak gösteren bir harita önünde poz vermesiyle ilgili yaşanan skandalın ardından geldi.
+
+Bu gelişme, ABD'nin bölgedeki terör örgütlerine yönelik politikalarında bir değişikliğe işaret ederken, Türkiye'nin ulusal güvenliği ve bölgesel dengeler açısından önemli sonuçlar doğurabileceği değerlendirilmektedir. Kararın, Türkiye'nin diplomatik tepkileri ve ABD ile ilişkiler üzerindeki etkileri yakından takip edilecektir.
