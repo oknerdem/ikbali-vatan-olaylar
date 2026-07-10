@@ -168,3 +168,9 @@ Kemal Kılıçdaroğlu, CHP'nin PKK ile ilişkilendirilmesine yönelik çabalar 
 Zafer Partisi Genel Başkanı Ümit Özdağ, hükümetin "süreç" olarak adlandırılan politikalarını eleştirerek, PKK için yasal zemin hazırlanıp hazırlanmadığını sordu. Özdağ, "Hani PKK kayıtsız şartsız silah bırakıyordu? Öcalan'a taviz verilmesini mi bekliyoruz?" diyerek, terörle mücadele ve çözüm süreci gibi hassas konularda atılan adımların şeffaf olması gerektiğini vurguladı.
 
 Bu eleştiriler, CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, siyasi gündemin terör ve güvenlik konularıyla da şekillendiğini göstermektedir. Özdağ'ın açıklamaları, siyasi aktörlerin birbirlerini terörle ilişkilendirme eğiliminin arttığına ve bu tür söylemlerin siyasi rekabette bir araç olarak kullanıldığına işaret etmektedir.
+
+## Güncelleme - 2026-07-10
+
+CHP'de parti içi ayrışmalar ve hukuki süreçler devam ederken, yeni gelişmeler yaşanıyor. Aziz İhsan Aktaş davasında 3 CHP'li belediye başkanının tahliye talebi reddedildi. Bu durum, parti içindeki hukuki sorunların ve siyasi mücadelenin sürdüğünü gösteriyor.
+
+Öte yandan, parti örgütünde yeni ihraçlar ve atamaların yaşandığına dair haberler de gündeme geldi. Bu gelişmeler, mahkeme kararı sonrası parti içinde yaşanan belirsizliğin ve güç mücadelesinin devam ettiğini ortaya koyuyor.

@@ -100,3 +100,9 @@ DEM Parti'nin İmralı heyeti ile yaptığı görüşmelerde, 'Terörsüz Türki
 DEM Parti'den yapılan açıklamalarda, Selahattin Demirtaş'ın serbest bırakılmadan 'Terörsüz Türkiye' sürecinin anlatılamayacağı belirtildi. Bu durum, sürecin siyasi aktörler arasındaki farklı yaklaşımlarını ve taleplerini ön plana çıkarırken, TBMM'ye sunulacak yasal düzenlemeler öncesinde siyasi tartışmaların derinleşebileceğine işaret ediyor.
 
 Öte yandan, AK Parti Sözcüsü Ömer Çelik'in terör örgütünün silah bırakması için yasal bir çerçeve oluşturulması yönündeki açıklamaları ve bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğu vurgusu, sürecin ilerleyişine dair önemli bir koşul olarak öne çıkıyor. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-07-10
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecinin başarıya ulaşmasıyla birlikte içeride ve dışarıda yeni bir hikaye yazılacağını belirtti. Bu açıklama, sürecin sadece ulusal değil, aynı zamanda uluslararası alanda da yeni bir dönemin başlangıcı olacağına işaret ediyor.
+
+Bu bağlamda, terör örgütünün silah bırakması için yasal bir çerçeve oluşturulması gündemdeyken, bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğu vurgulanıyor. Bu durum, TBMM'ye sunulacak yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor ve siyasi tartışmaların yoğunlaşması bekleniyor.
