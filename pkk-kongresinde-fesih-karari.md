@@ -12,3 +12,7 @@ Kongre sonucunda resmi bir "fesih" kararı çıkmasa da, örgütün "Türkiye s�
 ## Güncelleme - 2026-07-10
 
 PKK, silah yakma eyleminin yıl dönümünde yaptığı açıklamada, Türkiye'de siyasi ve hukuki bir adım atılmadığını iddia etti. Bu açıklama, örgütün geçmişte aldığı sınır dışına çekilme ve silahlı faaliyetleri durdurma kararlarının ardından, çözüm süreci ve terörle mücadele açısından mevcut durumu değerlendiren uzmanların öngörüleriyle örtüşmektedir. Örgütün fiilen parçalanma sürecine girdiği ve marjinalleşeceği yönündeki analizler, bu tür açıklamalarla birlikte ele alınmaktadır.
+
+## Güncelleme - 2026-07-10 (2)
+
+PKK, silah yakma eyleminin birinci yıl dönümünde yaptığı açıklamada, Türkiye'de siyasi ve hukuki bir adım atılmadığını iddia etti. Örgüt, "iktidarın çabalarına karşılık vermediğini" öne sürerek, çözüm süreci ve terörle mücadele açısından mevcut durumu değerlendiren uzmanların, örgütün fiilen parçalanma sürecine girdiği ve marjinalleşeceği yönündeki öngörülerini destekler nitelikte bir açıklama yaptı.

@@ -18,3 +18,7 @@ CHP'li Ali Mahir Başarır ise, "Trump'ı Trabzon'dan protesto ediyorum" diyerek
 ## Güncelleme - 2026-07-08
 
 Ankara ve Uşak gibi farklı şehirlerde NATO zirvesi protestolarına yönelik polis müdahalesi ve gözaltıların yaşandığı bildirildi. Sol Parti üyelerinin Uşak'ta gerçekleştirdiği protesto ve Ankara'daki gösterilere polisin müdahalesi sonucu çok sayıda kişinin gözaltına alındığı haberleri basına yansıdı. Bu gelişmeler, CHP'nin dile getirdiği ifade özgürlüğü kısıtlamaları ve baskı iddialarını destekler nitelikte yorumlandı.
+
+## Güncelleme - 2026-07-10
+
+NATO zirvesi protestoları kapsamında gözaltına alınan 73 kişi serbest bırakıldı. Bu gelişme, daha önce dile getirilen ifade özgürlüğü kısıtlamaları ve baskı iddiaları bağlamında değerlendirildi. Öte yandan, Sol Parti Genel Başkanı Kemal Okuyan, NATO'yu bir terör örgütü olarak tanımlayarak, Türkiye'deki gözaltıların ve genel olarak NATO'nun varlığının uluslararası barışa hizmet etmediği yönündeki eleştirilerini yineledi.
