@@ -18,3 +18,9 @@ Bu durum, parti yönetiminin aldığı kararların ve bu kararların parti taban
 ## Güncelleme - 2026-06-17
 
 Ankara'da 6 isim hakkında ihraç sürecinin başlatıldığına dair haberler yer alırken, bu durumun parti içindeki gerilimi artırdığı ifade ediliyor. Ayrıca, Bolu Belediye Başkanı Tanju Özcan ve eski milletvekili Serkan Tuncer'in de kesin ihraç talebiyle disipline sevk edildiği yönündeki bilgiler, bu sürecin devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-10
+
+DEM Parti'den ihraç edilen Kızıltepe Belediye Başkanı'na yönelik yumurtalı protesto olayı yaşanmıştır. Bu gelişme, parti içi ayrışmaların ve ihraç süreçlerinin siyasi atmosferdeki yansımalarını göstermesi açısından dikkat çekicidir.
+
+Bu olay, parti disiplini ve alınan kararların parti üyeleri ve kamuoyu üzerindeki etkilerine dair tartışmaları yeniden alevlendirmiştir. İhraç edilen bir belediye başkanına yapılan bu tür bir tepki, parti içindeki gerilimlerin somut bir göstergesi olarak değerlendirilmektedir.
