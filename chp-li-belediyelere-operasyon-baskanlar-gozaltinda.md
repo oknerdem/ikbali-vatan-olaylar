@@ -88,3 +88,7 @@ Son günlerde Türkiye genelinde birçok CHP'li belediyeye yönelik yolsuzluk ve
 ## Güncelleme - 2026-07-07
 
 NATO Zirvesi öncesinde Ankara'da düzenlenen operasyonlarda 8 ilde toplam 37 şüpheli gözaltına alındı. Bu operasyonlarda toplamda 103 kişinin tutuklandığı bildirildi. CHP yetkilileri, bu gözaltıların siyasi olduğunu belirterek tepki gösterdi ve ülkenin 'paranoyak bir olağanüstü halin' içinde olduğunu savundu.
+
+## Güncelleme - 2026-07-11
+
+Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında belediye binasında arama yapılırken, çok sayıda kişi hakkında gözaltı kararı verildiği bildirildi. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, CHP yetkilileri operasyonun siyasi olduğunu savunarak tepki gösterdi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
