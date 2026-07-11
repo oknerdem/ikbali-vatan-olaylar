@@ -30,3 +30,9 @@ DEM Parti, 'Terörsüz Türkiye' süreciyle ilgili desteklerini açıklarken, Ab
 DEM Parti İmralı Heyeti üyesi Sancar, önümüzdeki hafta 'çerçeve yasa' tartışmalarının spekülasyon düzeyinde kalmayacağını ve sona ereceğini belirtti. Sancar, bu yasanın yasama dönemi bitmeden Meclis'ten geçmesi gerektiğini vurguladı.
 
 Bu açıklamalar, çözüm süreci ve yasal düzenlemelerle ilgili siyasi gelişmelerin takibini sağlamak açısından önem taşımaktadır. Partinin bu konudaki güncel pozisyonu ve talepleri, kamuoyunda geniş yankı bulmaya devam etmektedir.
+
+## Güncelleme - 2026-07-11 (2)
+
+DEM Parti, Çankaya Belediyesi'ne yönelik operasyonun ardından yaptığı açıklamada, 'Bir Belediyeden Diğerine Uzanan Bu Kuşatma Derhal Son Bulmalıdır' diyerek tepki gösterdi. Parti, bu tür müdahalelerin siyasi süreci olumsuz etkilediğini ve demokratik süreçlere zarar verdiğini belirtti. Bu gelişme, partinin daha önceki 'çerçeve yasa' ve 'onurlu dönüş' talepleriyle birlikte değerlendirildiğinde, siyasi tansiyonun yükseldiğine işaret ediyor.
+
+Parti sözcüleri, Çankaya Belediyesi'ne yapılan operasyonun, siyasi iktidarın muhalif belediyeler üzerindeki baskısını artırma çabası olarak gördüklerini ifade ettiler. Bu durumun, çözüm süreci ve genel siyasi atmosfer üzerindeki etkileri konusunda endişeler dile getirildi.
