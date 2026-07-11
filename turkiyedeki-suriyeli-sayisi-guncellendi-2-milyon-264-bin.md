@@ -18,3 +18,7 @@ Güncellenen veriler, Türkiye'nin sığınmacı politikasının mevcut durumunu
 ## Güncelleme - 2026-06-28
 
 İçişleri Bakanlığı Göç İdaresi Başkanlığı tarafından açıklanan son verilere göre, Türkiye'deki geçici koruma kapsamındaki Suriyeli sayısı 2 milyon 264 bin olarak güncellenmiştir. Bu rakam, ülkedeki demografik yapı ve göçmen politikalarıyla ilgili tartışmaların sürdüğü bir dönemde kamuoyunun dikkatini çekmeye devam etmektedir.
+
+## Güncelleme - 2026-07-11
+
+Öte yandan, Türkiye'den gönüllü olarak Suriye'ye geri dönen Suriyeli sayısının 1 buçuk milyonu bulduğu bildirilmiştir. Bu geri dönüşler, Türkiye'nin göçmen politikalarının ve Suriye'deki mevcut durumun bir yansıması olarak değerlendirilmektedir.

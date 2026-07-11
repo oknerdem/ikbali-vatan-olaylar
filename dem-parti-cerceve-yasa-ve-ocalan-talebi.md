@@ -24,3 +24,9 @@ Son gelişmelere göre, PKK'nın Gara Dağı'ndaki kritik bir kampını boşaltt
 DEM Parti, 'Terörsüz Türkiye' süreciyle ilgili desteklerini açıklarken, Abdullah Öcalan ile 40 gündür görüşme yapılmadığını ve yasal çerçevenin kapsamının belirsiz olduğunu belirtti. Bu açıklamalar, partinin çözüm süreci ve siyasi taleplerine ilişkin mevcut pozisyonunu yansıtmaktadır.
 
 Öte yandan, PKK'nın Gara Dağı'ndaki bir kampını boşalttığı ve bu çekilmenin Öcalan'a sunulan 'çerçeve yasa' teklifiyle ilişkilendirildiği iddia edilmektedir. Boşaltılan kampta yer altı bomba laboratuvarı bulunduğu da haberlerde yer almıştır.
+
+## Güncelleme - 2026-07-11
+
+DEM Parti İmralı Heyeti üyesi Sancar, önümüzdeki hafta 'çerçeve yasa' tartışmalarının spekülasyon düzeyinde kalmayacağını ve sona ereceğini belirtti. Sancar, bu yasanın yasama dönemi bitmeden Meclis'ten geçmesi gerektiğini vurguladı.
+
+Bu açıklamalar, çözüm süreci ve yasal düzenlemelerle ilgili siyasi gelişmelerin takibini sağlamak açısından önem taşımaktadır. Partinin bu konudaki güncel pozisyonu ve talepleri, kamuoyunda geniş yankı bulmaya devam etmektedir.
