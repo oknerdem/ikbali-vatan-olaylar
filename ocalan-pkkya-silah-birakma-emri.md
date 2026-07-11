@@ -24,3 +24,7 @@ Abdullah Öcalan'ın PKK'ya yönelik silah bırakma çağrısının ardından, �
 AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakmasının önündeki en önemli engelin örgütün kendisi olduğunu belirterek, "Silah bırakma şartı terör örgütünün feshidir." dedi. Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin oluşturulması gerektiğini vurguladı. Bu açıklama, Öcalan'ın çağrısının ardından örgütün geleceğine dair siyasi ve yasal zeminin şekillendiği bir döneme işaret ediyor.
 
 Bu süreçte, "Terörsüz Türkiye" hedefi doğrultusunda takvimin daraldığı ve silahların bırakılmadan herhangi bir adımın atılmayacağı belirtiliyor. Örgütün feshi ve sınır dışına çekilmesi gibi adımların, olası yasal düzenlemelerle birlikte değerlendirildiği anlaşılıyor. Ancak bu düzenlemelerin detayları ve uygulanma biçimi hakkında henüz netlik kazanmış bir bilgi bulunmamaktadır.
+
+## Güncelleme - 2026-07-11
+
+PKK'nın silah yakma eyleminin yıl dönümünde örgütün sözde yöneticilerinden yapılan açıklamalarda, Abdullah Öcalan'ın çağrısının ardından silah bırakma sürecinin devam ettiği ve örgütün fesih kararının gündemde olduğu belirtildi. Açıklamalarda, Öcalan'ın özgürlüğüne kavuşmasının bu sürecin tamamlanması için kritik bir adım olduğu vurgulandı. Öte yandan, bazı siyasi parti temsilcileri, Türkiye'de silahlı örgüt mensubu kalmadığına dair teyit edilmiş bilgiler olduğunu dile getirdi. Bu açıklamalar, örgüt içindeki belirsizliklerin ve siyasi çözüm beklentilerinin devam ettiğini göstermektedir.

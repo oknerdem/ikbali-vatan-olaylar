@@ -92,3 +92,7 @@ NATO Zirvesi öncesinde Ankara'da düzenlenen operasyonlarda 8 ilde toplam 37 ş
 ## Güncelleme - 2026-07-11
 
 Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında belediye binasında arama yapılırken, çok sayıda kişi hakkında gözaltı kararı verildiği bildirildi. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, CHP yetkilileri operasyonun siyasi olduğunu savunarak tepki gösterdi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
+
+## Güncelleme - 2026-07-11 (2)
+
+Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında belediye binasında arama yapılırken, Belediye Başkanı Hüseyin Can Güner'in de aralarında bulunduğu çok sayıda kişi hakkında gözaltı kararı verildiği bildirildi. CHP yetkilileri, operasyonun siyasi olduğunu savunarak tepki gösterdi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
