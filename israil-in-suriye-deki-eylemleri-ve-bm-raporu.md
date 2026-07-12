@@ -24,3 +24,7 @@ Bu gelişmeler, İsrail'in Suriye'deki eylemlerine ilişkin BM raporunun yayınl
 ## Güncelleme - 2026-07-03 (2)
 
 Suriye'nin başkenti Şam'da meydana gelen ve 9 kişinin hayatını kaybettiği, 20 kişinin yaralandığı terör saldırısını Türkiye Dışişleri Bakanlığı sert bir dille kınadı. Bakanlık, saldırının bölgesel barış ve istikrarı tehdit ettiğini belirterek, terörle mücadelede Suriye halkının ve hükümetinin yanında olduğunu yineledi.
+
+## Güncelleme - 2026-07-12
+
+Türkiye, Suriye'deki feribot kazasında hayatını kaybedenler için taziye mesajı yayımladı. Dışişleri Bakanlığı tarafından yapılan açıklamada, kazada yaşamını yitirenlerin ailelerine başsağlığı dilenerek, Suriye halkına destek mesajı iletildi. Bu gelişme, Türkiye'nin insani konulardaki hassasiyetini ve bölgesel olaylara verdiği önemi bir kez daha ortaya koydu.
