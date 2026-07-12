@@ -20,3 +20,7 @@ Operasyonlar, dijital platformlarda yapılan terör propagandasıyla mücadele k
 ## Güncelleme - 2026-06-27
 
 Ankara merkezli olarak yürütülen ve terör örgütlerine yönelik olduğu belirtilen geniş çaplı operasyonlarda, gözaltına alınan 212 şüpheliden 178'i tutuklandı. Bu operasyonlar, terörle mücadele kapsamında dijital platformlardaki faaliyetleri de kapsayarak sürdürülüyor. Tutuklanan şahısların terör örgütü propagandası yapmak ve benzeri suçlamalarla yargılanacağı bildirildi.
+
+## Güncelleme - 2026-07-12
+
+Son gelişmelerde, FETÖ iltisaklı olduğu belirtilen 2702 sosyal medya hesabına erişim engeli getirildi. Dijital terör propagandasına karşı alınan bu önlemler, terörle mücadele kapsamında değerlendiriliyor. Bu engellemeler, daha önceki operasyonların dijital alandaki devamı niteliğinde olup, sanal ortamda yürütülen terör faaliyetlerine karşı yürütülen mücadelenin bir parçasıdır.
