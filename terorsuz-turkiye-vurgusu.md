@@ -26,3 +26,9 @@ Bakan Yardımcısı Turan'ın "Terörsüz bir Türkiye için herkes sorumluluk a
 Milli Güvenlik Kurulu (MGK) son toplantısında, Türkiye'nin terörle mücadelesi ve 'terörsüz Türkiye' hedeflerine yönelik çalışmalar değerlendirildi. Kurulun bildirisinde, bu konudaki kararlılığın teyit edildiği ve bölgesel güvenlik gelişmelerinin de ele alındığı belirtildi.
 
 Bu gelişme, "terörsüz Türkiye" temasının sadece toplumsal etkinliklerle sınırlı kalmayıp, aynı zamanda ulusal güvenlik stratejilerinin merkezinde yer aldığını ve üst düzey devlet kurumları tarafından da önceliklendirildiğini göstermektedir.
+
+## Güncelleme - 2026-07-12
+
+İçişleri Bakanı Mustafa Çiftçi, Hakkari'nin Şemdinli ilçesindeki sınır karakollarını ziyaret ederek "Terörsüz Türkiye" projesinin başarıyla devam ettiğini ve kararlılıkla süreceğini belirtti. Bakan Çiftçi, projenin hayata geçtiğini ve başarıya ulaşacağına dair inancının tam olduğunu vurguladı.
+
+Bu açıklamalar, "Terörsüz Türkiye" hedefinin sadece söylemde kalmadığını, aynı zamanda sınır bölgelerindeki operasyonel faaliyetlerle de desteklendiğini ve devletin bu konudaki kararlılığının altını çizdiğini göstermektedir. Projenin başarıya ulaşacağına dair yapılan vurgular, terörle mücadelenin ülkenin güvenliği ve istikrarı için merkezi bir öncelik olduğunu teyit etmektedir.
