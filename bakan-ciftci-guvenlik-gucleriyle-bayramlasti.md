@@ -22,3 +22,9 @@ Bayram dolayısıyla Milli Savunma Bakanı Yaşar Güler de Mehmetçikle bir ara
 Türkiye ve Suriye arasındaki ilişkilerde yeni bir dönem başlıyor. Milli Savunma Bakanı Yaşar Güler, Suriyeli mevkidaşı Ebu Kasra ile Ankara'da bir araya gelerek savunma ve güvenlik konularını görüştü. Bu görüşme, iki ülke arasındaki diplomatik temasların artması ve bölgesel istikrarın güçlendirilmesi açısından önem taşıyor.
 
 Ekonomik alanda da iş birliği adımları atılıyor. Suriye Ekonomi Bakanı, Türkiye'yi doğal ortakları olarak gördüklerini belirtirken, Türk bankalarının Suriye'de faaliyet gösterme potansiyeli de gündemde. Hedef, iki ülke arasındaki ticaret hacmini 10 milyar dolara çıkarmak.
+
+## Güncelleme - 2026-07-12
+
+İçişleri Bakanı Mustafa Çiftçi, sınır hattındaki birlikleri ziyaret ederek terörle mücadeledeki kararlılığı vurguladı. Bakan Çiftçi, "Terörsüz Türkiye projesi hayata geçmiştir ve kararlılıkla devam ederek başarıya ulaşacaktır" ifadelerini kullandı. Bu ziyaret, sınır güvenliğinin sağlanması ve terörün ülke gündeminden çıkarılması hedeflerine yönelik atılan adımların altını çizdi.
+
+Bakan Çiftçi, Şemdinli'deki birliklerle de bir araya gelerek, bölgede artık terörist kovalanmadığını, asayiş ve sınır güvenliğinin gözetlendiğini belirtti. Bu açıklamalar, Türkiye'nin terörle mücadelesindeki stratejik değişimini ve sınır ötesi operasyonların yanı sıra iç güvenlik tedbirlerinin de önemini ortaya koymaktadır.

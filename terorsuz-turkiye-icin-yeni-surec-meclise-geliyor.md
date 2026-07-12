@@ -106,3 +106,7 @@ DEM Parti'den yapılan açıklamalarda, Selahattin Demirtaş'ın serbest bırak�
 Cumhurbaşkanı Recep Tayyip Erdoğan, "Terörsüz Türkiye" sürecinin başarıya ulaşmasıyla birlikte içeride ve dışarıda yeni bir hikaye yazılacağını belirtti. Bu açıklama, sürecin sadece ulusal değil, aynı zamanda uluslararası alanda da yeni bir dönemin başlangıcı olacağına işaret ediyor.
 
 Bu bağlamda, terör örgütünün silah bırakması için yasal bir çerçeve oluşturulması gündemdeyken, bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğu vurgulanıyor. Bu durum, TBMM'ye sunulacak yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor ve siyasi tartışmaların yoğunlaşması bekleniyor.
+
+## Güncelleme - 2026-07-12
+
+Kabine toplantısında "Terörsüz Türkiye" süreci ve NATO zirvesi öncesi güvenlik konuları ele alındı. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak değerlendirildiğini gösteriyor. AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin gündemde olduğunu ve bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğunu belirtti. Bu durum, TBMM'ye sunulacak yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor.

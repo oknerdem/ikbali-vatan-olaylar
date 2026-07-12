@@ -58,3 +58,7 @@ ABD ordusu, İran'a yönelik yeni saldırılar başlattığını duyurdu. Bu gel
 Suriye'deki bombalı saldırılara Türkiye'den sert tepki geldi. İletişim Başkanı Fahrettin Altun, terör eylemlerinin sadece Suriye'nin değil, bölgenin ortak geleceğine yönelik bir tehdit olduğunu belirtti. Bu açıklamalar, Türkiye'nin terörle mücadelesindeki kararlılığını ve bölgesel güvenlik politikalarını vurgulamaktadır.
 
 Bu gelişmeler, daha önce gündeme gelen İran ve ABD arasındaki nükleer anlaşma görüşmeleri ve Çin'in Ukrayna'ya yönelik çağrıları bağlamında, uluslararası ilişkilerdeki gerilimin ve diplomatik hareketliliğin devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-12
+
+İran, Hürmüz Boğazı'nı kapatma tehdidinde bulunarak ABD'nin bölgedeki saldırılarına karşı misilleme yapabileceğini belirtti. Tahran yönetimi, bu tür eylemlerin "onlarca atom bombasından daha önemli" olduğunu vurgulayarak, ABD'nin bölgedeki askeri varlığına ve eylemlerine karşı sert bir duruş sergiledi. Bu durum, iki ülke arasındaki gerilimi daha da tırmandırırken, uluslararası toplumun dikkatini bölgeye çekti.

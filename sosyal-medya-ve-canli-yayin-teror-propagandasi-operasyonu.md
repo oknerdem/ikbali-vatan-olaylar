@@ -24,3 +24,7 @@ Ankara merkezli olarak yürütülen ve terör örgütlerine yönelik olduğu bel
 ## Güncelleme - 2026-07-12
 
 Son gelişmelerde, FETÖ iltisaklı olduğu belirtilen 2702 sosyal medya hesabına erişim engeli getirildi. Dijital terör propagandasına karşı alınan bu önlemler, terörle mücadele kapsamında değerlendiriliyor. Bu engellemeler, daha önceki operasyonların dijital alandaki devamı niteliğinde olup, sanal ortamda yürütülen terör faaliyetlerine karşı yürütülen mücadelenin bir parçasıdır.
+
+## Güncelleme - 2026-07-12 (2)
+
+Terörle mücadele kapsamında, FETÖ iltisaklı olduğu belirlenen 2.702 sosyal medya hesabına erişim engellendi. Bu engellemeler, dijital platformlarda yürütülen terör propagandası ve dezenformasyonla mücadele çabalarının bir parçası olarak değerlendiriliyor. Benzer şekilde, başka bir operasyonda ise terör propagandası ve dezenformasyon yaydığı tespit edilen 1.652 sosyal medya hesabına da engel konulduğu bildirildi. Bu adımlar, sanal ortamda gerçekleştirilen terör faaliyetlerine karşı alınan önlemlerin bir uzantısı olarak görülüyor.
