@@ -110,3 +110,7 @@ Bu bağlamda, terör örgütünün silah bırakması için yasal bir çerçeve o
 ## Güncelleme - 2026-07-12
 
 Kabine toplantısında "Terörsüz Türkiye" süreci ve NATO zirvesi öncesi güvenlik konuları ele alındı. Bu gelişmeler, sürecin siyasi ve güvenlik boyutlarının eş zamanlı olarak değerlendirildiğini gösteriyor. AK Parti Sözcüsü Ömer Çelik, terör örgütünün silah bırakması için yasal bir çerçevenin gündemde olduğunu ve bu çerçevenin hayata geçebilmesi için örgütün tamamen feshedilmesinin şart olduğunu belirtti. Bu durum, TBMM'ye sunulacak yasal düzenlemelerin, silah bırakma koşullarına bağlı olarak şekilleneceğine işaret ediyor.
+
+## Güncelleme - 2026-07-13
+
+İYİ Parti lideri Müsavat Dervişoğlu ise bu tür bir yasal düzenlemeye sert tepki göstererek, "TBMM terör örgütü için yasa çıkarmaz" dedi. Zafer Partisi Genel Başkanı Ümit Özdağ da "Terörsüz Türkiye" söylemini, "Büyük Orta Doğu Projesi'nin bir parçası" olarak nitelendirdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
