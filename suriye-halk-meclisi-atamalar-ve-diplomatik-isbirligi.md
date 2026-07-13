@@ -14,3 +14,9 @@ Bu gelişme, Türkiye'nin bölgesel politikasında Suriye ile olan etkileşimini
 Suriye'de Esad rejiminin devrilmesinin ardından yeni Halk Meclisi ilk oturumunu gerçekleştirdi. Milletvekilleri yemin ederek görevlerine başlarken, bu gelişme Suriye'deki siyasi dönüşümün önemli bir aşamasını teşkil ediyor.
 
 Bu oturum, Türkiye'den yapılan atamalarla birlikte değerlendirildiğinde, iki ülke arasındaki diplomatik ilişkilerin yeni bir döneme girdiğine işaret ediyor. Suriye Halk Meclisi Başkanı'nın Türk akademisyen olması, bu yeni dönemin sembolik ve stratejik önemini vurguluyor.
+
+## Güncelleme - 2026-07-13
+
+Suriye Halk Meclisi'nin ilk oturumu 12 Temmuz 2026'da gerçekleştirildi. Bu oturumda milletvekilleri yemin ederek görevlerine başladı. Türkiye Dışişleri Bakanlığı, Suriye Halk Meclisi'nin ilk oturumunun düzenlenmesini önemli bir adım olarak değerlendirerek destek mesajı verdi.
+
+Meclis Başkanlığı için Abdülhamit Avvak seçildi. Bu gelişmeler, Türkiye'nin Suriye ile olan diplomatik ilişkilerinde yeni bir dönemin başlangıcı olarak yorumlanıyor.
