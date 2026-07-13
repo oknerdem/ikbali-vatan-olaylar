@@ -30,3 +30,7 @@ AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' sürecinde yeni bir aşa
 ## Güncelleme - 2026-07-05
 
 TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" süreciyle ilgili yaptığı açıklamalarda, hazırlanan yasa taslağının bir af niteliği taşımayacağını ve infaz düzenlemesi olacağını belirtti. Kurtulmuş, terör örgütünün silah bırakması ve tasfiyesiyle bu sürecin tamamen geride kalacağını ifade ederek, sürecin sona yaklaşıldığına işaret etti. AK Parti Sözcüsü Ömer Çelik de yasal zeminin Meclis'e gelmesi gerektiğini vurgulayarak, ağır suçların ve genel af uygulamasının teklifin dışında tutulacağını belirtti. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı ve bir infaz düzenlemesi niteliğini pekiştiriyor.
+
+## Güncelleme - 2026-07-13
+
+DEM Parti, hazırlanan çerçeve yasa taslağının bu hafta içinde İmralı Heyeti'ne aktarılmasını beklediklerini açıkladı. Bu gelişme, yasa taslağının içeriği ve süreci hakkında yeni bir beklenti oluşturdu. TBMM Başkanı Numan Kurtulmuş ve AK Parti ile yapılacak görüşmelerin, taslağın son durumu ve sonraki adımları hakkında önemli bilgiler sunması bekleniyor.
