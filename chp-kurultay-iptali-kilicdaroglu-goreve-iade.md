@@ -174,3 +174,7 @@ Bu eleştiriler, CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, 
 CHP'de parti içi ayrışmalar ve hukuki süreçler devam ederken, yeni gelişmeler yaşanıyor. Aziz İhsan Aktaş davasında 3 CHP'li belediye başkanının tahliye talebi reddedildi. Bu durum, parti içindeki hukuki sorunların ve siyasi mücadelenin sürdüğünü gösteriyor.
 
 Öte yandan, parti örgütünde yeni ihraçlar ve atamaların yaşandığına dair haberler de gündeme geldi. Bu gelişmeler, mahkeme kararı sonrası parti içinde yaşanan belirsizliğin ve güç mücadelesinin devam ettiğini ortaya koyuyor.
+
+## Güncelleme - 2026-07-14
+
+Öte yandan, İmralı Heyeti üyesi Sırrı Sakık, mahkemenin verdiği karara ilkesel olarak karşı çıktığını belirterek, bu durumun çözüm süreci gibi daha geniş siyasi dinamikleri etkileyebileceği uyarısında bulundu. Aziz İhsan Aktaş davasında 3 CHP'li belediye başkanının tahliye talebinin reddedilmesi de parti içindeki hukuki sorunların ve siyasi mücadelenin sürdüğünü gösteriyor.

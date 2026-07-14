@@ -62,3 +62,7 @@ Bu gelişmeler, daha önce gündeme gelen İran ve ABD arasındaki nükleer anla
 ## Güncelleme - 2026-07-12
 
 İran, Hürmüz Boğazı'nı kapatma tehdidinde bulunarak ABD'nin bölgedeki saldırılarına karşı misilleme yapabileceğini belirtti. Tahran yönetimi, bu tür eylemlerin "onlarca atom bombasından daha önemli" olduğunu vurgulayarak, ABD'nin bölgedeki askeri varlığına ve eylemlerine karşı sert bir duruş sergiledi. Bu durum, iki ülke arasındaki gerilimi daha da tırmandırırken, uluslararası toplumun dikkatini bölgeye çekti.
+
+## Güncelleme - 2026-07-14
+
+Rusya Dışişleri Bakanı Lavrov, Türkiye'ye yönelik bir çağrıda bulunarak Ukrayna'ya karşı daha yapıcı bir tutum sergilemesini istedi. Lavrov, Türkiye'nin bu konudaki rolünün önemine dikkat çekti. Diğer yandan, Türk Deniz Kuvvetleri'nin Suriye'deki varlığına dair haberler de bölgedeki askeri hareketliliğin arttığını gösteriyor. Bu gelişmeler, Türkiye'nin hem bölgesel hem de küresel siyasetteki etkinliğini ve karşılaştığı diplomatik zorlukları gözler önüne seriyor.
