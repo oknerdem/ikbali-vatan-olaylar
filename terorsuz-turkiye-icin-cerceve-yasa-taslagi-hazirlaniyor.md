@@ -34,3 +34,7 @@ TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" süreciyle ilgili yaptı�
 ## Güncelleme - 2026-07-13
 
 DEM Parti, hazırlanan çerçeve yasa taslağının bu hafta içinde İmralı Heyeti'ne aktarılmasını beklediklerini açıkladı. Bu gelişme, yasa taslağının içeriği ve süreci hakkında yeni bir beklenti oluşturdu. TBMM Başkanı Numan Kurtulmuş ve AK Parti ile yapılacak görüşmelerin, taslağın son durumu ve sonraki adımları hakkında önemli bilgiler sunması bekleniyor.
+
+## Güncelleme - 2026-07-14
+
+Son gelişmelere göre, hazırlanan "Terörsüz Türkiye" çerçeve yasa taslağında Abdullah Öcalan'a yönelik herhangi bir "umut hakkı" veya "özel statü" düzenlemesinin yer almayacağı kesinleşti. AK Parti kaynakları ve siyasi liderlerin açıklamaları, taslağın bu yöndeki iddiaları reddettiğini ve terörle mücadeledeki kararlılığı vurguladığını belirtiyor. Bu durum, daha önce kamuoyunda yer alan ve özellikle MHP lideri Devlet Bahçeli'nin dile getirdiği bazı beklentilere karşılık AK Parti'nin net bir duruş sergilediğini gösteriyor.

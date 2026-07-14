@@ -114,3 +114,7 @@ Kabine toplantısında "Terörsüz Türkiye" süreci ve NATO zirvesi öncesi gü
 ## Güncelleme - 2026-07-13
 
 İYİ Parti lideri Müsavat Dervişoğlu ise bu tür bir yasal düzenlemeye sert tepki göstererek, "TBMM terör örgütü için yasa çıkarmaz" dedi. Zafer Partisi Genel Başkanı Ümit Özdağ da "Terörsüz Türkiye" söylemini, "Büyük Orta Doğu Projesi'nin bir parçası" olarak nitelendirdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-07-14
+
+AK Parti ve DEM Parti'nin terör yasası üzerinde mutabakata vardığına dair iddialar gündeme geldi. Bu iddialara göre, AK Parti'nin hazırladığı yasal çerçeve, terör örgütünün tamamen feshedilmesi şartına bağlanıyor. Ancak, İYİ Parti lideri Müsavat Dervişoğlu, TBMM'nin terör örgütü için yasa çıkaramayacağını belirterek bu duruma sert tepki gösterdi. Zafer Partisi Genel Başkanı Ümit Özdağ ise 'Terörsüz Türkiye' söylemini 'Büyük Orta Doğu Projesi'nin bir parçası' olarak değerlendirdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
