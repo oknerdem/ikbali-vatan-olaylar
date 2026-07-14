@@ -118,3 +118,9 @@ Kabine toplantısında "Terörsüz Türkiye" süreci ve NATO zirvesi öncesi gü
 ## Güncelleme - 2026-07-14
 
 AK Parti ve DEM Parti'nin terör yasası üzerinde mutabakata vardığına dair iddialar gündeme geldi. Bu iddialara göre, AK Parti'nin hazırladığı yasal çerçeve, terör örgütünün tamamen feshedilmesi şartına bağlanıyor. Ancak, İYİ Parti lideri Müsavat Dervişoğlu, TBMM'nin terör örgütü için yasa çıkaramayacağını belirterek bu duruma sert tepki gösterdi. Zafer Partisi Genel Başkanı Ümit Özdağ ise 'Terörsüz Türkiye' söylemini 'Büyük Orta Doğu Projesi'nin bir parçası' olarak değerlendirdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-07-14 (2)
+
+İçişleri Bakanı Ali Yerlikaya, 'Terörsüz Türkiye' hedefinin sadece güvenlik politikası olmadığını, aynı zamanda bir vizyon olduğunu belirtti. Bu vizyonun, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme amacını taşıdığını vurguladı. Bakan Yerlikaya, bu hedefe ulaşmada kararlılıklarının devam ettiğini ifade etti.
+
+Bu açıklamalar, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katarken, vizyonun devlet politikası olarak konumlandırıldığını ve kararlılıkla sürdürüldüğünü göstermektedir.

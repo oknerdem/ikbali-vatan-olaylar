@@ -16,3 +16,7 @@ PKK, silah yakma eyleminin yıl dönümünde yaptığı açıklamada, Türkiye'd
 ## Güncelleme - 2026-07-10 (2)
 
 PKK, silah yakma eyleminin birinci yıl dönümünde yaptığı açıklamada, Türkiye'de siyasi ve hukuki bir adım atılmadığını iddia etti. Örgüt, "iktidarın çabalarına karşılık vermediğini" öne sürerek, çözüm süreci ve terörle mücadele açısından mevcut durumu değerlendiren uzmanların, örgütün fiilen parçalanma sürecine girdiği ve marjinalleşeceği yönündeki öngörülerini destekler nitelikte bir açıklama yaptı.
+
+## Güncelleme - 2026-07-14
+
+Barış Boyun'a ait olduğu iddia edilen dinleme kayıtları, örgütün içindeki potansiyel bir bölünmeye işaret ediyor. Kayıtlarda Boyun'un, PKK'yı yetersiz bulduğu ve yeni bir örgüt kurma hedefinden bahsettiği öne sürülüyor. Bu durum, örgütün mevcut yapısı ve geleceği hakkında yeni soruları gündeme getiriyor. Bu iddialar, örgütün kendi içinde yaşadığı fikir ayrılıklarının ve olası parçalanma süreçlerinin bir yansıması olarak değerlendirilebilir.

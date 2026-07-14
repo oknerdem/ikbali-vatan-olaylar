@@ -32,3 +32,9 @@ CHP'de il başkanlarının görevden alınması ve parti içindeki ihraç tartı
 ## Güncelleme - 2026-06-19
 
 CHP'deki kurultay süreciyle ilgili gelişmeler devam ederken, Adalar Belediye Başkanı'nın gözaltına alınması ve Kılıçdaroğlu'na yönelik mektup üzerinden gelen yanıtlar parti içindeki gerilimi artırdı. Bu gelişmeler, kurultay taleplerinin ve parti içindeki farklı seslerin daha da belirginleşmesine neden oldu. Cumhurbaşkanı Erdoğan, CHP'ye yönelik kurultay çağrılarına tepki göstererek, "Becerebilirseniz şaibesiz kurultay yapın" şeklinde konuştu.
+
+## Güncelleme - 2026-07-14
+
+CHP'deki olağanüstü kurultay talebi, mahkemeye yapılan başvurularla birlikte yargıya taşındı. Özgür Özel'in başını çektiği bir grup tarafından yapılan "Çağrı Heyeti" başvurusu, parti içindeki kurultay sürecini hukuki bir zemine oturtma çabası olarak görülüyor. Bu gelişmeler, CHP'nin iç dinamiklerindeki hareketliliği ve kurultay tartışmalarının seyrini daha da karmaşık hale getirdi.
+
+Cumhurbaşkanı Erdoğan, CHP'ye yönelik kurultay çağrılarına ilişkin yaptığı açıklamada, partiyi "becerebilirseniz şaibesiz kurultay yapın" diyerek eleştirdi. Bu sözler, parti içindeki mevcut gerilimin ve dışarıdan gelen siyasi yorumların bir yansıması olarak değerlendiriliyor.
