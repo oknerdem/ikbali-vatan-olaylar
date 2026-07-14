@@ -66,3 +66,7 @@ Bu gelişmeler, daha önce gündeme gelen İran ve ABD arasındaki nükleer anla
 ## Güncelleme - 2026-07-14
 
 Rusya Dışişleri Bakanı Lavrov, Türkiye'ye yönelik bir çağrıda bulunarak Ukrayna'ya karşı daha yapıcı bir tutum sergilemesini istedi. Lavrov, Türkiye'nin bu konudaki rolünün önemine dikkat çekti. Diğer yandan, Türk Deniz Kuvvetleri'nin Suriye'deki varlığına dair haberler de bölgedeki askeri hareketliliğin arttığını gösteriyor. Bu gelişmeler, Türkiye'nin hem bölgesel hem de küresel siyasetteki etkinliğini ve karşılaştığı diplomatik zorlukları gözler önüne seriyor.
+
+## Güncelleme - 2026-07-15
+
+Türkiye, Yemen'deki Husi saldırılarına sert tepki göstererek Suudi Arabistan ile tam dayanışma içinde olduğunu bildirdi. Dışişleri Bakanlığı tarafından yapılan açıklamada, saldırıların bölgesel barış ve istikrarı tehdit ettiği vurgulandı. Bu gelişme, İran ve ABD arasındaki gerilimin sürdüğü bir dönemde, Orta Doğu'daki diplomatik dengelerin hassasiyetini bir kez daha ortaya koydu.
