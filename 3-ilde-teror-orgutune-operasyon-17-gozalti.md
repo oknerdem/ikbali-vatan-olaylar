@@ -20,3 +20,9 @@ Operasyonların devam ettiği ve gözaltı sayısının değişebileceği ifade 
 13 Temmuz 2026 tarihinde, FETÖ terör örgütüne yönelik 81 ilde eş zamanlı olarak büyük bir operasyon düzenlendi. Operasyon kapsamında, toplam 968 şüpheli hakkında gözaltı kararı çıkarıldı. Ankara merkezli olarak yürütülen soruşturmada, MİT ve Emniyet Genel Müdürlüğü'nün koordinasyonunda gerçekleştirilen operasyonlarda çok sayıda kişi gözaltına alındı.
 
 Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, soruşturmanın FETÖ'nün güncel yapılanmasına ve faaliyetlerine odaklandığı öğrenildi.
+
+## Güncelleme - 2026-07-14
+
+14 Temmuz 2026 tarihinde, İstanbul merkezli olarak 12 ilde eş zamanlı olarak suç örgütlerine yönelik operasyonlar düzenlendi. Bu operasyonlarda çok sayıda şüpheli gözaltına alındı. Operasyonların detayları ve gözaltına alınan şahısların suç örgütleriyle bağlantıları hakkında soruşturma devam ediyor.
+
+Aynı gün, FETÖ terör örgütüne yönelik 81 ilde başlatılan ve Ankara merkezli yürütülen operasyonda ise 704 şüpheli hakkında gözaltı kararı verildi. MİT ve Emniyet Genel Müdürlüğü'nün koordinasyonunda gerçekleştirilen bu operasyonlarda da çok sayıda kişi gözaltına alındı. Gözaltı sayısının artabileceği ve soruşturmanın FETÖ'nün güncel yapılanmasına odaklandığı belirtildi.

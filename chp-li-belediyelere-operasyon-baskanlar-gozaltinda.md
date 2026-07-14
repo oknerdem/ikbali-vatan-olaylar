@@ -100,3 +100,9 @@ Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyes
 ## Güncelleme - 2026-07-12
 
 DEM Parti ve diğer siyasi partilerden gelen tepkilerde operasyonun hukuki değil siyasi olduğu vurgulandı. CHP yetkilileri de operasyona tepki göstererek, bunun siyasi bir hamle olduğunu savundu. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, bu gelişme daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
+
+## Güncelleme - 2026-07-14
+
+Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında belediye binasında arama yapılırken, Belediye Başkanı Hüseyin Can Güner'in de aralarında bulunduğu çok sayıda kişi hakkında gözaltı kararı verildiği bildirildi. DEM Parti ve diğer siyasi partilerden gelen tepkilerde operasyonun hukuki değil siyasi olduğu vurgulandı. CHP yetkilileri de operasyona tepki göstererek, bunun siyasi bir hamle olduğunu savundu.
+
+Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, operasyonun siyasi olduğu yönündeki iddialar ve tepkiler öne çıkıyor.
