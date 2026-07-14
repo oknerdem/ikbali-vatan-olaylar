@@ -22,3 +22,7 @@ DEM Parti, 12. Yargı Paketi'ne yönelik eleştirilerinde, iktidara 'umut hakkı
 ## Güncelleme - 2026-06-29
 
 DEM Parti, 28 Haziran 2026'da Bağcılar ve Diyarbakır'da Abdullah Öcalan'a yönelik 'umut hakkı' ve özgürlük taleplerini dile getiren mitingler düzenledi. Parti sözcüsü Tuncer Bakırhan, bu hakkın tanınmadan barışın mümkün olmayacağını belirtti. Bu gelişmeler, daha önce MHP lideri Devlet Bahçeli'nin gündeme getirdiği ve siyasi tartışmalara yol açan 'umut hakkı' konusunun yeniden gündeme gelmesine neden oldu. İYİ Parti'den gelen tepkilerde ise 'terörist sevicilere geçit yok' ifadeleri kullanıldı.
+
+## Güncelleme - 2026-07-14
+
+AK Parti Sözcüsü Ömer Çelik, Abdullah Öcalan'a yönelik 'umut hakkı' veya 'özel statü' gibi bir uygulamanın söz konusu olmadığını belirtti. Çelik, mevcut yasal çerçevede Öcalan için herhangi bir ayrıcalık bulunmadığını vurgulayarak, bu tür iddiaların gerçeği yansıtmadığını ifade etti. Bu açıklama, daha önce MHP lideri Devlet Bahçeli'nin gündeme getirdiği ve kamuoyunda tartışmalara neden olan 'umut hakkı' konusuna dair siyasi partilerin pozisyonlarını netleştirmeye yönelik bir adım olarak değerlendirildi.
