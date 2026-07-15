@@ -22,3 +22,7 @@ Erdoğan'ın bu ifadeleri, terörün tamamen ortadan kalktığı bir Türkiye'de
 Cumhurbaşkanı Erdoğan, 15 Temmuz hain darbe girişiminin yıl dönümünde yaptığı konuşmada, terörle mücadelenin kararlılıkla sürdürüleceğini ve Türkiye'nin bu mücadeledeki başarısıyla yeni bir döneme gireceğini vurguladı. Erdoğan, "Terörün kökünü kazıyacağız ve Türkiye'yi terörden tamamen arındıracağız. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.
 
 Bu açıklamalar, Türkiye'nin güvenlik politikalarındaki sürekliliği ve terör örgütlerine karşı sıfır tolerans politikasının altını çizmektedir. Erdoğan'ın sözleri, hem iç hem de dış kamuoyuna yönelik terörle mücadeledeki kararlılık mesajı olarak değerlendirilmektedir.
+
+## Güncelleme - 2026-07-16
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, 15 Temmuz hain darbe girişiminin yıl dönümünde yaptığı konuşmada, terörle mücadelenin kararlılıkla sürdürüleceğini ve Türkiye'nin bu mücadeledeki başarısıyla yeni bir döneme gireceğini vurguladı. Erdoğan, "Terör örgütleri için artık deniz tükenmiştir. Türkiye'ye düşmanlıkla varılabilecek hiçbir yer yoktur. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.

@@ -58,3 +58,7 @@ Cumhurbaşkanı Erdoğan da terörsüz Türkiye gibi milli meselelerde uzlaşıy
 TBMM Başkanı Numan Kurtulmuş, terörle mücadelenin büyük ölçüde tamamlandığını ve çıkarılacak yeni yasanın geçici, müstakil ve asla af niteliğinde olmayacağını belirtti. Cumhurbaşkanı Erdoğan da terörsüz Türkiye gibi milli meselelerde uzlaşıya hazır olduklarını ifade etti. Bu açıklamalar, terörle mücadelede gelinen son noktayı ve geleceğe yönelik yasal düzenlemelerin çerçevesini çizmesi açısından önem taşıyor.
 
 Öte yandan, Ümit Özdağ, Ömer Çelik'in açıklamaları sonrası "PKK için yasal zemin mi hazırlanıyor?" sorusunu gündeme getirerek, sürecin şeffaflığına dair eleştirilerde bulundu. Bu durum, yasal düzenlemelerin kamuoyunda farklı yorumlara yol açabileceğini gösteriyor.
+
+## Güncelleme - 2026-07-16
+
+AK Parti ve DEM Parti heyetleri, 'Terörsüz Türkiye' yasası hazırlığı kapsamında bir araya geldi. Bu görüşmeler, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partiler arasında ele alındığına işaret ediyor. Toplantının detayları ve yasa teklifinin içeriği hakkında henüz resmi bir açıklama yapılmamış olsa da, bu gelişme, Türkiye'nin terörle mücadelesinde yeni bir siyasi mutabakat arayışının bir göstergesi olarak değerlendiriliyor.
