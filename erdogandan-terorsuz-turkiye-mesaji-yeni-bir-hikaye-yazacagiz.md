@@ -16,3 +16,9 @@ Terörün sona ermesiyle birlikte hayatın yeniden canlanacağı ve toplumsal ya
 Cumhurbaşkanı Recep Tayyip Erdoğan, terörle mücadelenin başarıyla sonuçlanmasıyla birlikte Türkiye'nin yeni bir döneme gireceğini ve "yeni bir hikâye yazacağını" belirtti. Bu açıklama, ülkenin güvenlik ve toplumsal huzur hedeflerine ulaşma konusundaki kararlılığını pekiştirmektedir.
 
 Erdoğan'ın bu ifadeleri, terörün tamamen ortadan kalktığı bir Türkiye'de ekonomik kalkınma, toplumsal refah ve uluslararası alanda daha güçlü bir konum elde etme vizyonunu yansıtmaktadır. Bu yeni hikâye, ülkenin geleceğine dair umutları ve beklentileri artırmaktadır.
+
+## Güncelleme - 2026-07-15
+
+Cumhurbaşkanı Erdoğan, 15 Temmuz hain darbe girişiminin yıl dönümünde yaptığı konuşmada, terörle mücadelenin kararlılıkla sürdürüleceğini ve Türkiye'nin bu mücadeledeki başarısıyla yeni bir döneme gireceğini vurguladı. Erdoğan, "Terörün kökünü kazıyacağız ve Türkiye'yi terörden tamamen arındıracağız. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.
+
+Bu açıklamalar, Türkiye'nin güvenlik politikalarındaki sürekliliği ve terör örgütlerine karşı sıfır tolerans politikasının altını çizmektedir. Erdoğan'ın sözleri, hem iç hem de dış kamuoyuna yönelik terörle mücadeledeki kararlılık mesajı olarak değerlendirilmektedir.
