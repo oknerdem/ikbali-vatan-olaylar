@@ -46,3 +46,7 @@ Bolu Belediye Başkanı Tanju Özcan, yolsuzluk iddiaları nedeniyle tutuklanmas
 Son günlerde CHP'li belediyelere yönelik artan operasyonlar kapsamında, Seferihisar Belediye Başkanı İsmail Yetişkin'in de aralarında bulunduğu 12 kişi, rüşvet soruşturması kapsamında tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasıyla birlikte, partiye yönelik yargısal süreçlerin devam ettiğini göstermektedir.
 
 Bu tutuklamalar, siyasi gündemde geniş yankı bulurken, CHP'den yapılan açıklamalarda bu durumun siyasi baskı olduğu iddiaları dile getirilmiştir. Yargı süreçlerinin nasıl ilerleyeceği ve partinin bu duruma vereceği tepkiler merak konusu olmaya devam etmektedir.
+
+## Güncelleme - 2026-07-15
+
+Ankara'nın Çankaya ilçesi belediyesine yönelik rüşvet ve yolsuzluk soruşturması kapsamında, Belediye Başkanı Hüseyin Can Güner ile birlikte 23 kişi daha tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasının ardından, CHP'li belediyelere yönelik yargısal süreçlerin devam ettiğini göstermektedir. Soruşturma kapsamında gözaltına alınan toplam 24 kişi, çıkarıldıkları mahkemece tutuklanarak cezaevine gönderildi. Olay, siyasi çevrelerde ve kamuoyunda geniş yankı buldu.
