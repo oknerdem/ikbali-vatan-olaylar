@@ -106,3 +106,7 @@ DEM Parti ve diğer siyasi partilerden gelen tepkilerde operasyonun hukuki deği
 Ankara Cumhuriyet Başsavcılığı'nın talimatıyla, CHP'li Çankaya Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında belediye binasında arama yapılırken, Belediye Başkanı Hüseyin Can Güner'in de aralarında bulunduğu çok sayıda kişi hakkında gözaltı kararı verildiği bildirildi. DEM Parti ve diğer siyasi partilerden gelen tepkilerde operasyonun hukuki değil siyasi olduğu vurgulandı. CHP yetkilileri de operasyona tepki göstererek, bunun siyasi bir hamle olduğunu savundu.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, operasyonun siyasi olduğu yönündeki iddialar ve tepkiler öne çıkıyor.
+
+## Güncelleme - 2026-07-16
+
+Beykoz Belediyesi'ne yönelik rüşvet soruşturması kapsamında ikinci bir operasyon düzenlendi. Bu yeni operasyonda, belediye meclis üyeleri ve iş insanlarının da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor.
