@@ -74,3 +74,7 @@ Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı
 ## Güncelleme - 2026-07-04
 
 14 ilde siber suçlara yönelik düzenlenen operasyonlarda 306 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-07-17
+
+16 Temmuz 2026 tarihinde, FETÖ'nün emniyet mahrem yapılanmasına yönelik bir operasyon düzenlendi ve 16 kişi tutuklandı. Aynı gün, terör örgütü DEAŞ'a yönelik bir operasyon daha gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendirilmektedir.
