@@ -28,3 +28,9 @@ Son olarak, 29 Haziran 2026 tarihinde İçişleri Bakanlığı tarafından yapı
 ## Güncelleme - 2026-07-02
 
 Milli Savunma Bakanlığı (MSB) tarafından yapılan son açıklamalara göre, 29 Haziran 2026 tarihi itibarıyla ikna çalışmaları sonucunda 2026 yılı başından bu yana teslim olan terörist sayısı 134'e ulaşmıştır. Bu rakam, daha önceki güncellemelerde belirtilen 99'luk sayıyı da kapsamaktadır ve terörle mücadeledeki kararlılığın sürdüğünü göstermektedir.
+
+## Güncelleme - 2026-07-16
+
+Milli Savunma Bakanlığı (MSB) tarafından 16 Temmuz 2026'da yapılan bilgilendirmeye göre, son bir haftada 3 PKK'lı terörist güvenlik güçlerine teslim olmuştur. Bu gelişme, terörle mücadele kapsamında yürütülen ikna ve operasyonel faaliyetlerin devamlılığını teyit etmektedir.
+
+Aynı dönemde, hudut birlikleri tarafından 404 kişinin yakalandığı bildirilmiştir. Bu rakamlar, sınır güvenliğinin sağlanması ve terörle mücadelenin etkin bir şekilde sürdürüldüğünü göstermektedir.

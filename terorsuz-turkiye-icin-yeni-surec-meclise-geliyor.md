@@ -124,3 +124,7 @@ AK Parti ve DEM Parti'nin terör yasası üzerinde mutabakata vardığına dair 
 İçişleri Bakanı Ali Yerlikaya, 'Terörsüz Türkiye' hedefinin sadece güvenlik politikası olmadığını, aynı zamanda bir vizyon olduğunu belirtti. Bu vizyonun, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme amacını taşıdığını vurguladı. Bakan Yerlikaya, bu hedefe ulaşmada kararlılıklarının devam ettiğini ifade etti.
 
 Bu açıklamalar, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili sürece yeni bir boyut katarken, vizyonun devlet politikası olarak konumlandırıldığını ve kararlılıkla sürdürüldüğünü göstermektedir.
+
+## Güncelleme - 2026-07-16
+
+DEM Parti'nin İmralı heyeti, MHP lideri Devlet Bahçeli'yi TBMM'de ziyaret ederek 'Terörsüz Türkiye' süreci ve 'çerçeve yasa' konularını görüştü. Bu görüşme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin yaklaşımlarını yansıtması açısından önem taşıyor. AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu'nun Öcalan'ın özgürlüğünün millete sorulması gerektiği yönündeki açıklaması, sürece dair siyasi hassasiyetleri ve tartışmaları gündeme getirdi.
