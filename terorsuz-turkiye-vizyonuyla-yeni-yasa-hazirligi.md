@@ -42,3 +42,9 @@ Milliyetçi Hareket Partisi (MHP) yetkilileri, 'Terörsüz Türkiye' vizyonunun 
 Milliyetçi Hareket Partisi (MHP) yetkilileri, 'terörsüz Türkiye' vizyonunun devlet politikası olduğunu ve Türk milletinin değişmez bir ideali olduğunu vurguladı. MHP Grup Başkan Vekili Akçay, Devlet Bahçeli'nin bu politikasıyla 'Hz. Nuh'un gemisini yeniden inşa ettiğini' ifade ederken, MHP'li Büyükataman ise 'terörsüz Türkiye'nin milli savunma kalkanı haline geldiğini belirtti. Bu açıklamalar, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partilerce güçlü bir şekilde desteklendiğini ve ulusal güvenlik stratejisinin önemli bir parçası olarak görüldüğünü ortaya koymaktadır.
 
 Öte yandan, MHP'li Küçük'ün Diyarbakır'daki 'terörsüz Türkiye' çıkışı, bu vizyonun kardeşlik temelinde inşa edileceği mesajını verirken, Cem Tufan'ın '81 il kardeş' vurgusu da toplumsal bütünlüğe dikkat çekmektedir. Bu söylemler, hazırlanan yasa taslağının sadece güvenlik odaklı değil, aynı zamanda toplumsal barış ve birlik ideallerini de barındırdığını göstermektedir.
+
+## Güncelleme - 2026-07-16
+
+İYİ Parti Kocaeli Milletvekili Lütfü Türkdoğan, TBMM Başkanlığı'na sunduğu soru önergesiyle, "Öcalan dosyasının" akıbetini sordu. Türkdoğan, "Terörsüz Türkiye" vizyonuyla hazırlanan yasa taslağının gündemde olduğu bir dönemde, 16 yıldır Meclis'te bekleyen "Öcalan dosyasının" neden işlem görmediğini ve bu konudaki güncel durumun ne olduğunu sormuş oldu.
+
+Öte yandan, MHP Genel Başkanı Devlet Bahçeli'nin DEM Parti heyetini kabul ettiği ve "terörsüz Türkiye" temaslarının ele alındığı belirtildi. Bu görüşmenin perde arkasına dair detaylar henüz kamuoyuyla paylaşılmazken, terörle mücadele ve siyasi çözüm süreçlerine dair farklı yaklaşımların masaya yatırıldığı tahmin ediliyor.
