@@ -36,3 +36,9 @@ Bu açıklamalar, çözüm süreci ve yasal düzenlemelerle ilgili siyasi geliş
 DEM Parti, Çankaya Belediyesi'ne yönelik operasyonun ardından yaptığı açıklamada, 'Bir Belediyeden Diğerine Uzanan Bu Kuşatma Derhal Son Bulmalıdır' diyerek tepki gösterdi. Parti, bu tür müdahalelerin siyasi süreci olumsuz etkilediğini ve demokratik süreçlere zarar verdiğini belirtti. Bu gelişme, partinin daha önceki 'çerçeve yasa' ve 'onurlu dönüş' talepleriyle birlikte değerlendirildiğinde, siyasi tansiyonun yükseldiğine işaret ediyor.
 
 Parti sözcüleri, Çankaya Belediyesi'ne yapılan operasyonun, siyasi iktidarın muhalif belediyeler üzerindeki baskısını artırma çabası olarak gördüklerini ifade ettiler. Bu durumun, çözüm süreci ve genel siyasi atmosfer üzerindeki etkileri konusunda endişeler dile getirildi.
+
+## Güncelleme - 2026-07-16
+
+DEM Parti İmralı Heyeti, AK Parti'li yetkililerle bir araya gelerek çözüm süreci ve 'çerçeve yasa' konularını görüştü. Görüşmede, sürecin ilerleyişi ve yasal düzenlemelerin kapsamı ele alındı. Bu görüşme, partinin daha önceki talepleriyle paralellik gösterirken, siyasi gündemdeki yerini koruyor.
+
+AK Parti'nin de sürece ilişkin değerlendirmelerde bulunduğu ve 'çerçeve yasa'nın Meclis'in tatile girmeden çıkarılması yönündeki beklentisini dile getirdiği belirtildi. Bu gelişmeler, çözüm süreci ve siyasi taleplerin takibi açısından önem arz ediyor.
