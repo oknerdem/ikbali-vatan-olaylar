@@ -50,3 +50,9 @@ Bu tutuklamalar, siyasi gündemde geniş yankı bulurken, CHP'den yapılan açı
 ## Güncelleme - 2026-07-15
 
 Ankara'nın Çankaya ilçesi belediyesine yönelik rüşvet ve yolsuzluk soruşturması kapsamında, Belediye Başkanı Hüseyin Can Güner ile birlikte 23 kişi daha tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasının ardından, CHP'li belediyelere yönelik yargısal süreçlerin devam ettiğini göstermektedir. Soruşturma kapsamında gözaltına alınan toplam 24 kişi, çıkarıldıkları mahkemece tutuklanarak cezaevine gönderildi. Olay, siyasi çevrelerde ve kamuoyunda geniş yankı buldu.
+
+## Güncelleme - 2026-07-18
+
+CHP'li Akçakoca Belediye Başkanı Fikret Albayrak, hakkında verilen tahliye kararının ardından tekrar tutuklandı. Bu gelişme, daha önce 'icbar suretiyle irtikap' suçlamasıyla tutuklanan Albayrak'ın hukuki sürecinde yaşanan bir dönüm noktası olarak kayıtlara geçti.
+
+Albayrak'ın yeniden tutuklanması, yerel siyaset ve yargı gündeminde tartışılmaya devam ederken, kararın gerekçeleri ve hukuki sürecin bundan sonraki aşamaları merak konusu olmuştur. Bu durum, benzer davalarda verilen kararlar ve yargı bağımsızlığı tartışmalarını da beraberinde getirmektedir.
