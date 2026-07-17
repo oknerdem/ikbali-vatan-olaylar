@@ -26,3 +26,9 @@ Bu açıklamalar, Türkiye'nin güvenlik politikalarındaki sürekliliği ve ter
 ## Güncelleme - 2026-07-16
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, 15 Temmuz hain darbe girişiminin yıl dönümünde yaptığı konuşmada, terörle mücadelenin kararlılıkla sürdürüleceğini ve Türkiye'nin bu mücadeledeki başarısıyla yeni bir döneme gireceğini vurguladı. Erdoğan, "Terör örgütleri için artık deniz tükenmiştir. Türkiye'ye düşmanlıkla varılabilecek hiçbir yer yoktur. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.
+
+## Güncelleme - 2026-07-17
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, Hakkari'de bir şenliğe telefonla bağlanarak bölgede terörün son bulmasıyla yeni bir hikâye yazılacağını belirtti. Erdoğan, "Terör örgütleri için artık deniz tükenmiştir. Türkiye'ye düşmanlıkla varılabilecek hiçbir yer yoktur. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.
+
+Bu açıklamalar, Türkiye'nin terörle mücadelesindeki kararlılığını ve güvenlik politikalarındaki sürekliliği vurgulamaktadır. Erdoğan'ın sözleri, hem iç hem de dış kamuoyuna yönelik terörle mücadeledeki kararlılık mesajı olarak değerlendirilmektedir.

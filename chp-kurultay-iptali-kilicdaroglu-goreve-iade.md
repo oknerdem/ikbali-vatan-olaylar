@@ -188,3 +188,7 @@ CHP'de parti içi gerilim devam ederken, Konya ve Tokat il başkanları tedbirli
 CHP'deki "mutlak butlan" kararının ardından başlayan hukuki süreçte yeni bir gelişme yaşandı. Mahkemenin verdiği karara ilişkin iptal başvurusunun Yargıtay'a ulaştığı bildirildi. Bu durum, kararın kesinleşip kesinleşmeyeceği konusundaki belirsizliği sürdürürken, partideki siyasi tansiyonun da devam ettiğini gösteriyor.
 
 Bu aşamada, Yargıtay'ın konuyu ne zaman ele alacağı ve nasıl bir karar vereceği merak konusu. Kararın Yargıtay tarafından onanması veya bozulması, CHP'nin gelecekteki genel başkanlık ve kurultay süreçleri açısından kritik önem taşıyor.
+
+## Güncelleme - 2026-07-17 (2)
+
+CHP'ye yönelik "mutlak butlan" kararının iptali için yapılan başvuru Yargıtay'a ulaştı. Bu gelişme, kararın hukuki sürecinin devam ettiğini ve partideki belirsizliğin sürdüğünü gösteriyor. Öte yandan, Kemal Kılıçdaroğlu ve Özgür Özel arasında bir cenaze töreninde yaşanan "Genel Başkan benim" krizi, parti içindeki liderlik mücadelesinin ve ayrışmaların ne kadar derinleştiğinin bir göstergesi olarak öne çıktı.
