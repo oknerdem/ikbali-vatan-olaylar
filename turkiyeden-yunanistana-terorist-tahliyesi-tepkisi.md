@@ -32,3 +32,9 @@ AK Parti Sözcüsü Ömer Çelik, Koç Holding kurumlarına yönelik gerçekleş
 ## Güncelleme - 2026-07-05
 
 Gazeteci Murat İde, Yunanistan'ın serbest bıraktığı teröristin "pişman değiliz" şeklindeki ifadelerine sert tepki göstererek, devletin bu teröristi pişman etmesi gerektiğini belirtti. Bu yorum, olayın toplumsal ve siyasi yankısını derinleştirmekte ve terörle mücadelede devletin kararlılığının önemini vurgulamaktadır.
+
+## Güncelleme - 2026-07-17
+
+Milli Savunma Bakanlığı (MSB), Rum terör örgütü EOKA'nın Kıbrıs'taki katliamlarını anlatan bir video paylaşarak, bu olayların unutulmayacağını belirtti. Paylaşımda, EOKA'nın sivillere yönelik vahşi saldırılarına ve işlediği cinayetlere dikkat çekildi. Bu tarihi hatırlatma, Türkiye'nin terörle mücadeledeki kararlılığını ve geçmişte yaşanan acıları unutmama politikasını pekiştirmektedir.
+
+Bu gelişme, Türkiye'nin terörle mücadeledeki duruşunu ve uluslararası alandaki hassasiyetini bir kez daha ortaya koyarken, geçmişteki acı olayların hafızalarda canlı tutulmasının önemini vurgulamaktadır.
