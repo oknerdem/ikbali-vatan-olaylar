@@ -26,3 +26,7 @@ Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi
 14 Temmuz 2026 tarihinde, İstanbul merkezli olarak 12 ilde eş zamanlı olarak suç örgütlerine yönelik operasyonlar düzenlendi. Bu operasyonlarda çok sayıda şüpheli gözaltına alındı. Operasyonların detayları ve gözaltına alınan şahısların suç örgütleriyle bağlantıları hakkında soruşturma devam ediyor.
 
 Aynı gün, FETÖ terör örgütüne yönelik 81 ilde başlatılan ve Ankara merkezli yürütülen operasyonda ise 704 şüpheli hakkında gözaltı kararı verildi. MİT ve Emniyet Genel Müdürlüğü'nün koordinasyonunda gerçekleştirilen bu operasyonlarda da çok sayıda kişi gözaltına alındı. Gözaltı sayısının artabileceği ve soruşturmanın FETÖ'nün güncel yapılanmasına odaklandığı belirtildi.
+
+## Güncelleme - 2026-07-17
+
+Ankara merkezli olarak yürütülen bir operasyonda, "Ağa" lakaplı organize suç örgütüne yönelik yapılan çalışmalarda 12 şüphelinin tutuklandığı bildirildi. Bu gelişme, daha önce Muğla merkezli olarak üç ilde gerçekleştirilen ve 17 kişinin gözaltına alındığı terör örgütü operasyonunun ardından geldi. Operasyonların organize suç ve terörle mücadele kapsamında devam ettiği belirtildi.
