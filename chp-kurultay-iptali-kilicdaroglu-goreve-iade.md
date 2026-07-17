@@ -182,3 +182,9 @@ CHP'de parti içi ayrışmalar ve hukuki süreçler devam ederken, yeni gelişme
 ## Güncelleme - 2026-07-16
 
 CHP'de parti içi gerilim devam ederken, Konya ve Tokat il başkanları tedbirli olarak kesin ihraç talebiyle Yüksek Disiplin Kurulu'na sevk edildi. Bu gelişme, parti içindeki ayrışmaların ve disiplin süreçlerinin sürdüğünü gösteriyor. Öte yandan, Özgür Özel'in yeni bir parti kurabileceğine dair sinyallerin olduğu yönündeki haberler de parti içindeki belirsizliği artırdı.
+
+## Güncelleme - 2026-07-17
+
+CHP'deki "mutlak butlan" kararının ardından başlayan hukuki süreçte yeni bir gelişme yaşandı. Mahkemenin verdiği karara ilişkin iptal başvurusunun Yargıtay'a ulaştığı bildirildi. Bu durum, kararın kesinleşip kesinleşmeyeceği konusundaki belirsizliği sürdürürken, partideki siyasi tansiyonun da devam ettiğini gösteriyor.
+
+Bu aşamada, Yargıtay'ın konuyu ne zaman ele alacağı ve nasıl bir karar vereceği merak konusu. Kararın Yargıtay tarafından onanması veya bozulması, CHP'nin gelecekteki genel başkanlık ve kurultay süreçleri açısından kritik önem taşıyor.

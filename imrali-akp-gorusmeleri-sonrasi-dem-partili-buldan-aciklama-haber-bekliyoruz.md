@@ -16,3 +16,7 @@ AKP ve İmralı heyeti arasındaki görüşmelerin ardından DEM Parti'den yapı
 ## Güncelleme - 2026-07-16 (2)
 
 DEM Parti'nin İmralı heyeti, MHP Genel Başkanı Devlet Bahçeli ile bir görüşme gerçekleştirdi. Bu görüşme, İmralı'daki süreçle ilgili siyasi temasların çeşitlendiğini gösteriyor. Görüşmenin içeriği ve İmralı süreci üzerindeki olası etkileri hakkında henüz resmi bir açıklama yapılmadı.
+
+## Güncelleme - 2026-07-17
+
+DEM Parti heyetinin İmralı'ya yapacağı ziyaretin tarihi netleşti. Heyet, 23 Temmuz Perşembe günü Abdullah Öcalan ile görüşmek üzere İmralı Adası'na gidecek. Bu gelişme, çözüm süreciyle ilgili beklentileri artırırken, görüşmelerin içeriği ve sonuçları kamuoyu tarafından merakla bekleniyor.
