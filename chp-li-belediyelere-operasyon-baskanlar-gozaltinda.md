@@ -114,3 +114,7 @@ Beykoz Belediyesi'ne yönelik rüşvet soruşturması kapsamında ikinci bir ope
 ## Güncelleme - 2026-07-16 (2)
 
 Manisa merkezli olarak düzenlenen rüşvet ve suç örgütü operasyonunda, aralarında CHP'li meclis üyelerinin de bulunduğu 12 kişi gözaltına alındı. MASAK raporuyla başlatıldığı belirtilen soruşturmada, rüşvet ve organize suç iddiaları mercek altına alındı. Operasyonun detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor.
+
+## Güncelleme - 2026-07-17
+
+Ahbap soruşturması kapsamında CHP'nin Ticaret ve Politika Kurulu Başkanı ile PM Üyesi Emre Kartaloğlu'nun da aralarında bulunduğu bazı isimler gözaltına alındı. Gözaltı gerekçeleri ve soruşturmanın detayları hakkında bilgiler gelmeye devam ediyor. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların ardından siyasi gündemdeki yerini koruyor.
