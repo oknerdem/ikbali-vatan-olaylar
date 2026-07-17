@@ -20,3 +20,7 @@ DEM Parti'nin İmralı heyeti, MHP Genel Başkanı Devlet Bahçeli ile bir gör�
 ## Güncelleme - 2026-07-17
 
 DEM Parti heyetinin İmralı'ya yapacağı ziyaretin tarihi netleşti. Heyet, 23 Temmuz Perşembe günü Abdullah Öcalan ile görüşmek üzere İmralı Adası'na gidecek. Bu gelişme, çözüm süreciyle ilgili beklentileri artırırken, görüşmelerin içeriği ve sonuçları kamuoyu tarafından merakla bekleniyor.
+
+## Güncelleme - 2026-07-17 (2)
+
+DEM Parti İmralı Heyeti'nin Abdullah Öcalan ile yapacağı görüşmenin tarihi netleşti. Heyet, 23 Temmuz Perşembe günü İmralı Adası'na giderek Öcalan ile bir araya gelecek. Bu gelişme, çözüm süreciyle ilgili beklentileri artırırken, görüşmelerin içeriği ve olası sonuçları kamuoyu tarafından merakla bekleniyor.

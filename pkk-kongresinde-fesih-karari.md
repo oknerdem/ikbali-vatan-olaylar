@@ -20,3 +20,7 @@ PKK, silah yakma eyleminin birinci yıl dönümünde yaptığı açıklamada, T�
 ## Güncelleme - 2026-07-14
 
 Barış Boyun'a ait olduğu iddia edilen dinleme kayıtları, örgütün içindeki potansiyel bir bölünmeye işaret ediyor. Kayıtlarda Boyun'un, PKK'yı yetersiz bulduğu ve yeni bir örgüt kurma hedefinden bahsettiği öne sürülüyor. Bu durum, örgütün mevcut yapısı ve geleceği hakkında yeni soruları gündeme getiriyor. Bu iddialar, örgütün kendi içinde yaşadığı fikir ayrılıklarının ve olası parçalanma süreçlerinin bir yansıması olarak değerlendirilebilir.
+
+## Güncelleme - 2026-07-17
+
+PKK yöneticisi Duran Kalkan, yaptığı açıklamalarda Abdullah Öcalan ile görüştüklerini ve sürecin devam ettiğini, 'batmayacağını' belirtti. Kalkan, örgütün siyasi zemine geçiş yaparak demokratik siyaset içinde yer alması gerektiğini ifade etti. Bu açıklamalar, örgütün içindeki olası bölünmeler ve geleceğine dair tartışmalar sürerken, Duran Kalkan'ın 'süreç' vurgusu dikkat çekti.
