@@ -78,3 +78,9 @@ Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı
 ## Güncelleme - 2026-07-17
 
 16 Temmuz 2026 tarihinde, FETÖ'nün emniyet mahrem yapılanmasına yönelik bir operasyon düzenlendi ve 16 kişi tutuklandı. Aynı gün, terör örgütü DEAŞ'a yönelik bir operasyon daha gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendirilmektedir.
+
+## Güncelleme - 2026-07-18
+
+Türkiye genelinde 30 ilde DEAŞ terör örgütüne yönelik düzenlenen eş zamanlı operasyonlarda 119 şüpheli yakalandı. İçişleri Bakanlığı'ndan yapılan açıklamaya göre, operasyonlar sonucunda gözaltına alınan şüphelilerin emniyetteki işlemleri devam ediyor.
+
+Bu operasyonlar, terör örgütlerinin faaliyetlerini engellemeye yönelik sürdürülen mücadelenin bir parçası olarak değerlendiriliyor. Yakalanan şüphelilerin örgüte üye kazandırma, propaganda yapma ve finansal destek sağlama gibi suçlamalarla karşı karşıya kalması bekleniyor.
