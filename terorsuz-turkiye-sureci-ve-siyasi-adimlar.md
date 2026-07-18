@@ -34,3 +34,9 @@ MHP kulislerinde, 'Terörsüz Türkiye' sürecinin ikinci plana itildiği ve tü
 TBMM Başkanı Numan Kurtulmuş ve AK Parti Sözcüsü Ömer Çelik, Türkiye'nin terörle mücadelesinde yeni bir aşamaya gelindiğini belirterek, terörün ülke gündeminden kalkacağı yönündeki beklentilerini dile getirdiler. Bu açıklamalar, 'Terörsüz Türkiye' söyleminin siyasi gündemdeki yerini koruduğunu ve bu hedefe yönelik kararlılığın sürdüğünü göstermektedir.
 
 DEM Parti'den de benzer bir vurgu gelirken, Hatimoğulları'nın 'Terörsüz Türkiye' çıkışı, konunun farklı siyasi aktörler tarafından da gündemde tutulduğunu ortaya koydu. Bu gelişmeler, terörle mücadele ve toplumsal huzurun sağlanması konularının siyasi tartışmaların merkezinde yer almaya devam ettiğini teyit etmektedir.
+
+## Güncelleme - 2026-07-18
+
+PKK yöneticilerinden Duran Kalkan, "süreç batmayacak" ve "siyasetin önü açıldıkça silahlı mücadele stratejisi bir daha gündeme gelmez" açıklamalarıyla çözüm süreciyle ilgili yeni bir döneme işaret etti. Bu açıklamalar, daha önceki süreçlerden farklı bir yol izleneceği ve siyasi çözümün önceliklendirileceği yönünde yorumlandı.
+
+Öte yandan, DEM Parti'nin çözüm sürecine yönelik "çerçeve yasa" talebi ve bu konudaki siyasi tartışmalar devam ederken, MHP'nin bayram sonrası bu hedef doğrultusunda adımlar atılacağı yönündeki açıklamaları, sürecin siyasi gündemdeki yerini koruduğunu gösteriyor. Ancak, Meclis'in çalışmaması nedeniyle bu adımların gecikebileceği endişeleri de dile getiriliyor.
