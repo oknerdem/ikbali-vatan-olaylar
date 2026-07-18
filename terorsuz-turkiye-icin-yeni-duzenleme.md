@@ -62,3 +62,7 @@ TBMM Başkanı Numan Kurtulmuş, terörle mücadelenin büyük ölçüde tamamla
 ## Güncelleme - 2026-07-16
 
 AK Parti ve DEM Parti heyetleri, 'Terörsüz Türkiye' yasası hazırlığı kapsamında bir araya geldi. Bu görüşmeler, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partiler arasında ele alındığına işaret ediyor. Toplantının detayları ve yasa teklifinin içeriği hakkında henüz resmi bir açıklama yapılmamış olsa da, bu gelişme, Türkiye'nin terörle mücadelesinde yeni bir siyasi mutabakat arayışının bir göstergesi olarak değerlendiriliyor.
+
+## Güncelleme - 2026-07-18
+
+Diğer yandan, MHP Çelikhan'da yapılan bir toplantıda 'Terörsüz Türkiye' vurgusu yaparken, Aydın'dan da sürece ortak destek mesajları geldi. Bu destekler, terörle mücadele konusundaki toplumsal ve siyasi birliğin pekiştiğini gösteriyor. Ancak, Odatv'nin haberine göre, 'Terörsüz Türkiye' yasası konusunda bir çıkmaz yaşandığı ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise erken adım istediği belirtiliyor. Bu durum, yasal düzenlemelerin zamanlaması ve içeriği konusunda farklı görüşlerin olduğunu ortaya koyuyor.

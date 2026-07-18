@@ -34,3 +34,9 @@ Ankara merkezli olarak düzenlenen ve "yeni nesil" suç örgütlerini hedef alan
 Son günlerde Türkiye genelinde terör örgütlerine yönelik düzenlenen operasyonlarda gözaltına alınan şüphelilerle ilgili yeni gelişmeler yaşanıyor. Özellikle İstanbul merkezli operasyonlarda çok sayıda kişi yakalanırken, bu operasyonların bir önceki döneme göre artış gösterdiği belirtiliyor. Güvenlik güçlerinin terörle mücadelesini kararlılıkla sürdürdüğü ve operasyonel yoğunluğun arttığı gözlemleniyor.
 
 Bu kapsamda, NATO operasyonlarında gözaltına alınan 33 kişi hakkında tutuklama talebiyle ilgili hukuki süreç devam ederken, siyasi parti üye ve yöneticilerinin tutuklanmaya sevk edilmelerinin siyasi saiklerle hareket edildiği yönünde değerlendirmeler de yapılıyor. Terörle mücadelede yeni bir güvenlik felsefesi gerektiği vurgulanırken, bu tür operasyonların ülkenin güvenliği açısından önemi bir kez daha ortaya konuluyor.
+
+## Güncelleme - 2026-07-18
+
+18 Temmuz 2026 tarihinde, terör örgütleri DEAŞ ve TKP/ML'ye yönelik eş zamanlı olarak 30 ilde operasyon düzenlendi. Bu operasyonlarda toplam 119 şüpheli yakalanarak gözaltına alındı. Operasyonlar kapsamında Mersin'de jandarma ve MİT'in ortak çalışmasıyla TKP/ML üyesi bir teröristin etkisiz hale getirildiği bildirildi.
+
+Bu operasyonlar, Türkiye genelinde terörle mücadelenin kararlılıkla sürdürüldüğünü ve farklı terör örgütlerine karşı eş güdümlü çalışmaların devam ettiğini göstermektedir. Gözaltına alınan şüphelilerle ilgili hukuki süreçler devam etmektedir.
