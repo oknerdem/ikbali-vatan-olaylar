@@ -30,3 +30,9 @@ Aynı gün, FETÖ terör örgütüne yönelik 81 ilde başlatılan ve Ankara mer
 ## Güncelleme - 2026-07-17
 
 Ankara merkezli olarak yürütülen bir operasyonda, "Ağa" lakaplı organize suç örgütüne yönelik yapılan çalışmalarda 12 şüphelinin tutuklandığı bildirildi. Bu gelişme, daha önce Muğla merkezli olarak üç ilde gerçekleştirilen ve 17 kişinin gözaltına alındığı terör örgütü operasyonunun ardından geldi. Operasyonların organize suç ve terörle mücadele kapsamında devam ettiği belirtildi.
+
+## Güncelleme - 2026-07-18
+
+18 Temmuz 2026 tarihinde, İçişleri Bakanlığı tarafından yapılan açıklamada, DEAŞ terör örgütüne yönelik 30 ilde eş zamanlı olarak düzenlenen operasyonlarda 119 şüphelinin yakalandığı duyuruldu. Operasyonların Jandarma tarafından gerçekleştirildiği ve gözaltı sayısının bu şekilde arttığı belirtildi.
+
+Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. DEAŞ operasyonlarının, ülke genelindeki terörle mücadele kapsamında devam ettiği ve genişletildiği anlaşıldı.
