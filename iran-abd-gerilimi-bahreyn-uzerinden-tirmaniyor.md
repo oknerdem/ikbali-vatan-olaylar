@@ -14,3 +14,9 @@ Saldırının ardından İran'dan yapılan açıklamada, ABD'nin ülkenin güney
 İran, ABD'nin bölgedeki askeri operasyonlarına karşı sert bir uyarıda bulunarak, saldırıların devam etmesi halinde "kapsamlı imha aşamasına geçileceğini" belirtti. Bu açıklama, iki ülke arasındaki gerilimin daha da tırmanabileceği endişelerini artırdı.
 
 ABD ordusu ise İran'a yönelik yeni bir saldırı dalgası başlattığını duyurdu. Bu karşılıklı adımlar, bölgedeki istikrarsızlığın artmasına ve tansiyonun yükselmesine neden oluyor.
+
+## Güncelleme - 2026-07-18 (2)
+
+ABD ordusu, İran'a yönelik 7 gecedir devam eden saldırıların son dalgasının tamamlandığını duyurdu. Bu açıklama, iki ülke arasındaki gerilimin mevcut durumunu ve ABD'nin operasyonel stratejisini yansıtmaktadır.
+
+İran ise ABD'nin bölgedeki askeri operasyonlarına karşı sert bir uyarıda bulunarak, saldırıların devam etmesi halinde "kapsamlı imha aşamasına geçileceği" tehdidinde bulundu. Bu karşılıklı açıklamalar, bölgedeki istikrarsızlığın artması ve tansiyonun yükselmesi endişelerini güçlendirmektedir.
