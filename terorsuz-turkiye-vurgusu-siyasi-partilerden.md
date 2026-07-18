@@ -26,3 +26,7 @@ MHP'li yetkililer de terörsüz bir Türkiye'nin güçlü ekonomi ve demokrasi a
 ## Güncelleme - 2026-07-06
 
 MHP Grup Başkanvekili Erkan Akçay, Cudi Dağı'nda yaptığı açıklamada, "Terörsüz Türkiye, milletimizin ortak selamet gemisidir" ifadesini kullanarak, terörle mücadelenin ülkenin huzuru ve güvenliği için taşıdığı önemi bir kez daha vurguladı. Bu söylem, partinin terörle mücadeledeki kararlılığını ve 'terörsüz Türkiye' vizyonunu pekiştirmektedir.
+
+## Güncelleme - 2026-07-19
+
+AK Parti Genel Başkan Yardımcısı Kürşad Zorlu, terörle mücadelede kararlılık vurgusu yaparak, 'terörsüz bir Türkiye' inşa etmek için hızlı adımlar atılacağını belirtti. Van'da yaptığı açıklamalarda, bu hedefe ulaşmak için istişarelerin hızlanacağını ifade eden Zorlu, terörden arındırılmış bir coğrafya inşa etme vizyonunu yineledi. Bu söylemler, siyasi partilerin terörle mücadele konusundaki ortak hassasiyetini ve bu yöndeki somut adımların atılacağı beklentisini güçlendirmektedir.
