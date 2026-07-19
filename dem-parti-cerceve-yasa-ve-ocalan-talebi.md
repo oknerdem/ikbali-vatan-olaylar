@@ -42,3 +42,7 @@ Parti sözcüleri, Çankaya Belediyesi'ne yapılan operasyonun, siyasi iktidarı
 DEM Parti İmralı Heyeti, AK Parti'li yetkililerle bir araya gelerek çözüm süreci ve 'çerçeve yasa' konularını görüştü. Görüşmede, sürecin ilerleyişi ve yasal düzenlemelerin kapsamı ele alındı. Bu görüşme, partinin daha önceki talepleriyle paralellik gösterirken, siyasi gündemdeki yerini koruyor.
 
 AK Parti'nin de sürece ilişkin değerlendirmelerde bulunduğu ve 'çerçeve yasa'nın Meclis'in tatile girmeden çıkarılması yönündeki beklentisini dile getirdiği belirtildi. Bu gelişmeler, çözüm süreci ve siyasi taleplerin takibi açısından önem arz ediyor.
+
+## Güncelleme - 2026-07-19
+
+DEM Parti'nin son açıklamalarına göre, PKK'nın silah bırakmadığı ve çözüm süreciyle ilgili taleplerinin devam ettiği belirtildi. Parti, bu konudaki güncel pozisyonunu korurken, Abdullah Öcalan ile görüşme yapılmadığı ve yasal çerçevenin belirsizliği vurgulandı. Bu durum, çözüm süreci ve siyasi taleplerin takibini daha da önemli hale getirmektedir.
