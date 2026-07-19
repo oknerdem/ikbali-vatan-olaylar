@@ -66,3 +66,7 @@ AK Parti ve DEM Parti heyetleri, 'Terörsüz Türkiye' yasası hazırlığı kap
 ## Güncelleme - 2026-07-18
 
 Diğer yandan, MHP Çelikhan'da yapılan bir toplantıda 'Terörsüz Türkiye' vurgusu yaparken, Aydın'dan da sürece ortak destek mesajları geldi. Bu destekler, terörle mücadele konusundaki toplumsal ve siyasi birliğin pekiştiğini gösteriyor. Ancak, Odatv'nin haberine göre, 'Terörsüz Türkiye' yasası konusunda bir çıkmaz yaşandığı ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise erken adım istediği belirtiliyor. Bu durum, yasal düzenlemelerin zamanlaması ve içeriği konusunda farklı görüşlerin olduğunu ortaya koyuyor.
+
+## Güncelleme - 2026-07-19
+
+Diğer yandan, MHP'nin 'Terörsüz Türkiye' vurgusu ve Aydın'dan gelen destek mesajları, terörle mücadele konusundaki toplumsal ve siyasi birliğin pekiştiğini gösteriyor. Ancak, bazı haber kaynaklarına göre, yasa konusunda bir çıkmaz yaşandığı ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise daha erken bir adım istediği belirtiliyor. Bu durum, yasal düzenlemelerin zamanlaması ve içeriği konusunda farklı görüşlerin bulunduğunu ortaya koyuyor.
