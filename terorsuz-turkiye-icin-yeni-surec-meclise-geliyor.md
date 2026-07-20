@@ -128,3 +128,7 @@ Bu açıklamalar, daha önce Adalet Bakanı Akın Gürlek'in duyurduğu ve TBMM 
 ## Güncelleme - 2026-07-16
 
 DEM Parti'nin İmralı heyeti, MHP lideri Devlet Bahçeli'yi TBMM'de ziyaret ederek 'Terörsüz Türkiye' süreci ve 'çerçeve yasa' konularını görüştü. Bu görüşme, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin yaklaşımlarını yansıtması açısından önem taşıyor. AK Parti'nin olası bir genel af algısından kaçınma endişesi taşıdığı belirtilirken, İYİ Parti lideri Dervişoğlu'nun Öcalan'ın özgürlüğünün millete sorulması gerektiği yönündeki açıklaması, sürece dair siyasi hassasiyetleri ve tartışmaları gündeme getirdi.
+
+## Güncelleme - 2026-07-20
+
+TBMM Başkanı Numan Kurtulmuş, 'Terörsüz Türkiye' süreciyle ilgili olarak siyasi parti liderleriyle görüşmeler gerçekleştirecek. Bu görüşmelerin MHP Lideri Devlet Bahçeli ile başlayacağı ve sürecin Meclis'in tatil döneminde de gündemde kalacağına işaret ediyor. AK Parti'li yetkililer, sürecin bölgemizin önünü açacağını ve yeni anayasa ile birlikte ele alınabileceğini belirtirken, bazı partiler ise TBMM'nin terör örgütü için yasa çıkaramayacağını savunuyor. Bu gelişmeler, 'Terörsüz Türkiye' sürecinin yasal düzenlemelerle şekilleneceği ve siyasi tartışmaların yoğunlaşacağı bir döneme girildiğini gösteriyor.
