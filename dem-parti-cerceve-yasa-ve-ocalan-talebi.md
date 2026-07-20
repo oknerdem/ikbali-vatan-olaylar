@@ -50,3 +50,9 @@ DEM Parti'nin son açıklamalarına göre, PKK'nın silah bırakmadığı ve ç�
 ## Güncelleme - 2026-07-20
 
 PKK, 'çerçeve yasa'nın Abdullah Öcalan'ın fiziki özgürlüğünü içermesi gerektiğini, aksi takdirde sürecin sabote edilmiş olacağını belirtti. Örgüt, yasa metninde boşluklar bırakılmasının istenmeyen sonuçlar doğurabileceği uyarısında bulundu. Bu açıklama, çözüm süreci ve Öcalan'ın durumuyla ilgili taleplerin devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-20 (2)
+
+PKK, Abdullah Öcalan'ın fiziki özgürlüğünü içermeyen bir 'çerçeve yasa'nın süreci sabote edeceğini belirterek, yasa metnindeki boşlukların istenmeyen sonuçlar doğurabileceği uyarısında bulundu. Bu açıklama, örgütün çözüm süreci ve Öcalan'ın durumuyla ilgili taleplerinin devam ettiğini göstermektedir.
+
+Bu gelişmeler yaşanırken, AK Parti'li yetkililerle DEM Parti İmralı Heyeti arasında çözüm süreci ve 'çerçeve yasa' konularını ele alan bir görüşme yapıldı. Görüşmede, sürecin ilerleyişi ve yasal düzenlemelerin kapsamı değerlendirildi. AK Parti'nin de 'çerçeve yasa'nın Meclis tatile girmeden çıkarılması yönündeki beklentisini dile getirdiği belirtildi.
