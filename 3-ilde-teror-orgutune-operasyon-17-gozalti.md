@@ -36,3 +36,9 @@ Ankara merkezli olarak yürütülen bir operasyonda, "Ağa" lakaplı organize su
 18 Temmuz 2026 tarihinde, İçişleri Bakanlığı tarafından yapılan açıklamada, DEAŞ terör örgütüne yönelik 30 ilde eş zamanlı olarak düzenlenen operasyonlarda 119 şüphelinin yakalandığı duyuruldu. Operasyonların Jandarma tarafından gerçekleştirildiği ve gözaltı sayısının bu şekilde arttığı belirtildi.
 
 Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. DEAŞ operasyonlarının, ülke genelindeki terörle mücadele kapsamında devam ettiği ve genişletildiği anlaşıldı.
+
+## Güncelleme - 2026-07-20
+
+Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir saldırı gerçekleştirildi. Bu saldırı, terörle mücadele kapsamında önemli bir gelişme olarak kayıtlara geçti.
+
+Öte yandan, 12 ilde eş zamanlı olarak düzenlenen operasyonlarda ise aralarında kamu görevlilerinin de bulunduğu 50 kişi hakkında gözaltı kararı verildiği ve bu kişilerin yakalandığı bildirildi. Bu operasyonların da organize suç örgütlerine yönelik olduğu belirtildi.

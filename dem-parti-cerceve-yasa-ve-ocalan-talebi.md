@@ -46,3 +46,7 @@ AK Parti'nin de sürece ilişkin değerlendirmelerde bulunduğu ve 'çerçeve ya
 ## Güncelleme - 2026-07-19
 
 DEM Parti'nin son açıklamalarına göre, PKK'nın silah bırakmadığı ve çözüm süreciyle ilgili taleplerinin devam ettiği belirtildi. Parti, bu konudaki güncel pozisyonunu korurken, Abdullah Öcalan ile görüşme yapılmadığı ve yasal çerçevenin belirsizliği vurgulandı. Bu durum, çözüm süreci ve siyasi taleplerin takibini daha da önemli hale getirmektedir.
+
+## Güncelleme - 2026-07-20
+
+PKK, 'çerçeve yasa'nın Abdullah Öcalan'ın fiziki özgürlüğünü içermesi gerektiğini, aksi takdirde sürecin sabote edilmiş olacağını belirtti. Örgüt, yasa metninde boşluklar bırakılmasının istenmeyen sonuçlar doğurabileceği uyarısında bulundu. Bu açıklama, çözüm süreci ve Öcalan'ın durumuyla ilgili taleplerin devam ettiğini göstermektedir.
