@@ -118,3 +118,7 @@ Manisa merkezli olarak düzenlenen rüşvet ve suç örgütü operasyonunda, ara
 ## Güncelleme - 2026-07-17
 
 Ahbap soruşturması kapsamında CHP'nin Ticaret ve Politika Kurulu Başkanı ile PM Üyesi Emre Kartaloğlu'nun da aralarında bulunduğu bazı isimler gözaltına alındı. Gözaltı gerekçeleri ve soruşturmanın detayları hakkında bilgiler gelmeye devam ediyor. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların ardından siyasi gündemdeki yerini koruyor.
+
+## Güncelleme - 2026-07-20
+
+2026 yılının Temmuz ayında, CHP'li belediyelere yönelik operasyonlar devam etti. 20 Temmuz'da İzmit Belediyesi'ne sabah saatlerinde bir operasyon düzenlendi. Operasyonun yolsuzluk ve rüşvet iddialarına yönelik olduğu belirtildi. Bu kapsamda İzmit Belediye Başkanı Fatma Kaplan Hürriyet ile eşinin de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı bildirildi.
