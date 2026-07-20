@@ -26,3 +26,7 @@ ABD ordusu, İran'a yönelik 7 gecedir devam eden saldırıların son dalgasın�
 İran'ın Bahreyn'deki ABD üslerine yönelik İHA saldırısı düzenlediği yönündeki haberlerin ardından, ABD'den yapılan açıklamada 2 ABD askerinin hayatını kaybettiği duyuruldu. Bu durum, iki ülke arasındaki gerilimin daha da artmasına neden oldu.
 
 İran'ın saldırılarına karşılık olarak ABD'nin de İran'a yönelik yeni bir saldırı başlattığı bildirildi. Bu karşılıklı adımlar, bölgedeki istikrarsızlığın artması ve tansiyonun yükselmesi endişelerini beraberinde getirdi.
+
+## Güncelleme - 2026-07-20
+
+ABD'nin İran'a yönelik saldırıları dokuzuncu gecesinde de devam etti. Bu durum, iki ülke arasındaki gerilimin sürdüğünü ve bölgedeki istikrarsızlığın devam ettiğini göstermektedir.
