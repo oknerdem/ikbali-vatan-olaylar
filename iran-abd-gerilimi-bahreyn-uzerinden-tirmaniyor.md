@@ -30,3 +30,7 @@ ABD ordusu, İran'a yönelik 7 gecedir devam eden saldırıların son dalgasın�
 ## Güncelleme - 2026-07-20
 
 ABD'nin İran'a yönelik saldırıları dokuzuncu gecesinde de devam etti. Bu durum, iki ülke arasındaki gerilimin sürdüğünü ve bölgedeki istikrarsızlığın devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-21
+
+ABD Merkez Kuvvetler Komutanlığı (CENTCOM), İran'a yönelik yeni bir saldırı dalgası başlattığını duyurdu. Bu gelişme, iki ülke arasındaki gerilimin devam ettiğini ve bölgedeki istikrarsızlığın sürdüğünü göstermektedir. Yenigün Gazetesi'nin haberine göre, ABD'nin yeni saldırılarında Hürmüz Boğazı'nın da hedef alındığı belirtildi. Bu durum, bölgedeki tansiyonun daha da yükselmesine neden olmaktadır.

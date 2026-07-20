@@ -46,3 +46,9 @@ Milli İstihbarat Teşkilatı (MİT), DEAŞ terör örgütüne yönelik sınır 
 Milli İstihbarat Teşkilatı (MİT), terör örgütü DEAŞ'a yönelik Suriye'de yeni bir operasyon düzenledi. Operasyonda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimler yakalandı. Yakalanan şahıslar arasında sarı bültenle aranan ve Türkiye'ye getirilen Talip Güler'in de bulunduğu bildirildi.
 
 Operasyonun, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğinde olduğu vurgulandı. Yakalanan şahısların sorgularının devam ettiği ve eylemlere ilişkin detayların incelendiği öğrenildi. Bu gelişme, terörle mücadele kapsamında MİT'in sınır ötesindeki etkinliğini ve uluslararası iş birliğinin önemini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-07-21
+
+Milli İstihbarat Teşkilatı (MİT), Bodrum'da kırmızı bültenle aranan ve Türkiye'de eylemler planladığı tespit edilen bir teröristi başarılı bir operasyonla yakaladı. Operasyonun detayları ve yakalanan teröristin kimliği hakkında bilgiler gelmeye devam ediyor.
+
+Bu gelişme, MİT'in terörle mücadeledeki kararlılığını ve sınır ötesindeki operasyonel kabiliyetini bir kez daha gösterirken, daha önce Suriye'de DEAŞ'a yönelik düzenlenen operasyonlarla da bağlantılı olabileceği değerlendiriliyor. Yakalanan teröristin sorgusu sürüyor.
