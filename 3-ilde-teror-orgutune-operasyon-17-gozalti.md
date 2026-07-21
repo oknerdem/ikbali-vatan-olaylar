@@ -42,3 +42,7 @@ Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yön
 Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir saldırı gerçekleştirildi. Bu saldırı, terörle mücadele kapsamında önemli bir gelişme olarak kayıtlara geçti.
 
 Öte yandan, 12 ilde eş zamanlı olarak düzenlenen operasyonlarda ise aralarında kamu görevlilerinin de bulunduğu 50 kişi hakkında gözaltı kararı verildiği ve bu kişilerin yakalandığı bildirildi. Bu operasyonların da organize suç örgütlerine yönelik olduğu belirtildi.
+
+## Güncelleme - 2026-07-21
+
+İstanbul merkezli olarak 16 ilde eş zamanlı siber suç operasyonu düzenlendi. Operasyonda 20 şüpheli gözaltına alındı. Siber suçlarla mücadele kapsamında gerçekleştirilen operasyonların detayları ve şüphelilerin bağlantıları hakkında soruşturma devam ediyor.

@@ -122,3 +122,9 @@ Ahbap soruşturması kapsamında CHP'nin Ticaret ve Politika Kurulu Başkanı il
 ## Güncelleme - 2026-07-20
 
 2026 yılının Temmuz ayında, CHP'li belediyelere yönelik operasyonlar devam etti. 20 Temmuz'da İzmit Belediyesi'ne sabah saatlerinde bir operasyon düzenlendi. Operasyonun yolsuzluk ve rüşvet iddialarına yönelik olduğu belirtildi. Bu kapsamda İzmit Belediye Başkanı Fatma Kaplan Hürriyet ile eşinin de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı bildirildi.
+
+## Güncelleme - 2026-07-21
+
+Gülistan Doku soruşturması kapsamında, aralarında eski vali Tuncay Sonel'in eşi, doktor, hemşire ve iş insanlarının da bulunduğu çok sayıda kişi hakkında gözaltı kararı verildi. Operasyonun 5 ilde eş zamanlı olarak gerçekleştirildiği bildirildi. Soruşturmanın detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor.
+
+Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların yanı sıra, toplumsal hafızada yer eden Gülistan Doku cinayeti soruşturmasının genişlemesi açısından da dikkat çekmektedir. Soruşturmanın hukuki boyutunun yanı sıra siyasi yansımaları da takip edilmektedir.

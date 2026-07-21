@@ -70,3 +70,7 @@ Rusya Dışişleri Bakanı Lavrov, Türkiye'ye yönelik bir çağrıda bulunarak
 ## Güncelleme - 2026-07-15
 
 Türkiye, Yemen'deki Husi saldırılarına sert tepki göstererek Suudi Arabistan ile tam dayanışma içinde olduğunu bildirdi. Dışişleri Bakanlığı tarafından yapılan açıklamada, saldırıların bölgesel barış ve istikrarı tehdit ettiği vurgulandı. Bu gelişme, İran ve ABD arasındaki gerilimin sürdüğü bir dönemde, Orta Doğu'daki diplomatik dengelerin hassasiyetini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-07-21
+
+Diğer yandan, Hizbullah yetkililerinden yapılan açıklamalarda, İran'ın Tanf'ı vurmasının Türkiye ve Suriye için faydalı olacağı ifade edildi. Bu yorumlar, bölgedeki karmaşık ittifakları ve jeopolitik dengeleri gözler önüne seriyor.
