@@ -38,3 +38,7 @@ DEM Parti, hazırlanan çerçeve yasa taslağının bu hafta içinde İmralı He
 ## Güncelleme - 2026-07-14
 
 Son gelişmelere göre, hazırlanan "Terörsüz Türkiye" çerçeve yasa taslağında Abdullah Öcalan'a yönelik herhangi bir "umut hakkı" veya "özel statü" düzenlemesinin yer almayacağı kesinleşti. AK Parti kaynakları ve siyasi liderlerin açıklamaları, taslağın bu yöndeki iddiaları reddettiğini ve terörle mücadeledeki kararlılığı vurguladığını belirtiyor. Bu durum, daha önce kamuoyunda yer alan ve özellikle MHP lideri Devlet Bahçeli'nin dile getirdiği bazı beklentilere karşılık AK Parti'nin net bir duruş sergilediğini gösteriyor.
+
+## Güncelleme - 2026-07-21
+
+TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" süreci kapsamında MHP lideri Devlet Bahçeli'yi ziyaret ederek yeni yasal düzenlemeleri görüştü. Bu görüşmeler, terörle mücadelede atılacak adımların siyasi zemininin güçlendirilmesi açısından önem taşıyor. Adalet Bakanlığı'nın da terör suçlarına yönelik soruşturma bürolarını 81 ilde yaygınlaştırma hazırlığı, mücadelenin kurumsal kapasitesini artırmaya yönelik bir adım olarak öne çıkıyor.
