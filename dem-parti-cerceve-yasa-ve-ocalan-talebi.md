@@ -56,3 +56,9 @@ PKK, 'çerçeve yasa'nın Abdullah Öcalan'ın fiziki özgürlüğünü içermes
 PKK, Abdullah Öcalan'ın fiziki özgürlüğünü içermeyen bir 'çerçeve yasa'nın süreci sabote edeceğini belirterek, yasa metnindeki boşlukların istenmeyen sonuçlar doğurabileceği uyarısında bulundu. Bu açıklama, örgütün çözüm süreci ve Öcalan'ın durumuyla ilgili taleplerinin devam ettiğini göstermektedir.
 
 Bu gelişmeler yaşanırken, AK Parti'li yetkililerle DEM Parti İmralı Heyeti arasında çözüm süreci ve 'çerçeve yasa' konularını ele alan bir görüşme yapıldı. Görüşmede, sürecin ilerleyişi ve yasal düzenlemelerin kapsamı değerlendirildi. AK Parti'nin de 'çerçeve yasa'nın Meclis tatile girmeden çıkarılması yönündeki beklentisini dile getirdiği belirtildi.
+
+## Güncelleme - 2026-07-21
+
+DEM Parti İmralı Heyeti, Abdullah Öcalan ile görüşmelerinin ardından yaptığı açıklamada, Öcalan'ın 'yasal zemin' talebini yineledi. Heyet, bu talebin Türkiye'nin geleceği ve toplumsal barış açısından önemini vurgularken, sürecin ilerlemesi için somut adımlar atılması gerektiğini belirtti. Bu görüşmeler ve talepler, çözüm süreciyle ilgili tartışmaları canlı tutmaya devam ediyor.
+
+Öte yandan, PKK'nın da Abdullah Öcalan'ın fiziki özgürlüğünü içermeyen bir 'çerçeve yasa'nın süreci sabote edeceği yönündeki açıklamaları, taleplerin devam ettiğini ve sürecin hassasiyetini gözler önüne seriyor. Yasa metnindeki belirsizliklerin istenmeyen sonuçlar doğurabileceği uyarısı yapıldı.

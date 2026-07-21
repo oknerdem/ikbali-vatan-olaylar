@@ -64,3 +64,7 @@ Bu açıklamalar, terörle mücadeledeki mevcut durumu ve geleceğe yönelik at�
 ## Güncelleme - 2026-07-15
 
 TBMM Başkanı Numan Kurtulmuş, 15 Temmuz Demokrasi ve Milli Birlik Günü anma töreninde yaptığı konuşmada, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve bu sürecin başarıyla tamamlanması için gerekli yasal düzenlemelerin hazırlanacağını belirtti. Kurtulmuş, "Terörsüz Türkiye" hedefinin milli dayanışma ile mümkün olacağını vurgulayarak, bu konunun Meclis'in öncelikli gündemlerinden biri olduğunu ifade etti. Yeni anayasa çalışmalarının ise toplumsal mutabakat zemininde ilerlemesi gerektiğinin altını çizdi. Bu açıklamalar, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri ve Meclis'in bu konulardaki rolünü öne çıkarmaktadır.
+
+## Güncelleme - 2026-07-21
+
+TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" hedefi doğrultusunda siyasi partilerle görüşmelerine devam etti. Bu kapsamda MHP Genel Başkanı Devlet Bahçeli'yi ziyaret eden Kurtulmuş, terörle mücadelede yeni yasal düzenlemelerin gerekliliğini ve yeni anayasa çalışmalarını ele aldı. Görüşmelerde, terörle mücadelenin milli dayanışma ile mümkün olacağı ve yeni anayasanın toplumsal mutabakatla şekillenmesi gerektiği vurgulandı. Bu ziyaretler, Meclis'te "Terörsüz Türkiye" gündemine yönelik yasal düzenlemelerin hazırlık sürecinin başladığını göstermektedir.
