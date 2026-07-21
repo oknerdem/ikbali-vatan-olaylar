@@ -16,3 +16,9 @@ Operasyon kapsamında 12 şüpheli şahıs yakalanarak gözaltına alındı. Gö
 Son günlerde Türkiye genelinde FETÖ terör örgütüne yönelik yapılan operasyonlar kapsamında, 81 ilde eş zamanlı olarak başlatılan operasyonda 704 şüpheli gözaltına alındı. Gözaltına alınanlar arasında 170 aktif kamu personeli bulunduğu belirtildi. Bu operasyonlar, daha önce WhatsApp üzerinden çevirme noktalarını paylaşan gruplara yönelik Kırşehir'de düzenlenen operasyonla bağlantılı olmasa da, genel güvenlik ve terörle mücadele kapsamında önemli bir gelişme olarak kayıtlara geçmiştir.
 
 Bu kapsamlı operasyonlar, devletin terörle mücadelesindeki kararlılığını bir kez daha göstermiştir. Gözaltına alınan şahısların emniyetteki işlemleri devam ederken, soruşturmaların genişleyerek sürmesi beklenmektedir.
+
+## Güncelleme - 2026-07-21
+
+DW Türkçe muhabiri Alican Uludağ, sosyal medya paylaşımları gerekçe gösterilerek 21 Temmuz 2026 tarihinde gözaltına alındı. Gözaltı işlemi, gazetecinin yaptığı paylaşımların kamu güvenliğini tehdit ettiği iddiasıyla gerçekleştirildi.
+
+Bu olay, ifade özgürlüğü ve gazetecilik faaliyetlerinin sınırları hakkında tartışmaları yeniden alevlendirdi. Uludağ'ın gözaltına alınması, meslek örgütleri ve insan hakları savunucuları tarafından tepkiyle karşılandı. Olayla ilgili hukuki süreç devam etmektedir.
