@@ -1,0 +1,10 @@
+---
+title: Terörsüz Türkiye Vizyonu ve Yasal Düzenlemeler
+date: "2026-07-22"
+category: "Süreç"
+img: ""
+---
+
+Türkiye'nin 'Terörsüz Türkiye' vizyonu doğrultusunda Meclis'te önemli yasal düzenlemeler üzerinde çalışıldığı belirtiliyor. Kulislerde, bu yöndeki çalışmaların 'pürüzlerin aşılmasıyla' ilerlediği ve konuyla ilgili detayların netleştiği ifade ediliyor.
+
+Bu kapsamda, 'kod yasa' olarak da adlandırılan düzenlemelerin detaylarının kamuoyu ile paylaşılması bekleniyor. Meclis'teki yoğun mesainin, terörle mücadelede yeni bir dönemin kapısını aralaması hedefleniyor. Bu süreçte, atılacak adımların Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.

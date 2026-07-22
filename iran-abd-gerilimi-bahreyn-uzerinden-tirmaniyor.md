@@ -40,3 +40,9 @@ ABD Merkez Kuvvetler Komutanlığı (CENTCOM), İran'a yönelik yeni bir saldır
 İran, Darhoveyn Nükleer Santrali'ne yönelik ABD saldırılarının ardından Birleşmiş Milletler Güvenlik Konseyi'ne bir mektup göndererek, saldırıları kınadı ve uluslararası toplumdan tepki beklediğini belirtti. Mektupta, ABD'nin bölgedeki askeri operasyonlarının uluslararası hukuku ihlal ettiği iddia edildi.
 
 Öte yandan, İran'ın saldırılarının bilançosuna ilişkin farklı bilgiler gelmeye devam ediyor. Bazı kaynaklar, saldırılarda yaklaşık 100 ABD askerinin yaralandığını iddia ederken, ABD'den bu konuda henüz resmi bir açıklama yapılmadı. Bu durum, bölgedeki gerilimin daha da artmasına ve belirsizliğin sürmesine neden oluyor.
+
+## Güncelleme - 2026-07-22
+
+ABD ordusu, İran'a yönelik saldırılarının sürdüğünü ve 11. geceye ulaştığını bildirdi. CENTCOM'un açıklamasına göre, bu saldırılarda Hürmüz Boğazı'ndaki askeri kapasitenin hedef alındığı belirtildi. Bu durum, bölgedeki gerilimin devam ettiğini ve tansiyonun yüksek seyrettiğini göstermektedir.
+
+Öte yandan, ABD'nin İran saldırılarında hayatını kaybeden asker sayısının 3'e yükseldiği açıklandı. Bu gelişmeler, iki ülke arasındaki çatışmaların ve buna bağlı bölgesel istikrarsızlığın artmasına neden olmaktadır.
