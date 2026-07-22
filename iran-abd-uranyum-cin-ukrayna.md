@@ -74,3 +74,7 @@ Türkiye, Yemen'deki Husi saldırılarına sert tepki göstererek Suudi Arabista
 ## Güncelleme - 2026-07-21
 
 Diğer yandan, Hizbullah yetkililerinden yapılan açıklamalarda, İran'ın Tanf'ı vurmasının Türkiye ve Suriye için faydalı olacağı ifade edildi. Bu yorumlar, bölgedeki karmaşık ittifakları ve jeopolitik dengeleri gözler önüne seriyor.
+
+## Güncelleme - 2026-07-22
+
+ABD Başkanı Trump, İran'ın Hürmüz Boğazı'ndaki herhangi bir gemi saldırısına karşılık olarak İran'daki bir köprüyü veya enerji santralini vuracaklarını belirtti. Bu açıklama, iki ülke arasındaki gerilimin tırmandığı bir dönemde geldi. TKP ise ABD'nin İran'a yönelik saldırılarına tepki gösterdi. Bu gelişmeler, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor.

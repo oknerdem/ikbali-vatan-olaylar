@@ -20,3 +20,7 @@ Bu karşılıklı söylemler, Türkiye'nin siyasi atmosferindeki kutuplaşmayı 
 ## Güncelleme - 2026-07-03
 
 AK Parti'nin TBMM'ye sunduğu ve 'terörsüz Türkiye' hedefiyle ilişkilendirilen 'Kandil şartı' düzenlemesi, siyasi tartışmaları daha da alevlendirdi. DSP Genel Başkanı Önder Aksakal'ın NATO zirvesiyle ilgili yaptığı açıklamalar ve teröristlerin koşulsuz teslim olması gerektiği yönündeki çağrısı, Türkiye'nin terörle mücadeledeki ulusal ve uluslararası stratejilerine dair farklı yaklaşımları ortaya koydu. Bu gelişmeler, terörle mücadele konusunun siyasi söylemlerdeki yerini ve önemini bir kez daha gözler önüne serdi.
+
+## Güncelleme - 2026-07-22
+
+İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun, "Terörsüz Türkiye" süreci ve bazı gerçeklerin saklandığına dair iddiaları, siyasi gündemde yer buldu. Dervişoğlu, terör örgütünün dayatmasıyla hazırlanan düzenlemelere karşı çıkacaklarını belirtti. Bu açıklamalar, MHP'nin daha önceki tepkileriyle birlikte değerlendirildiğinde, partiler arasındaki söylem farklılıklarını ve terör konusunun siyasi tartışmalardaki ağırlığını bir kez daha ortaya koydu.

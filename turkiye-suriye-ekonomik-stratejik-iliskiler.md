@@ -16,3 +16,9 @@ Bu gelişmeler, Türkiye'nin Suriye ile olan stratejik ve ekonomik ilişkilerind
 Türkiye ve Suriye arasındaki diplomatik ve ekonomik ilişkilerde yeni bir gelişme yaşandı. İki ülke yetkilileri, Nusaybin-Kamışlı sınır kapısının yeniden aktif hale getirilmesi ve ticari potansiyelin artırılması konularını ele aldı. Bu görüşmeler, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma yolunda atılan somut adımlar olarak değerlendiriliyor.
 
 Bu çerçevede, sınır kapılarının modernizasyonu ve lojistik altyapının güçlendirilmesi gibi teknik konuların da masaya yatırıldığı belirtildi. Taraflar, karşılıklı ticareti kolaylaştıracak ve bölgesel ekonomik entegrasyonu destekleyecek mekanizmalar üzerinde durdu.
+
+## Güncelleme - 2026-07-22 (2)
+
+Türkiye ve Suriye arasındaki ekonomik ilişkilerde yeni bir gelişme olarak, TOBB Başkanı Rifat Hisarcıklıoğlu, iki ülke arasındaki ticaret hacminin 3.75 milyar dolara ulaştığını belirtti. Hisarcıklıoğlu, Türkiye ile Suriye'nin birlikte kazandıkça bölgelerinin de kazanacağını vurgulayarak, ekonomik işbirliğinin önemine dikkat çekti.
+
+Bu gelişmeler, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma yolunda atılan somut adımlar olarak değerlendiriliyor. İki ülke yetkilileri, Nusaybin-Kamışlı sınır kapısının yeniden aktif hale getirilmesi ve ticari potansiyelin artırılması gibi konuları ele alarak, sınır kapılarının modernizasyonu ve lojistik altyapının güçlendirilmesi üzerinde durdu.
