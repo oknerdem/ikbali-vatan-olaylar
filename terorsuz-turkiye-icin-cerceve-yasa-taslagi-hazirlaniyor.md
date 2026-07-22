@@ -56,3 +56,7 @@ TBMM Başkanı Numan Kurtulmuş, MHP lideri Devlet Bahçeli'yi ziyaret ederek 't
 TBMM Başkanı Numan Kurtulmuş, İYİ Parti Genel Başkanı Müsavat Dervişoğlu ile bir araya gelerek "terörsüz Türkiye" hedefi doğrultusunda hazırlanan çerçeve yasa taslağını görüştü. Görüşme sonrası Dervişoğlu, taslağın şeffaf bir süreçle ilerlemesi gerektiğini vurgulayarak, "kapalı kapılar ardındaki hazırlıkları kabul etmeyiz" şeklinde konuştu. Bu görüşme, yasa taslağının siyasi partiler arasındaki diyaloğunu ve olası farklı yaklaşımları gözler önüne serdi.
 
 Diğer yandan, Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma bürolarını 81 ilde yaygınlaştırma hazırlığı, terörle mücadeledeki kurumsal kapasitenin artırılmasına yönelik somut bir adım olarak öne çıkıyor. Bu gelişme, yasal düzenlemelerin yanı sıra operasyonel ve hukuki altyapının da güçlendirildiğini gösteriyor.
+
+## Güncelleme - 2026-07-22 (3)
+
+TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" hedefi doğrultusunda hazırlanan yasal düzenlemelerin Meclis'in tatile girmeden yasalaşmasını ümit ettiğini belirtti. Kurtulmuş, bu düzenlemenin kesinlikle bir genel af niteliği taşımayacağını ve bir infaz düzenlemesi olacağını vurguladı. Öte yandan, İYİ Parti Genel Başkanı Müsavat Dervişoğlu, "terörsüz Türkiye" çerçeve yasa taslağının şeffaf bir süreçle ilerlemesi gerektiğini belirterek, kapalı kapılar ardındaki hazırlıkları kabul etmeyeceklerini ifade etti. Adalet Bakanlığı'nın ise terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı devam ediyor.
