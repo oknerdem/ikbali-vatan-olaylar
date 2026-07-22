@@ -46,3 +46,7 @@ Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir s
 ## Güncelleme - 2026-07-21
 
 İstanbul merkezli olarak 16 ilde eş zamanlı siber suç operasyonu düzenlendi. Operasyonda 20 şüpheli gözaltına alındı. Siber suçlarla mücadele kapsamında gerçekleştirilen operasyonların detayları ve şüphelilerin bağlantıları hakkında soruşturma devam ediyor.
+
+## Güncelleme - 2026-07-22
+
+22 ilde FETÖ terör örgütüne yönelik jandarma tarafından düzenlenen operasyonlarda 128 şüpheli yakalandı. Yakalanan şüphelilerden 51'i tutuklanırken, 14'üne adli kontrol uygulanmasına karar verildi. Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi.

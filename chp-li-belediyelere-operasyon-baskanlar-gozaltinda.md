@@ -128,3 +128,9 @@ Ahbap soruşturması kapsamında CHP'nin Ticaret ve Politika Kurulu Başkanı il
 Gülistan Doku soruşturması kapsamında, aralarında eski vali Tuncay Sonel'in eşi, doktor, hemşire ve iş insanlarının da bulunduğu çok sayıda kişi hakkında gözaltı kararı verildi. Operasyonun 5 ilde eş zamanlı olarak gerçekleştirildiği bildirildi. Soruşturmanın detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların yanı sıra, toplumsal hafızada yer eden Gülistan Doku cinayeti soruşturmasının genişlemesi açısından da dikkat çekmektedir. Soruşturmanın hukuki boyutunun yanı sıra siyasi yansımaları da takip edilmektedir.
+
+## Güncelleme - 2026-07-22
+
+İzmit Belediyesi'ne yönelik yolsuzluk ve rüşvet operasyonunda Belediye Başkanı Fatma Kaplan Hürriyet ile eşinin de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı bildirildi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
+
+Öte yandan, Ankara merkezli olarak 8 ilde düzenlenen ve 37 şüphelinin gözaltına alındığı operasyonlarda toplamda 103 kişinin tutuklandığı bilgisi paylaşıldı. CHP yetkilileri, bu gözaltıların siyasi olduğunu belirterek tepki gösterdi ve ülkenin 'paranoyak bir olağanüstü halin' içinde olduğunu savundu. Çankaya Belediyesi'ne yönelik operasyonun Eyüpsultan'a sıçradığı ve bir belediye başkan yardımcısının gözaltına alındığı da gelen bilgiler arasında yer aldı.
