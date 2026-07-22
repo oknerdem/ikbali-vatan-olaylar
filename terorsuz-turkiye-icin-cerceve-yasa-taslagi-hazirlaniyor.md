@@ -46,3 +46,7 @@ TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" süreci kapsamında MHP l
 ## Güncelleme - 2026-07-21 (2)
 
 TBMM Başkanı Numan Kurtulmuş, MHP lideri Devlet Bahçeli ile yaptığı görüşmede, "terörsüz Türkiye" süreci kapsamında hazırlanan yeni yasal düzenlemeleri ele aldı. Bu görüşmeler, terörle mücadelede atılacak adımların siyasi mutabakatını güçlendirmeyi amaçlıyor. Eş zamanlı olarak Adalet Bakanlığı, terör suçlarına yönelik soruşturma bürolarını ülke genelinde 81 ile yaygınlaştırma hazırlığına başladı. Bu adım, terörle mücadeledeki kurumsal kapasiteyi artırmaya yönelik önemli bir gelişme olarak kayıtlara geçiyor.
+
+## Güncelleme - 2026-07-22
+
+TBMM Başkanı Numan Kurtulmuş, MHP lideri Devlet Bahçeli'yi ziyaret ederek 'terörsüz Türkiye' süreciyle ilgili hazırlanan yasal düzenlemeleri görüştü. Bu görüşmeler, terörle mücadelede atılacak adımlar için siyasi mutabakatı güçlendirmeyi hedefliyor. Eş zamanlı olarak Adalet Bakanlığı, terör suçlarına yönelik soruşturma bürolarını ülke genelinde 81 ile yaygınlaştırma hazırlığına başladı. Bu adım, terörle mücadeledeki kurumsal kapasiteyi artırmaya yönelik önemli bir gelişme olarak kayıtlara geçiyor.

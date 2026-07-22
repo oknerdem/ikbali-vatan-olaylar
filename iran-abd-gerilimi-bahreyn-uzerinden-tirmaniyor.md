@@ -46,3 +46,7 @@ ABD Merkez Kuvvetler Komutanlığı (CENTCOM), İran'a yönelik yeni bir saldır
 ABD ordusu, İran'a yönelik saldırılarının sürdüğünü ve 11. geceye ulaştığını bildirdi. CENTCOM'un açıklamasına göre, bu saldırılarda Hürmüz Boğazı'ndaki askeri kapasitenin hedef alındığı belirtildi. Bu durum, bölgedeki gerilimin devam ettiğini ve tansiyonun yüksek seyrettiğini göstermektedir.
 
 Öte yandan, ABD'nin İran saldırılarında hayatını kaybeden asker sayısının 3'e yükseldiği açıklandı. Bu gelişmeler, iki ülke arasındaki çatışmaların ve buna bağlı bölgesel istikrarsızlığın artmasına neden olmaktadır.
+
+## Güncelleme - 2026-07-22 (2)
+
+ABD ordusu, İran'a yönelik 11. saldırı dalgasını tamamladığını duyurdu. Bu durum, iki ülke arasındaki gerilimin devam ettiğini ve bölgedeki istikrarsızlığın sürdüğünü göstermektedir. ABD Merkez Kuvvetler Komutanlığı (CENTCOM) tarafından yapılan açıklamada, saldırılarda Hürmüz Boğazı'ndaki askeri kapasitenin hedef alındığı belirtildi. Bu gelişmeler, bölgedeki tansiyonun yüksek seyrettiğini teyit etmektedir.
