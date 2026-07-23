@@ -28,3 +28,7 @@ Bu gelişme, daha önce Gaziantep'te düzenlenen Halep'teki Kent Ekonomileri Zir
 Türkiye ve Suriye arasında afet ve acil durum yönetimi alanında bir iş birliği protokolü imzalandı. Bu protokol, iki ülke arasındaki iş birliğinin kapsamını genişleterek, bölgesel dayanışma ve koordinasyonun güçlendirilmesine katkı sağlayacak.
 
 Bu gelişme, daha önce gündeme gelen ekonomik iş birliği ve ticaret fırsatlarının yanı sıra, insani yardım ve afet müdahalesi gibi alanlarda da ortak adımlar atılacağının bir göstergesi olarak öne çıkıyor. İki ülke arasındaki ilişkilerin bu şekilde çeşitlenmesi, bölgesel istikrar ve kalkınma açısından olumlu bir gelişme olarak değerlendiriliyor.
+
+## Güncelleme - 2026-07-23
+
+Türkiye ve Suriye arasındaki ekonomik ilişkilerin geliştirilmesi ve bölgesel kalkınmaya katkı sağlanması amacıyla iş birliği vurgusu devam ediyor. Ticaret Bakanı Ömer Bolat, bu iş birliğinin bölgesel kalkınmaya önemli katkılar sunacağını belirtirken, Suriye ile daha fazla ticaret yapılması gerektiğinin altını çizdi. Bu açıklamalar, iki ülke arasındaki ticari ve ekonomik bağların güçlendirilmesi yönündeki çabaların sürdüğünü gösteriyor.
