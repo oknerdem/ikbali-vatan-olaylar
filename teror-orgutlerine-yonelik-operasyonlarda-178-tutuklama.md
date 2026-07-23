@@ -44,3 +44,7 @@ Bu operasyonlar, Türkiye genelinde terörle mücadelenin kararlılıkla sürdü
 ## Güncelleme - 2026-07-23
 
 Ankara'da polis, daha önce yapılan ihbarlar üzerine harekete geçerek, çeşitli semtlerde faaliyet gösteren spa ve masaj salonlarına eş zamanlı operasyon düzenledi. Operasyonlarda, fuhşa aracılık ve yer temini ettikleri iddia edilen toplam 10 şüpheli gözaltına alındı. Şüphelilerin emniyetteki işlemleri devam ediyor.
+
+## Güncelleme - 2026-07-23 (2)
+
+23 Temmuz 2026 tarihinde Milli Savunma Bakanlığı tarafından yapılan açıklamada, son bir hafta içerisinde 6 PKK'lı teröristin teslim olduğu belirtildi. Ayrıca, hudut birlikleri tarafından gerçekleştirilen operasyonlarda ise toplam 466 kişinin yakalandığı bilgisi paylaşıldı. Bu gelişmeler, terörle mücadele kapsamında yürütülen operasyonların etkinliğini ve sınır güvenliğinin sağlanmasındaki kararlılığı gözler önüne sermektedir.

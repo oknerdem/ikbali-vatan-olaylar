@@ -64,3 +64,7 @@ TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" hedefi doğrultusunda haz
 ## Güncelleme - 2026-07-23
 
 TBMM Başkanı Numan Kurtulmuş, hazırlanan çerçeve yasa taslağının Meclis tatile girmeden yasalaşmasını umduğunu belirtti. Kurtulmuş, düzenlemenin genel af niteliği taşımayacağını ve bir infaz düzenlemesi olacağını yineledi. Bu süreçte MHP lideri Devlet Bahçeli ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu ile görüşmeler gerçekleştirildi. Dervişoğlu, taslağın şeffaf bir süreçle ilerlemesi gerektiğini vurgularken, Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı devam ediyor.
+
+## Güncelleme - 2026-07-23 (2)
+
+Bazı kaynaklar, taslağın 4 binden fazla hükümlüyü kapsayabileceği ve İmralı Heyeti'ne aktarılmasını beklediklerini iddia etti. Ancak, taslakta Abdullah Öcalan'a yönelik herhangi bir özel statü veya umut hakkı düzenlemesinin yer almayacağı kesinleşti. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor.
