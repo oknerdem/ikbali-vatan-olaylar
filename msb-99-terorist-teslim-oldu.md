@@ -34,3 +34,9 @@ Milli Savunma Bakanlığı (MSB) tarafından yapılan son açıklamalara göre, 
 Milli Savunma Bakanlığı (MSB) tarafından 16 Temmuz 2026'da yapılan bilgilendirmeye göre, son bir haftada 3 PKK'lı terörist güvenlik güçlerine teslim olmuştur. Bu gelişme, terörle mücadele kapsamında yürütülen ikna ve operasyonel faaliyetlerin devamlılığını teyit etmektedir.
 
 Aynı dönemde, hudut birlikleri tarafından 404 kişinin yakalandığı bildirilmiştir. Bu rakamlar, sınır güvenliğinin sağlanması ve terörle mücadelenin etkin bir şekilde sürdürüldüğünü göstermektedir.
+
+## Güncelleme - 2026-07-23
+
+Milli Savunma Bakanlığı (MSB) tarafından 23 Temmuz 2026'da yapılan açıklamaya göre, son günlerde 6 PKK'lı terörist daha güvenlik güçlerine teslim olmuştur. Bu gelişme, terörle mücadele kapsamında yürütülen ikna çalışmalarının ve operasyonel faaliyetlerin sürdüğünü göstermektedir.
+
+Bu son teslim olan teröristlerle birlikte, yılbaşından bu yana teslim olan terörist sayısı güncellenerek terörle mücadeledeki kararlılığın ve elde edilen sonuçların devamlılığı teyit edilmiştir.
