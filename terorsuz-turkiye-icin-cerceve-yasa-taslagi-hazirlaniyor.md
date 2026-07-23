@@ -60,3 +60,7 @@ Diğer yandan, Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma 
 ## Güncelleme - 2026-07-22 (3)
 
 TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" hedefi doğrultusunda hazırlanan yasal düzenlemelerin Meclis'in tatile girmeden yasalaşmasını ümit ettiğini belirtti. Kurtulmuş, bu düzenlemenin kesinlikle bir genel af niteliği taşımayacağını ve bir infaz düzenlemesi olacağını vurguladı. Öte yandan, İYİ Parti Genel Başkanı Müsavat Dervişoğlu, "terörsüz Türkiye" çerçeve yasa taslağının şeffaf bir süreçle ilerlemesi gerektiğini belirterek, kapalı kapılar ardındaki hazırlıkları kabul etmeyeceklerini ifade etti. Adalet Bakanlığı'nın ise terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı devam ediyor.
+
+## Güncelleme - 2026-07-23
+
+TBMM Başkanı Numan Kurtulmuş, hazırlanan çerçeve yasa taslağının Meclis tatile girmeden yasalaşmasını umduğunu belirtti. Kurtulmuş, düzenlemenin genel af niteliği taşımayacağını ve bir infaz düzenlemesi olacağını yineledi. Bu süreçte MHP lideri Devlet Bahçeli ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu ile görüşmeler gerçekleştirildi. Dervişoğlu, taslağın şeffaf bir süreçle ilerlemesi gerektiğini vurgularken, Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı devam ediyor.

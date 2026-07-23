@@ -22,3 +22,7 @@ Umut Altaş'ın elinde deliller olduğunu ve katili adalete teslim edeceğini be
 Gülistan Doku'nun kaybolmasına ilişkin soruşturmada, olayın aydınlatılmasına yardımcı olabileceği düşünülen şüpheli cipin belediyeye bağışlandığı ortaya çıktı. Bu gelişme, davanın seyrini değiştirebilecek nitelikte olup, soruşturmanın bu araç üzerinden ilerlemesi bekleniyor.
 
 Umut Altaş'ın mahkemeye çıkacak olması ve elinde deliller olduğunu belirttiği ses kayıtlarının varlığı, bu yeni gelişmeyle birlikte davanın daha da karmaşık bir hal alabileceğini gösteriyor. Kamuoyu, Gülistan Doku'nun akıbetini ve bu yeni delilin yargı sürecine etkisini yakından takip ediyor.
+
+## Güncelleme - 2026-07-23
+
+Gülistan Doku soruşturması kapsamında, dönemin Tunceli Valisi Tuncay Sonel ile Gülistan Doku'nun erkek arkadaşı Umut Altaş'ın eski polis babası ile birlikte toplamda 2 kişinin daha gözaltına alındığı bildirildi. Bu gözaltıların, soruşturmada elde edilen yeni deliller ve eski vali ile ihraç edilen polis memurunun telefon yazışmalarının incelenmesi sonucu yapıldığı belirtildi. Soruşturma, bu yeni gelişmelerle birlikte derinleşerek devam ediyor.

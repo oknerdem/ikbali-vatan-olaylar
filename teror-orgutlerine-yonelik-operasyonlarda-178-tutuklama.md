@@ -40,3 +40,7 @@ Bu kapsamda, NATO operasyonlarında gözaltına alınan 33 kişi hakkında tutuk
 18 Temmuz 2026 tarihinde, terör örgütleri DEAŞ ve TKP/ML'ye yönelik eş zamanlı olarak 30 ilde operasyon düzenlendi. Bu operasyonlarda toplam 119 şüpheli yakalanarak gözaltına alındı. Operasyonlar kapsamında Mersin'de jandarma ve MİT'in ortak çalışmasıyla TKP/ML üyesi bir teröristin etkisiz hale getirildiği bildirildi.
 
 Bu operasyonlar, Türkiye genelinde terörle mücadelenin kararlılıkla sürdürüldüğünü ve farklı terör örgütlerine karşı eş güdümlü çalışmaların devam ettiğini göstermektedir. Gözaltına alınan şüphelilerle ilgili hukuki süreçler devam etmektedir.
+
+## Güncelleme - 2026-07-23
+
+Ankara'da polis, daha önce yapılan ihbarlar üzerine harekete geçerek, çeşitli semtlerde faaliyet gösteren spa ve masaj salonlarına eş zamanlı operasyon düzenledi. Operasyonlarda, fuhşa aracılık ve yer temini ettikleri iddia edilen toplam 10 şüpheli gözaltına alındı. Şüphelilerin emniyetteki işlemleri devam ediyor.
