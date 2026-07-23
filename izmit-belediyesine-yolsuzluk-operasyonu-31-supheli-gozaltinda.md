@@ -8,3 +8,7 @@ img: "https://image.dha.com.tr/i/dha/75/0x0/6a619f2b6f19d7bae3122658.jpg"
 İzmit Belediyesine yönelik bir yolsuzluk operasyonu başlatıldı. Operasyon kapsamında 31 şüphelinin gözaltına alındığı bildirildi.
 
 Gözaltına alınan şüpheliler, sağlık kontrolünden geçirilmek üzere hastaneye sevk edildi. Operasyonun detayları ve soruşturmanın kapsamı hakkında henüz resmi bir açıklama yapılmadı.
+
+## Güncelleme - 2026-07-23
+
+Soruşturma kapsamında, aralarında İzmit Belediye Başkanı Fatma Kaplan Hürriyet'in de bulunduğu 21 şüpheli hakkında tutuklama talebinde bulunuldu. Bu şüpheliler, tutuklama istemiyle sulh ceza hakimliğine sevk edildi.

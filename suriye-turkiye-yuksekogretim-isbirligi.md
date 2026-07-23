@@ -24,3 +24,9 @@ Anlaşma, iki ülke arasındaki mevcut ilişkilerin çeşitli alanlarda ilerledi
 ## Güncelleme - 2026-06-30
 
 Türkiye ve Suriye arasında 30 Haziran 2026 tarihinde güvenlik ve afet yönetimi alanlarında önemli iş birlikleri imzalandı. Şam'da gerçekleşen zirvede, İçişleri Bakanı Ali Yerlikaya ve Suriyeli mevkidaşı Muhammed Halid Rahmun, geri dönüş, sınır güvenliği ve teknik iş birliği konularını ele aldı. Bu görüşmelerin ardından, iki ülke arasında afet ve acil durum yönetimi alanında bir iş birliği protokolü imzalandı. Bu protokol, daha önce yükseköğretim ve sağlık alanlarında atılan adımların ardından, iki ülke arasındaki ilişkilerin güvenlik ve insani yardım gibi kritik alanlarda da ilerlediğini göstermektedir.
+
+## Güncelleme - 2026-07-23
+
+23 Temmuz 2026 tarihinde Türkiye ve Suriye arasında kültür merkezlerine ilişkin bir anlaşma imzalandı. Bu anlaşma, daha önce yükseköğretim, sağlık ve güvenlik alanlarında atılan adımların ardından, iki ülke arasındaki kültürel iş birliğini de resmileştirdi.
+
+Anlaşmanın detayları henüz tam olarak açıklanmamış olsa da, kültürel alışverişin ve iş birliğinin artırılması hedeflenmektedir. Bu gelişme, iki ülke arasındaki ilişkilerin çeşitli alanlarda ilerlediğini göstermektedir.
