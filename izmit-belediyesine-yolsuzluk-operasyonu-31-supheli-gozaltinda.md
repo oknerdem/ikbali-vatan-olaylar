@@ -18,3 +18,7 @@ Soruşturma kapsamında, aralarında İzmit Belediye Başkanı Fatma Kaplan Hür
 Soruşturma kapsamında İzmit Belediye Başkanı Fatma Kaplan Hürriyet'in de aralarında bulunduğu 21 şüpheli hakkında tutuklama kararı verildi. Şüpheliler, tutuklama istemiyle mahkemeye sevk edildi.
 
 Yapılan incelemeler sonucunda, aralarında belediye başkanının da bulunduğu 20 şüphelinin tutuklanmasına karar verildiği bildirildi.
+
+## Güncelleme - 2026-07-24
+
+Soruşturma kapsamında İzmit Belediye Başkanı Fatma Kaplan Hürriyet'in de aralarında bulunduğu 21 şüpheli hakkında tutuklama talebinde bulunuldu. Mahkemeye sevk edilen şüphelilerden 20'si hakkında tutuklama kararı çıktı. Bir şüpheli hakkında ise ev hapsi uygulanırken, 9 şüpheli adli kontrol şartıyla serbest bırakıldı.
