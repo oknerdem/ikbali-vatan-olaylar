@@ -20,3 +20,9 @@ Yapılan ortak açıklamada, bu ülkeler İsrail'in uluslararası sulardaki eyle
 Türkiye ve Suriye, İsrail'in Suriye topraklarına yönelik saldırılarını kınadı. AK Parti Sözcüsü Ömer Çelik, İsrail'in Suriye'nin egemenliğini hedef alan eylemlerini en güçlü şekilde kınadıklarını belirtti. Bu gelişme, daha önce Türkiye'nin de aralarında bulunduğu 8 ülkenin İsrailli bir bakana tepki gösterdiği olayın ardından bölgedeki gerilimin devam ettiğini gösteriyor.
 
 Suriye'nin de Türkiye ile birlikte İsrail'e tepki göstermesi, bölgesel iş birliği açısından dikkat çekici bir gelişme olarak değerlendiriliyor. Bu ortak tepki, İsrail'in bölgedeki askeri operasyonlarına karşı uluslararası alanda artan bir muhalefetin varlığına işaret ediyor.
+
+## Güncelleme - 2026-07-25
+
+Türkiye, 24 Temmuz 2026'da yaptığı açıklamada, işgal altındaki Filistin topraklarında artan "yasa dışı yerleşimci terörü"nü en güçlü şekilde kınadığını bildirdi. Bu kınama, daha önce 8 ülkenin İsrailli bir bakana gösterdiği tepkinin ardından bölgedeki gerilimin devam ettiğini ve Türkiye'nin Filistin'e yönelik uluslararası politikasındaki duruşunu pekiştirdiğini göstermektedir.
+
+Bu gelişme, daha önceki Küresel Sumud Filosu'na yönelik müdahalelerle ilgili tepkilerin ardından İsrail'in eylemlerine karşı uluslararası alanda artan bir muhalefetin varlığına işaret etmektedir. Türkiye'nin bu konudaki tutumu, bölgesel istikrar ve uluslararası hukuk çerçevesinde değerlendirilmektedir.
