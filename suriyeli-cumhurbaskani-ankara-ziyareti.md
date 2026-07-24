@@ -26,3 +26,9 @@ Ziyaret kapsamında Cumhurbaşkanı Erdoğan ve Suriye Cumhurbaşkanı Şara bir
 ## Güncelleme - 2026-07-09 (2)
 
 Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyaretine denk gelen günlerde, ABD Başkanı Donald Trump, Suriye'nin terör destekçisi ülkeler listesinden çıkarılacağına dair açıklamalarda bulundu. Trump, Şara'yı saygı duyulan bir lider olarak nitelendirerek, bu yönde bir adım atılacağını belirtti. Bu gelişmeler, iki ülke arasındaki diplomatik ilişkiler ve bölgesel dengeler açısından önemli bir dönüm noktası olarak değerlendirildi.
+
+## Güncelleme - 2026-07-24
+
+Suriye Devlet Başkanı Ahmed Şara'ya yönelik bir televizyon programında kullanılan ifadeler nedeniyle Radyo ve Televizyon Üst Kurulu (RTÜK) tarafından inceleme başlatıldı. Söz konusu ifadelerin "kravatlı terörist" gibi tanımlamalar içerdiği ve Suriye halkını aşağıladığı iddiaları üzerine RTÜK'ün harekete geçtiği belirtildi.
+
+Bu inceleme, Şara'nın Türkiye ziyaretinin hemen ardından gündeme gelmesiyle diplomatik hassasiyetleri de beraberinde getirdi. Olayın, Türkiye-Suriye ilişkileri ve bölgesel gelişmeler bağlamında nasıl bir etki yaratacağı merak konusu.
