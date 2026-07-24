@@ -2,7 +2,7 @@
 title: Terörsüz Türkiye İçin Çerçeve Yasa Taslağı Hazırlanıyor
 date: "2026-06-26"
 category: "Siyasi"
-img: ""
+img: "https://img.odatv.com/rcman/Cw1280h720q95gc/storage/files/images/2026/07/24/cerceve-yasada-kademeli-terorsuz-turkiye-200-kisi-turkiyeye-gelemeyecek-vaae.jpg"
 ---
 
 Türkiye'de terörle mücadele kapsamında yeni bir çerçeve yasa taslağı üzerinde çalışıldığı belirtiliyor. Bu yasanın, terörle ilişkili olduğu düşünülen uzantıları tasfiye etmeyi amaçladığı ifade ediliyor.
@@ -68,3 +68,7 @@ TBMM Başkanı Numan Kurtulmuş, hazırlanan çerçeve yasa taslağının Meclis
 ## Güncelleme - 2026-07-23 (2)
 
 Bazı kaynaklar, taslağın 4 binden fazla hükümlüyü kapsayabileceği ve İmralı Heyeti'ne aktarılmasını beklediklerini iddia etti. Ancak, taslakta Abdullah Öcalan'a yönelik herhangi bir özel statü veya umut hakkı düzenlemesinin yer almayacağı kesinleşti. Bu gelişmeler, taslağın terörle mücadeledeki kararlılığı vurgularken, bir infaz düzenlemesi niteliği taşıyacağı yönündeki açıklamalarla da destekleniyor.
+
+## Güncelleme - 2026-07-24
+
+Terörsüz Türkiye hedefiyle hazırlanan çerçeve yasa taslağına ilişkin yeni gelişmeler yaşanıyor. Edinilen bilgilere göre, PKK yöneticilerinin Türkiye'ye dönmelerine izin verilmeyeceği ve Süleymaniye'ye gönderilmeleri seçeneğinin değerlendirildiği belirtiliyor. Bu kapsamda, yaklaşık 200 kişilik bir PKK yönetici kadrosunun Türkiye'ye girişinin engelleneceği ve Süleymaniye'de konuşlandırılacağı iddia ediliyor. Bu durum, yasa taslağının terör örgütü elebaşlarına yönelik atılacak adımları netleştirmeye yönelik bir adım olarak öne çıkıyor.
