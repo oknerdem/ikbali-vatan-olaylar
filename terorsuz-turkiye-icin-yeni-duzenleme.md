@@ -2,7 +2,7 @@
 title: "Terörsüz Türkiye İçin Kritik Yasa Hazırlığı Başladı"
 date: "2026-06-02"
 category: "Siyasi"
-img: ""
+img: "https://www.evrensel.net/images/1280/upload/dosya/355992.jpg"
 ---
 
 Türkiye'de terörle mücadele kapsamında yeni bir yasa hazırlığına başlandığı bildirildi. Bu yeni düzenlemenin, terörsüz bir Türkiye süreci için önemli bir adım olduğu belirtiliyor.
@@ -70,3 +70,9 @@ Diğer yandan, MHP Çelikhan'da yapılan bir toplantıda 'Terörsüz Türkiye' v
 ## Güncelleme - 2026-07-19
 
 Diğer yandan, MHP'nin 'Terörsüz Türkiye' vurgusu ve Aydın'dan gelen destek mesajları, terörle mücadele konusundaki toplumsal ve siyasi birliğin pekiştiğini gösteriyor. Ancak, bazı haber kaynaklarına göre, yasa konusunda bir çıkmaz yaşandığı ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise daha erken bir adım istediği belirtiliyor. Bu durum, yasal düzenlemelerin zamanlaması ve içeriği konusunda farklı görüşlerin bulunduğunu ortaya koyuyor.
+
+## Güncelleme - 2026-07-24
+
+DEM Parti Sözcüsü Ayşegül Doğan, "Terörsüz Türkiye" vizyonuyla hazırlanan çerçeve yasa taslağının son aşamaya geldiğini belirtti. Bu gelişme, Türkiye'nin terörle mücadeledeki hukuki ve siyasi süreçlerinde yeni bir döneme girildiğini gösteriyor. Yasanın içeriği ve yürürlüğe giriş tarihi hakkında detaylar önümüzdeki günlerde netleşmesi bekleniyor.
+
+Bu süreçte, farklı siyasi partilerin ve toplumsal kesimlerin de sürece dahil olması ve destek vermesi, terörle mücadelede geniş bir mutabakatın oluştuğuna işaret ediyor. Yasal düzenlemelerin, terörün önlenmesi ve toplumsal huzurun sağlanması hedeflerine hizmet etmesi amaçlanıyor.
