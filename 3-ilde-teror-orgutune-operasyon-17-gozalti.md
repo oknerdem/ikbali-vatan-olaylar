@@ -50,3 +50,7 @@ Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir s
 ## Güncelleme - 2026-07-22
 
 22 ilde FETÖ terör örgütüne yönelik jandarma tarafından düzenlenen operasyonlarda 128 şüpheli yakalandı. Yakalanan şüphelilerden 51'i tutuklanırken, 14'üne adli kontrol uygulanmasına karar verildi. Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi.
+
+## Güncelleme - 2026-07-24
+
+İstanbul merkezli olarak 12 ilde eş zamanlı olarak düzenlenen ve "yeni nesil suç örgütü" olarak nitelendirilen yapıya yönelik operasyonlarda gözaltına alınan şüphelilerden 37'si hakkında tutuklama talebinde bulunuldu. Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi. Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. Soruşturma kapsamında, şüphelilerin organize suç faaliyetlerine karıştığı iddia ediliyor.

@@ -16,3 +16,7 @@ TBMM'de İYİ Parti ve DEM Parti milletvekilleri arasında, 'terörsüz Türkiye
 ## Güncelleme - 2026-07-01
 
 TBMM Genel Kurulu'nda devam eden oturumlarda, DEM Parti ve İYİ Parti milletvekilleri arasında 'terör' konusuna ilişkin karşılıklı suçlamalar ve sert eleştiriler yaşandı. Özellikle 'terörle mücadele' yöntemleri ve bu konunun siyasi istismar edildiği iddiaları üzerine yoğunlaşan tartışmalar, Meclis'teki tansiyonu artırdı. İki parti grubundan yapılan açıklamalarda, birbirlerinin söylemlerini eleştirerek kendi pozisyonlarını savundular. Bu durum, Türkiye'nin güvenlik ve terörle mücadele gündemindeki siyasi kutuplaşmayı bir kez daha gözler önüne serdi.
+
+## Güncelleme - 2026-07-24
+
+TBMM'de DEM Parti ve İYİ Parti milletvekilleri arasında, 'terör' konusunun siyasi söylemlerdeki yeri ve 'Türk' vurgusu üzerinden başlayan tartışmalar devam etti. İki parti grubundan yapılan açıklamalarda, birbirlerinin söylemleri sert dille eleştirilerek kendi pozisyonları savunuldu. Bu durum, Türkiye'nin güvenlik ve terörle mücadele gündemindeki siyasi kutuplaşmayı ve hassasiyetleri bir kez daha gözler önüne serdi.
