@@ -132,3 +132,9 @@ DEM Parti'nin İmralı heyeti, MHP lideri Devlet Bahçeli'yi TBMM'de ziyaret ede
 ## Güncelleme - 2026-07-20
 
 TBMM Başkanı Numan Kurtulmuş, 'Terörsüz Türkiye' süreciyle ilgili olarak siyasi parti liderleriyle görüşmeler gerçekleştirecek. Bu görüşmelerin MHP Lideri Devlet Bahçeli ile başlayacağı ve sürecin Meclis'in tatil döneminde de gündemde kalacağına işaret ediyor. AK Parti'li yetkililer, sürecin bölgemizin önünü açacağını ve yeni anayasa ile birlikte ele alınabileceğini belirtirken, bazı partiler ise TBMM'nin terör örgütü için yasa çıkaramayacağını savunuyor. Bu gelişmeler, 'Terörsüz Türkiye' sürecinin yasal düzenlemelerle şekilleneceği ve siyasi tartışmaların yoğunlaşacağı bir döneme girildiğini gösteriyor.
+
+## Güncelleme - 2026-07-25
+
+AK Parti ve DEM Parti heyetlerinin "Terörsüz Türkiye" süreci üzerine yaptıkları değerlendirmeler, sürecin siyasi aktörler arasındaki diyaloğunu ve farklı partilerin yaklaşımlarını ortaya koydu. AK Parti'nin hazırladığı yasal çerçevenin, terör örgütünün tamamen feshedilmesi şartına bağlandığı iddiaları gündeme gelirken, İYİ Parti lideri Müsavat Dervişoğlu'nun TBMM'nin terör örgütü için yasa çıkaramayacağı yönündeki sert tepkisi ve Zafer Partisi Genel Başkanı Ümit Özdağ'ın söylemi "Büyük Orta Doğu Projesi'nin bir parçası" olarak nitelendirmesi, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha gözler önüne serdi.
+
+İçişleri Bakanı Ali Yerlikaya, "Terörsüz Türkiye" hedefinin sadece bir güvenlik politikası değil, aynı zamanda ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonu olduğunu vurguladı. Bu açıklamalar, sürecin devlet politikası olarak konumlandırıldığını ve kararlılıkla sürdürüldüğünü göstermektedir.
