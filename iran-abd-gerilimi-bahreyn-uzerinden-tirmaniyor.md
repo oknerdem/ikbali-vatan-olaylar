@@ -50,3 +50,7 @@ ABD ordusu, İran'a yönelik saldırılarının sürdüğünü ve 11. geceye ula
 ## Güncelleme - 2026-07-22 (2)
 
 ABD ordusu, İran'a yönelik 11. saldırı dalgasını tamamladığını duyurdu. Bu durum, iki ülke arasındaki gerilimin devam ettiğini ve bölgedeki istikrarsızlığın sürdüğünü göstermektedir. ABD Merkez Kuvvetler Komutanlığı (CENTCOM) tarafından yapılan açıklamada, saldırılarda Hürmüz Boğazı'ndaki askeri kapasitenin hedef alındığı belirtildi. Bu gelişmeler, bölgedeki tansiyonun yüksek seyrettiğini teyit etmektedir.
+
+## Güncelleme - 2026-07-25
+
+İran'dan yapılan açıklamalarda, ABD hedeflerine yönelik nokta atışlı saldırıların devam edeceği belirtildi. Bu açıklamalar, iki ülke arasındaki gerilimin artabileceği endişelerini güçlendirdi. Saldırıların devam edeceğine dair yapılan bu vurgu, bölgedeki istikrarsızlığın sürmesine ve tansiyonun yükselmesine neden olmaktadır.

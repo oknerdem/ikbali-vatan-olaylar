@@ -24,3 +24,9 @@ Ankara'da 6 isim hakkında ihraç sürecinin başlatıldığına dair haberler y
 DEM Parti'den ihraç edilen Kızıltepe Belediye Başkanı'na yönelik yumurtalı protesto olayı yaşanmıştır. Bu gelişme, parti içi ayrışmaların ve ihraç süreçlerinin siyasi atmosferdeki yansımalarını göstermesi açısından dikkat çekicidir.
 
 Bu olay, parti disiplini ve alınan kararların parti üyeleri ve kamuoyu üzerindeki etkilerine dair tartışmaları yeniden alevlendirmiştir. İhraç edilen bir belediye başkanına yapılan bu tür bir tepki, parti içindeki gerilimlerin somut bir göstergesi olarak değerlendirilmektedir.
+
+## Güncelleme - 2026-07-25
+
+CHP'de disiplin süreçleri devam ederken, Kayseri'de bir meclis üyesinin kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içindeki gerilimlerin ve ihraç taleplerinin sürdüğünü göstermektedir.
+
+Öte yandan, Kocaeli'de daha önce üniversiteden ihraç edilen iki ismin görevlerine iade edilmesi de dikkat çekmiştir. Bu durum, ihraç süreçlerinin ve sonrasında yaşanan hukuki veya idari gelişmelerin çeşitliliğini ortaya koymaktadır.
