@@ -30,3 +30,7 @@ MHP Grup Başkanvekili Erkan Akçay, Cudi Dağı'nda yaptığı açıklamada, "T
 ## Güncelleme - 2026-07-19
 
 AK Parti Genel Başkan Yardımcısı Kürşad Zorlu, terörle mücadelede kararlılık vurgusu yaparak, 'terörsüz bir Türkiye' inşa etmek için hızlı adımlar atılacağını belirtti. Van'da yaptığı açıklamalarda, bu hedefe ulaşmak için istişarelerin hızlanacağını ifade eden Zorlu, terörden arındırılmış bir coğrafya inşa etme vizyonunu yineledi. Bu söylemler, siyasi partilerin terörle mücadele konusundaki ortak hassasiyetini ve bu yöndeki somut adımların atılacağı beklentisini güçlendirmektedir.
+
+## Güncelleme - 2026-07-25
+
+MHP'li yetkililer, terörle mücadelenin taviz verilmeden sürdürülmesi gereken milli bir hedef olduğunu vurgulayarak, 'terörsüz Türkiye'nin milletin ortak kazanımı olacağını ifade ettiler. Bu açıklamalar, siyasi partilerin terörle mücadele konusundaki kararlılıklarını ve bu konuyu milli bir öncelik olarak gördüklerini bir kez daha ortaya koymaktadır.
