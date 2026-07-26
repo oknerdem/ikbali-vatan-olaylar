@@ -34,3 +34,7 @@ AK Parti Genel Başkan Yardımcısı Kürşad Zorlu, terörle mücadelede kararl
 ## Güncelleme - 2026-07-25
 
 MHP'li yetkililer, terörle mücadelenin taviz verilmeden sürdürülmesi gereken milli bir hedef olduğunu vurgulayarak, 'terörsüz Türkiye'nin milletin ortak kazanımı olacağını ifade ettiler. Bu açıklamalar, siyasi partilerin terörle mücadele konusundaki kararlılıklarını ve bu konuyu milli bir öncelik olarak gördüklerini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-07-26
+
+MHP Genel Başkan Yardımcısı Ahmet Selim Yurdakul, terörle mücadelenin günlük siyasetin bir konusu olmadığını, bunun yerine devlet aklının bir meselesi olduğunu belirtti. Bu açıklama, partinin terörle mücadeleye yaklaşımının stratejik ve uzun vadeli bir perspektife sahip olduğunu ve bu konunun milli bir öncelik olarak ele alındığını göstermektedir. 'Terörsüz Türkiye' vizyonu, bu çerçevede milli bir zafere giden tarihî bir fırsat olarak değerlendirilmektedir.
