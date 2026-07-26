@@ -32,3 +32,7 @@ Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyaretine denk gelen günlerde, 
 Suriye Devlet Başkanı Ahmed Şara'ya yönelik bir televizyon programında kullanılan ifadeler nedeniyle Radyo ve Televizyon Üst Kurulu (RTÜK) tarafından inceleme başlatıldı. Söz konusu ifadelerin "kravatlı terörist" gibi tanımlamalar içerdiği ve Suriye halkını aşağıladığı iddiaları üzerine RTÜK'ün harekete geçtiği belirtildi.
 
 Bu inceleme, Şara'nın Türkiye ziyaretinin hemen ardından gündeme gelmesiyle diplomatik hassasiyetleri de beraberinde getirdi. Olayın, Türkiye-Suriye ilişkileri ve bölgesel gelişmeler bağlamında nasıl bir etki yaratacağı merak konusu.
+
+## Güncelleme - 2026-07-26
+
+Suriye Cumhurbaşkanı Ahmed Şara, Türkiye ziyaretinin ardından yaptığı açıklamalarda, Lübnan'daki istikrarsızlığın Suriye'ye doğrudan yansıyabileceği uyarısında bulundu. Ayrıca, YPG ile ilgili bir mutabakat sürecinde aksamalar yaşandığına işaret ederek, bu konudaki kritik uyarılarını dile getirdi. Bu açıklamalar, Türkiye'nin bölgesel güvenlik politikaları ve Suriye ile olan ilişkileri açısından önemli değerlendirmeler olarak öne çıkıyor.
