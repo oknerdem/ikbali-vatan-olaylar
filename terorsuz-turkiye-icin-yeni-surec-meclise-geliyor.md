@@ -142,3 +142,7 @@ AK Parti ve DEM Parti heyetlerinin "Terörsüz Türkiye" süreci üzerine yaptı
 ## Güncelleme - 2026-07-27
 
 MHP'den yapılan açıklamada, "Terörsüz Türkiye" sürecinin Türkiye'nin gündem belirleyen bir ülke olma özelliğini pekiştirdiği belirtildi. Bu süreçle ilgili olarak Meclis'te bir "özel komisyon" kurulması önerisi de gündeme geldi. Bu komisyonun, terörle mücadele stratejilerinin belirlenmesi ve uygulanması konusunda önemli bir rol üstlenmesi bekleniyor. Öte yandan, Marmaris Yeni Sayfa'da yer alan bir haberde, "Terörsüz Türkiye" hedefinin yeni yüzünün, askeri helikopterlerin hayat kurtarma operasyonlarında kullanılmasıyla somutlaştığı ifade edildi. Bu durum, sürecin sadece güvenlik odaklı değil, aynı zamanda insani boyutları da kapsadığını göstermektedir.
+
+## Güncelleme - 2026-07-27 (2)
+
+AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" süreciyle ilgili olarak, Meclis kapanmadan yasal çerçevenin ortaya çıkarılacağını belirtti. Bu açıklama, sürecin yasal düzenlemelerle somutlaşma aşamasına geldiğini ve TBMM'nin gündeminde öncelikli bir yer tuttuğunu göstermektedir. Çelik, esas olanın Türkiye'yi terör yükünden kurtarmak olduğunu vurgulayarak, bu sürecin yeni başladığını ifade etti.
