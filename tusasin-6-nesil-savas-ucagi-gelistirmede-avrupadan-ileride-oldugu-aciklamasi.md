@@ -16,3 +16,7 @@ Bu gelişmeler, Türkiye'nin kendi savunma ihtiyaçlarını karşılama ve küre
 Türkiye'nin savunma sanayii alanındaki ilerlemeleri devam ederken, Cumhurbaşkanı Erdoğan 20 Haziran 2026'da yaptığı açıklamada, Türkiye'nin ilk kez bir NATO ve Avrupa Birliği üyesi ülkeye savaş gemisi ihraç ettiğini duyurdu. Bu gelişme, Türkiye'nin savunma sanayii kapasitesinin ve küresel pazardaki rekabet gücünün bir göstergesi olarak kayıtlara geçti.
 
 Bu ihracat, Türkiye'nin kendi savunma projelerindeki başarısının yanı sıra, uluslararası alanda da güvenilir bir tedarikçi konumuna geldiğini teyit etmektedir. Bu tür adımlar, ülkenin teknolojik bağımsızlığını güçlendirme ve savunma sanayiinde stratejik bir oyuncu olma hedeflerine hizmet etmektedir.
+
+## Güncelleme - 2026-07-28
+
+TUSAŞ Genel Müdürü Prof. Dr. Temel Kotil, Türkiye'nin 6. nesil savaş uçağı geliştirme çalışmalarında Avrupa'daki rakiplerinden daha ileride olduğunu belirtti. Kotil, bu alandaki ilerlemenin son 20 yılda kaydedilen önemli teknolojik sıçramalarla mümkün olduğunu vurguladı. Bu durum, Türkiye'nin savunma sanayii alanındaki stratejik hedeflerine ulaşma yolunda önemli bir kilometre taşı olarak görülüyor.

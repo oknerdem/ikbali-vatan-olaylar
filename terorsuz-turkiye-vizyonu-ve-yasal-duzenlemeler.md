@@ -8,3 +8,7 @@ img: ""
 Türkiye'nin 'Terörsüz Türkiye' vizyonu doğrultusunda Meclis'te önemli yasal düzenlemeler üzerinde çalışıldığı belirtiliyor. Kulislerde, bu yöndeki çalışmaların 'pürüzlerin aşılmasıyla' ilerlediği ve konuyla ilgili detayların netleştiği ifade ediliyor.
 
 Bu kapsamda, 'kod yasa' olarak da adlandırılan düzenlemelerin detaylarının kamuoyu ile paylaşılması bekleniyor. Meclis'teki yoğun mesainin, terörle mücadelede yeni bir dönemin kapısını aralaması hedefleniyor. Bu süreçte, atılacak adımların Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.
+
+## Güncelleme - 2026-07-28
+
+AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' süreciyle ilgili önemli açıklamalarda bulundu. Çelik, TBMM kapanmadan bu sürecin yasal çerçevesinin tamamlanacağını ve kamuoyu ile paylaşılacağını belirtti. Bu gelişme, Türkiye'nin terörle mücadelesinde yeni bir döneme girildiğine işaret ediyor.

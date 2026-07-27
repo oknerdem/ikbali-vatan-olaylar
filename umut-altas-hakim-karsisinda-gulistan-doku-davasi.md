@@ -26,3 +26,7 @@ Umut Altaş'ın mahkemeye çıkacak olması ve elinde deliller olduğunu belirtt
 ## Güncelleme - 2026-07-23
 
 Gülistan Doku soruşturması kapsamında, dönemin Tunceli Valisi Tuncay Sonel ile Gülistan Doku'nun erkek arkadaşı Umut Altaş'ın eski polis babası ile birlikte toplamda 2 kişinin daha gözaltına alındığı bildirildi. Bu gözaltıların, soruşturmada elde edilen yeni deliller ve eski vali ile ihraç edilen polis memurunun telefon yazışmalarının incelenmesi sonucu yapıldığı belirtildi. Soruşturma, bu yeni gelişmelerle birlikte derinleşerek devam ediyor.
+
+## Güncelleme - 2026-07-28
+
+Gülistan Doku soruşturması kapsamında, dönemin Tunceli Valisi Tuncay Sonel'in de aralarında bulunduğu üç kişi hakkında tutuklama kararı verildi. Bu kişilerin, soruşturmada elde edilen yeni deliller ve eski vali ile ihraç edilen polis memurunun telefon yazışmalarının incelenmesi sonucu gözaltına alındığı ve ardından tutuklandığı bildirildi. Soruşturma, bu yeni gelişmelerle birlikte derinleşerek devam ediyor.
