@@ -70,3 +70,9 @@ Bu süreçte, Türkiye'nin güvenlik politikalarının yanı sıra yeni yüzyıl
 Cumhurbaşkanı Erdoğan, 10 Temmuz 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde elde edilen başarıların ardından 'terörsüz Türkiye' süreciyle yeni bir hikaye yazmaya başlayacağını belirtti. Bu sürecin başarıya ulaşmasının, ülkenin geleceği ve aydınlık yarınları için önemini vurguladı.
 
 Erdoğan'ın bu ifadeleri, daha önceki kabine toplantıları ve Milli Güvenlik Kurulu'nda ele alınan terörle mücadele ve güvenlik konularının bir neticesi olarak değerlendirilmektedir. Terörsüz bir Türkiye'nin inşası, ülkenin stratejik devlet vizyonunun bir parçası olarak konumlandırılmaktadır.
+
+## Güncelleme - 2026-07-27
+
+AK Parti MYK, Cumhurbaşkanı Erdoğan başkanlığında toplandı. Toplantının ana gündem maddeleri arasında 'Terörsüz Türkiye' süreci ve ekonomi yer aldı. Bu gündem, Türkiye'nin terörle mücadelesindeki kararlılığını ve ekonomik gelişmeleri eş zamanlı olarak ele alma stratejisini yansıtmaktadır.
+
+Toplantıda ayrıca, ülkenin güncel ekonomik durumu ve terörle mücadeleye yönelik atılacak adımlar detaylı bir şekilde değerlendirildi. Bu iki konunun bir arada ele alınması, güvenlik ve istikrarın ekonomik kalkınma için temel teşkil ettiği anlayışını pekiştirmektedir.
