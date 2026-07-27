@@ -72,3 +72,7 @@ Bazı kaynaklar, taslağın 4 binden fazla hükümlüyü kapsayabileceği ve İm
 ## Güncelleme - 2026-07-24
 
 Terörsüz Türkiye hedefiyle hazırlanan çerçeve yasa taslağına ilişkin yeni gelişmeler yaşanıyor. Edinilen bilgilere göre, PKK yöneticilerinin Türkiye'ye dönmelerine izin verilmeyeceği ve Süleymaniye'ye gönderilmeleri seçeneğinin değerlendirildiği belirtiliyor. Bu kapsamda, yaklaşık 200 kişilik bir PKK yönetici kadrosunun Türkiye'ye girişinin engelleneceği ve Süleymaniye'de konuşlandırılacağı iddia ediliyor. Bu durum, yasa taslağının terör örgütü elebaşlarına yönelik atılacak adımları netleştirmeye yönelik bir adım olarak öne çıkıyor.
+
+## Güncelleme - 2026-07-27
+
+AK Parti MYK ve Kabine toplantılarında 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanacak yasal düzenlemeler gündeme alındı. Yeni haftada Meclis'e gelmesi beklenen çerçeve yasa taslağının, terörle mücadeledeki kararlılığı vurguladığı ve bir infaz düzenlemesi niteliği taşıdığı belirtiliyor. Taslakta ağır suçlar ve genel af uygulamasının yer almayacağı, ayrıca Abdullah Öcalan'a yönelik özel bir statü veya umut hakkı düzenlemesinin bulunmayacağı kesinleşti. Bu gelişmeler, yasal düzenlemenin içeriği ve kapsamı hakkında kamuoyunda yürütülen tartışmalara ışık tutuyor.

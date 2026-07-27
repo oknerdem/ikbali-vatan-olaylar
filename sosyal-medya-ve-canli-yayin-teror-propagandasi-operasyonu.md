@@ -28,3 +28,7 @@ Son gelişmelerde, FETÖ iltisaklı olduğu belirtilen 2702 sosyal medya hesabı
 ## Güncelleme - 2026-07-12 (2)
 
 Terörle mücadele kapsamında, FETÖ iltisaklı olduğu belirlenen 2.702 sosyal medya hesabına erişim engellendi. Bu engellemeler, dijital platformlarda yürütülen terör propagandası ve dezenformasyonla mücadele çabalarının bir parçası olarak değerlendiriliyor. Benzer şekilde, başka bir operasyonda ise terör propagandası ve dezenformasyon yaydığı tespit edilen 1.652 sosyal medya hesabına da engel konulduğu bildirildi. Bu adımlar, sanal ortamda gerçekleştirilen terör faaliyetlerine karşı alınan önlemlerin bir uzantısı olarak görülüyor.
+
+## Güncelleme - 2026-07-27
+
+Son gelişmelerde, terör propagandası ve dezenformasyonla mücadele kapsamında toplamda 6.644 sosyal medya hesabına erişim engellendiği bildirildi. Bu engellemeler, dijital platformlarda yürütülen terör faaliyetlerine karşı alınan önlemlerin bir parçası olarak değerlendiriliyor. Bu kapsamda, FETÖ iltisaklı olduğu belirtilen 2.702 hesap ile terör propagandası ve dezenformasyon yaydığı tespit edilen 1.652 hesaba daha erişim engeli getirildiği kaydedildi.

@@ -36,3 +36,7 @@ Bu inceleme, Şara'nın Türkiye ziyaretinin hemen ardından gündeme gelmesiyle
 ## Güncelleme - 2026-07-26
 
 Suriye Cumhurbaşkanı Ahmed Şara, Türkiye ziyaretinin ardından yaptığı açıklamalarda, Lübnan'daki istikrarsızlığın Suriye'ye doğrudan yansıyabileceği uyarısında bulundu. Ayrıca, YPG ile ilgili bir mutabakat sürecinde aksamalar yaşandığına işaret ederek, bu konudaki kritik uyarılarını dile getirdi. Bu açıklamalar, Türkiye'nin bölgesel güvenlik politikaları ve Suriye ile olan ilişkileri açısından önemli değerlendirmeler olarak öne çıkıyor.
+
+## Güncelleme - 2026-07-27
+
+Suriye Cumhurbaşkanı Ahmed Şara, Ankara ziyaretinin ardından yaptığı açıklamalarda, İsrail ile ilgili önemli değerlendirmelerde bulundu. Şara, Türkiye'nin bu konudaki yaklaşımını ve bölgesel diplomasideki rolünü vurguladı. Ayrıca, YPG ile ilgili bir mutabakat sürecinde yaşanan aksamalara da dikkat çekerek, bu konudaki kritik uyarılarını yineledi. Bu açıklamalar, Türkiye'nin dış politikası ve Suriye ile olan ilişkileri açısından önemli değerlendirmeler olarak öne çıkıyor.
