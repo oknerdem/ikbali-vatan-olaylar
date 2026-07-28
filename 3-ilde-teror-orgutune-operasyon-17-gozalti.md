@@ -54,3 +54,9 @@ Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir s
 ## Güncelleme - 2026-07-24
 
 İstanbul merkezli olarak 12 ilde eş zamanlı olarak düzenlenen ve "yeni nesil suç örgütü" olarak nitelendirilen yapıya yönelik operasyonlarda gözaltına alınan şüphelilerden 37'si hakkında tutuklama talebinde bulunuldu. Operasyonların devam ettiği ve gözaltı sayısının artabileceği belirtildi. Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. Soruşturma kapsamında, şüphelilerin organize suç faaliyetlerine karıştığı iddia ediliyor.
+
+## Güncelleme - 2026-07-28
+
+İstanbul merkezli olarak 7 organize suç örgütüne yönelik düzenlenen eş zamanlı operasyonda 28 kişi gözaltına alındı. Operasyonların, organize suç faaliyetlerini engellemeye yönelik olduğu belirtildi. Gözaltına alınan şahısların emniyetteki işlemleri devam ediyor.
+
+Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. Güvenlik güçlerinin, ülke genelinde suç örgütleriyle mücadelesi sürüyor.

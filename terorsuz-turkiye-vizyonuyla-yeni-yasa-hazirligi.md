@@ -2,7 +2,7 @@
 title: "Terörsüz Türkiye" Vizyonuyla Yeni Yasa Hazırlığı ve Etkinlikler
 date: "2026-06-06"
 category: "Siyasi"
-img: ""
+img: "https://image.milimaj.com/i/milliyet/75/0x0/6a67deae2e0d5bd80511f0f7.jpg"
 ---
 
 Adalet Bakanlığı ve ilgili bakanlıkların, "Terörsüz Türkiye" hedefi doğrultusunda hazırladığı çerçeve yasa taslağı tamamlandı. Taslağın, Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli'ye sunulduğu bildirildi. Bu yasal düzenlemenin, terörle mücadeledeki yeni döneme ilişkin önemli adımlardan biri olması bekleniyor.
@@ -48,3 +48,7 @@ Milliyetçi Hareket Partisi (MHP) yetkilileri, 'terörsüz Türkiye' vizyonunun 
 İYİ Parti Kocaeli Milletvekili Lütfü Türkdoğan, TBMM Başkanlığı'na sunduğu soru önergesiyle, "Öcalan dosyasının" akıbetini sordu. Türkdoğan, "Terörsüz Türkiye" vizyonuyla hazırlanan yasa taslağının gündemde olduğu bir dönemde, 16 yıldır Meclis'te bekleyen "Öcalan dosyasının" neden işlem görmediğini ve bu konudaki güncel durumun ne olduğunu sormuş oldu.
 
 Öte yandan, MHP Genel Başkanı Devlet Bahçeli'nin DEM Parti heyetini kabul ettiği ve "terörsüz Türkiye" temaslarının ele alındığı belirtildi. Bu görüşmenin perde arkasına dair detaylar henüz kamuoyuyla paylaşılmazken, terörle mücadele ve siyasi çözüm süreçlerine dair farklı yaklaşımların masaya yatırıldığı tahmin ediliyor.
+
+## Güncelleme - 2026-07-28
+
+AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" sürecinde yeni bir aşamaya gelindiğini belirtti. Bu yeni aşama, hazırlanan yasa taslağının ince işçilik ve tamamlanma sürecine girdiğini göstermektedir. Sürecin Meclis tatile girmeden tamamlanması hedeflenmektedir. Öte yandan, "silah eldeyken kanun çıkmaz" ilkesi gereği terör örgütü mensuplarının silah bırakması şartının taslakta yer aldığı ve bu durumun süreci etkileyebileceği yönünde haberler de bulunmaktadır. Ayrıca, "Öcalan dosyasının" akıbetiyle ilgili soru önergesi verilmesi, konunun farklı boyutlarıyla gündemde olduğunu göstermektedir.
