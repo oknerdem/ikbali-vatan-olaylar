@@ -76,3 +76,7 @@ Diğer yandan, MHP'nin 'Terörsüz Türkiye' vurgusu ve Aydın'dan gelen destek 
 DEM Parti Sözcüsü Ayşegül Doğan, "Terörsüz Türkiye" vizyonuyla hazırlanan çerçeve yasa taslağının son aşamaya geldiğini belirtti. Bu gelişme, Türkiye'nin terörle mücadeledeki hukuki ve siyasi süreçlerinde yeni bir döneme girildiğini gösteriyor. Yasanın içeriği ve yürürlüğe giriş tarihi hakkında detaylar önümüzdeki günlerde netleşmesi bekleniyor.
 
 Bu süreçte, farklı siyasi partilerin ve toplumsal kesimlerin de sürece dahil olması ve destek vermesi, terörle mücadelede geniş bir mutabakatın oluştuğuna işaret ediyor. Yasal düzenlemelerin, terörün önlenmesi ve toplumsal huzurun sağlanması hedeflerine hizmet etmesi amaçlanıyor.
+
+## Güncelleme - 2026-07-28
+
+AK Parti MYK'da 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 maddelik yasa taslağı ele alındı. Taslakta yer alan kontrollü infaz mekanizmalarının detayları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Bu gelişmeler, sürecin hukuki ve siyasi boyutlarının netleşmeye başladığını gösteriyor. Öte yandan, bazı haber kaynakları, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin bulunduğunu ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise daha erken bir adım istediği yönünde bilgiler paylaştı. Ayrıca, Öcalan'ın bu teklife onay verdiği iddiaları da tartışmalara neden oldu.
