@@ -60,3 +60,7 @@ Irak'ın Erbil kentindeki bölücü terör örgütü karargahına yönelik bir s
 İstanbul merkezli olarak 7 organize suç örgütüne yönelik düzenlenen eş zamanlı operasyonda 28 kişi gözaltına alındı. Operasyonların, organize suç faaliyetlerini engellemeye yönelik olduğu belirtildi. Gözaltına alınan şahısların emniyetteki işlemleri devam ediyor.
 
 Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yönelik düzenlenen ve 17 kişinin gözaltına alındığı operasyonun ardından geldi. Güvenlik güçlerinin, ülke genelinde suç örgütleriyle mücadelesi sürüyor.
+
+## Güncelleme - 2026-07-28 (2)
+
+28 Temmuz 2026 tarihinde, İstanbul merkezli olarak 7 organize suç örgütüne yönelik eş zamanlı operasyonlar düzenlendi. Operasyonlarda toplam 28 şüpheli gözaltına alındı. Güvenlik güçleri tarafından yapılan açıklamada, operasyonların organize suç faaliyetlerini engellemeye yönelik olduğu belirtildi. Gözaltına alınan şahısların emniyetteki işlemleri devam ederken, soruşturmanın genişletileceği öğrenildi.
