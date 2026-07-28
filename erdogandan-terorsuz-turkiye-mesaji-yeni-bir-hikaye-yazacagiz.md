@@ -32,3 +32,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, 15 Temmuz hain darbe girişiminin yıl d�
 Cumhurbaşkanı Recep Tayyip Erdoğan, Hakkari'de bir şenliğe telefonla bağlanarak bölgede terörün son bulmasıyla yeni bir hikâye yazılacağını belirtti. Erdoğan, "Terör örgütleri için artık deniz tükenmiştir. Türkiye'ye düşmanlıkla varılabilecek hiçbir yer yoktur. Bu mücadele azimle devam edecek ve ülkemiz bu başarıyla yeni bir hikâye yazacaktır" ifadelerini kullandı.
 
 Bu açıklamalar, Türkiye'nin terörle mücadelesindeki kararlılığını ve güvenlik politikalarındaki sürekliliği vurgulamaktadır. Erdoğan'ın sözleri, hem iç hem de dış kamuoyuna yönelik terörle mücadeledeki kararlılık mesajı olarak değerlendirilmektedir.
+
+## Güncelleme - 2026-07-28
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, Irak ile terörle mücadele, enerji ve Kalkınma Yolu Projesi gibi alanlarda işbirliğini güçlendirme niyetini dile getirdi. Erdoğan, "Bölgemizin savaş, terör ve çatışmayla değil, kalkınma, refah, huzur ve istikrarla anılması için çaba gösteriyoruz" ifadelerini kullandı. Bu açıklamalar, Türkiye'nin terörle mücadelesini bölgesel işbirliği ve kalkınma perspektifiyle ele aldığını göstermektedir.
