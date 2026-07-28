@@ -12,3 +12,7 @@ Bu kapsamda, 'kod yasa' olarak da adlandırılan düzenlemelerin detaylarının 
 ## Güncelleme - 2026-07-28
 
 AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' süreciyle ilgili önemli açıklamalarda bulundu. Çelik, TBMM kapanmadan bu sürecin yasal çerçevesinin tamamlanacağını ve kamuoyu ile paylaşılacağını belirtti. Bu gelişme, Türkiye'nin terörle mücadelesinde yeni bir döneme girildiğine işaret ediyor.
+
+## Güncelleme - 2026-07-28 (2)
+
+AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' süreciyle ilgili yaptığı açıklamada, TBMM kapanmadan bu sürecin yasal çerçevesinin tamamlanacağını ve kamuoyu ile paylaşılacağını belirtti. Bu gelişme, Türkiye'nin terörle mücadelesinde yeni bir döneme girildiğine işaret ediyor. Yeni Şafak'ın haberine göre, terörsüz Türkiye süreci 'ince işçilik' aşamasına gelmiş durumda.
