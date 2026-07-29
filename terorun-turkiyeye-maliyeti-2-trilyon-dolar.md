@@ -20,3 +20,9 @@ Zeybekci'nin açıklamaları, terörle mücadelenin ekonomik yükünün boyutunu
 AK Parti Genel Başkan Yardımcısı Nihat Zeybekci, terörün Türkiye'nin milli gelir kaybına yol açtığını ve bu kaybın yaklaşık 2,1 trilyon dolar seviyesinde olduğunu belirtti. Farklı kaynaklarda ise bu rakamın 3,1 trilyon dolara ulaştığına dair açıklamalar da yer almaktadır.
 
 Bu güncellemeler, terörün Türkiye ekonomisi üzerindeki maliyetinin daha önceki tahminlerin üzerine çıktığını ve bu durumun ülkenin ekonomik geleceği açısından önemli bir risk teşkil ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-29
+
+AK Parti Genel Başkan Yardımcısı Nihat Zeybekci, terörün Türkiye'ye olan ekonomik maliyetinin 41 yıllık süreçte 3 trilyon doları aştığını belirtti. Bu rakam, daha önceki 2 trilyon dolarlık tahminlerin üzerine çıkarak, terörün ülke ekonomisi üzerindeki yükünün boyutunu yeniden ortaya koymaktadır.
+
+Farklı kaynaklarda da benzer şekilde 3,1 trilyon dolara ulaştığına dair açıklamalar yer almaktadır. Bu güncellemeler, terörle mücadelenin ekonomik etkilerinin ne denli büyük olduğunu ve bu durumun ülkenin ekonomik geleceği açısından önemli bir risk teşkil ettiğini vurgulamaktadır.

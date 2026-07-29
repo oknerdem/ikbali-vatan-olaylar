@@ -80,3 +80,7 @@ AK Parti MYK ve Kabine toplantılarında 'Terörsüz Türkiye' süreci ve bu kap
 ## Güncelleme - 2026-07-29
 
 AK Parti'li Şamil Tayyar, "Terörsüz Türkiye" hedefiyle hazırlanan çerçeve yasa taslağına ilişkin kulis bilgilerini paylaştı. Tayyar'a göre, taslak PKK yöneticilerinin Türkiye'ye dönmelerine izin vermeyecek ve Abdullah Öcalan İmralı'da kalmaya devam edecek. Bu düzenlemenin yaklaşık 8 bin kişiyi kapsayabileceği ve 5 yıl adli kontrol şartı getirebileceği iddia ediliyor. Taslakta, PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağı da belirtiliyor.
+
+## Güncelleme - 2026-07-29 (2)
+
+İYİ Parti Genel Başkanı Müsavat Dervişoğlu, hazırlanan çerçeve yasa taslağının içeriği hakkında sert tepkiler göstererek, "Milletin bilmediği taslağı İmralı biliyor" iddiasında bulundu. Dervişoğlu, TBMM'de görüşülmeyen bir kanun teklifini terör örgütü elebaşının bildiğini öne sürerek, "TBMM, terör örgütünün taleplerini yasalaştıran makam olamaz" dedi. Bu açıklamalar, yasa taslağının şeffaflığı ve içeriği konusundaki tartışmaları daha da alevlendirdi. AK Parti'li Şamil Tayyar ise kulis bilgilerini paylaşarak, taslağın PKK yöneticilerinin Türkiye'ye dönmelerine izin vermeyeceğini ve Abdullah Öcalan'ın İmralı'da kalmaya devam edeceğini belirtti. Tayyar, düzenlemenin yaklaşık 8 bin kişiyi kapsayabileceğini ve 5 yıl adli kontrol şartı getirebileceğini iddia etti. Ayrıca, taslakta PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağı da vurgulandı.
