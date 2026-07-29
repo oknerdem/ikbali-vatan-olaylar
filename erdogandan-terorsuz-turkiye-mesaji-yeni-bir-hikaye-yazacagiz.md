@@ -36,3 +36,7 @@ Bu açıklamalar, Türkiye'nin terörle mücadelesindeki kararlılığını ve g
 ## Güncelleme - 2026-07-28
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, Irak ile terörle mücadele, enerji ve Kalkınma Yolu Projesi gibi alanlarda işbirliğini güçlendirme niyetini dile getirdi. Erdoğan, "Bölgemizin savaş, terör ve çatışmayla değil, kalkınma, refah, huzur ve istikrarla anılması için çaba gösteriyoruz" ifadelerini kullandı. Bu açıklamalar, Türkiye'nin terörle mücadelesini bölgesel işbirliği ve kalkınma perspektifiyle ele aldığını göstermektedir.
+
+## Güncelleme - 2026-07-29
+
+Cumhurbaşkanı Erdoğan, Kabine Toplantısı sonrası yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve bu sürecin tamamlanmasıyla Türkiye'nin yeni bir hikâye yazacağını yineledi. Erdoğan, "Terör engeli ortadan kalktığında Türkiye ekonomisi her alanda yeni bir hikaye yazmaya başlayacak" dedi. Ayrıca, "Terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin önümüzdeki günlerde Meclis'e sunulacağını belirtti. Bu düzenlemelerin, sürecin tamamlanmasıyla birlikte 86 milyon vatandaşın kazanacağı bir dönemi başlatacağı ifade edildi.

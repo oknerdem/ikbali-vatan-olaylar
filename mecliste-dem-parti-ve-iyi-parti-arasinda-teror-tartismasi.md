@@ -20,3 +20,9 @@ TBMM Genel Kurulu'nda devam eden oturumlarda, DEM Parti ve İYİ Parti milletvek
 ## Güncelleme - 2026-07-24
 
 TBMM'de DEM Parti ve İYİ Parti milletvekilleri arasında, 'terör' konusunun siyasi söylemlerdeki yeri ve 'Türk' vurgusu üzerinden başlayan tartışmalar devam etti. İki parti grubundan yapılan açıklamalarda, birbirlerinin söylemleri sert dille eleştirilerek kendi pozisyonları savunuldu. Bu durum, Türkiye'nin güvenlik ve terörle mücadele gündemindeki siyasi kutuplaşmayı ve hassasiyetleri bir kez daha gözler önüne serdi.
+
+## Güncelleme - 2026-07-29
+
+TBMM Genel Kurulu'nda İYİ Parti'nin yargılamada 'makul süre' ve 'uzun tutukluluk' konularını araştırma önerisi, AKP ve MHP'nin oylarıyla reddedildi. Bu gelişme, daha önce DEM Parti ve İYİ Parti arasında yaşanan terör tartışmalarının ardından yargı ve siyaset arasındaki gerilimin farklı bir boyuta taşındığını gösterdi.
+
+Reddedilen öneri, yargı süreçlerinin uzaması ve tutukluluk sürelerinin uzunluğu gibi konuları gündeme getirirken, AKP ve MHP'nin bu konudaki tutumu dikkat çekti. Bu durum, Meclis'teki siyasi partiler arasındaki görüş ayrılıklarını ve yargı bağımsızlığına ilişkin tartışmaları derinleştirdi.

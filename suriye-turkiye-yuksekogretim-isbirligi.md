@@ -30,3 +30,9 @@ Türkiye ve Suriye arasında 30 Haziran 2026 tarihinde güvenlik ve afet yöneti
 23 Temmuz 2026 tarihinde Türkiye ve Suriye arasında kültür merkezlerine ilişkin bir anlaşma imzalandı. Bu anlaşma, daha önce yükseköğretim, sağlık ve güvenlik alanlarında atılan adımların ardından, iki ülke arasındaki kültürel iş birliğini de resmileştirdi.
 
 Anlaşmanın detayları henüz tam olarak açıklanmamış olsa da, kültürel alışverişin ve iş birliğinin artırılması hedeflenmektedir. Bu gelişme, iki ülke arasındaki ilişkilerin çeşitli alanlarda ilerlediğini göstermektedir.
+
+## Güncelleme - 2026-07-29
+
+Türkiye Cumhuriyet Merkez Bankası (TCMB) ile Suriye Merkez Bankası arasında 29 Temmuz 2026 tarihinde "Türk Lirası Mevduat Hesabı Anlaşması" imzalandı. Bu anlaşma, iki ülke arasındaki finansal ve ekonomik ilişkilerde yeni bir dönemin başlangıcını temsil etmektedir.
+
+Bu gelişme, daha önce yükseköğretim, sağlık, güvenlik ve kültür alanlarında atılan iş birliği adımlarının ardından, Türkiye ve Suriye arasındaki ilişkilerin ekonomik boyutunu da güçlendirmektedir. Anlaşmanın, bölgesel ekonomik entegrasyon ve finansal istikrar açısından önemli etkileri olması beklenmektedir.
