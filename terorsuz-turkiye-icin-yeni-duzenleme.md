@@ -90,3 +90,7 @@ Ancak, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin
 ## Güncelleme - 2026-07-29
 
 Kabine, bugünkü toplantısında 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 maddelik yasa taslağını ele aldı. Taslakta, kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor.
+
+## Güncelleme - 2026-07-29 (2)
+
+Bu gelişmeler, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin de bulunduğunu ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise daha erken bir adım istediği yönündeki bilgilerin yanı sıra, Abdullah Öcalan'ın teklife onay verdiği iddialarının da kamuoyunda tartışmalara neden olduğunu gösteriyor.
