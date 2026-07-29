@@ -76,3 +76,7 @@ Erdoğan'ın bu ifadeleri, daha önceki kabine toplantıları ve Milli Güvenlik
 AK Parti MYK, Cumhurbaşkanı Erdoğan başkanlığında toplandı. Toplantının ana gündem maddeleri arasında 'Terörsüz Türkiye' süreci ve ekonomi yer aldı. Bu gündem, Türkiye'nin terörle mücadelesindeki kararlılığını ve ekonomik gelişmeleri eş zamanlı olarak ele alma stratejisini yansıtmaktadır.
 
 Toplantıda ayrıca, ülkenin güncel ekonomik durumu ve terörle mücadeleye yönelik atılacak adımlar detaylı bir şekilde değerlendirildi. Bu iki konunun bir arada ele alınması, güvenlik ve istikrarın ekonomik kalkınma için temel teşkil ettiği anlayışını pekiştirmektedir.
+
+## Güncelleme - 2026-07-29
+
+29 Temmuz 2026'da yapılan Kabine toplantısında, 'Terörsüz Türkiye' hedefi ve ekonomi konuları ana gündem maddeleri olarak ele alındı. Toplantıda ayrıca bölgesel gelişmeler ve diplomasi konularına da değinildi. Bu toplantı, Türkiye'nin güvenlik ve ekonomik politikalarının eş zamanlı olarak değerlendirildiği bir platform olarak öne çıktı.

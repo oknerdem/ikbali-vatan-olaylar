@@ -76,3 +76,7 @@ Terörsüz Türkiye hedefiyle hazırlanan çerçeve yasa taslağına ilişkin ye
 ## Güncelleme - 2026-07-27
 
 AK Parti MYK ve Kabine toplantılarında 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanacak yasal düzenlemeler gündeme alındı. Yeni haftada Meclis'e gelmesi beklenen çerçeve yasa taslağının, terörle mücadeledeki kararlılığı vurguladığı ve bir infaz düzenlemesi niteliği taşıdığı belirtiliyor. Taslakta ağır suçlar ve genel af uygulamasının yer almayacağı, ayrıca Abdullah Öcalan'a yönelik özel bir statü veya umut hakkı düzenlemesinin bulunmayacağı kesinleşti. Bu gelişmeler, yasal düzenlemenin içeriği ve kapsamı hakkında kamuoyunda yürütülen tartışmalara ışık tutuyor.
+
+## Güncelleme - 2026-07-29
+
+AK Parti'li Şamil Tayyar, "Terörsüz Türkiye" hedefiyle hazırlanan çerçeve yasa taslağına ilişkin kulis bilgilerini paylaştı. Tayyar'a göre, taslak PKK yöneticilerinin Türkiye'ye dönmelerine izin vermeyecek ve Abdullah Öcalan İmralı'da kalmaya devam edecek. Bu düzenlemenin yaklaşık 8 bin kişiyi kapsayabileceği ve 5 yıl adli kontrol şartı getirebileceği iddia ediliyor. Taslakta, PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağı da belirtiliyor.

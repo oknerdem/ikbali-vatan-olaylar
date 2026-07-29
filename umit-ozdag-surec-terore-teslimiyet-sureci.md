@@ -20,3 +20,9 @@ Bu açıklamalar, geçmişte başlatılan ve 'çözüm süreci' olarak adlandır
 Gazete Pencere'de yer alan habere göre, Barış Boyun'un PKK'yı yetersiz bulduğu ve yeni bir örgüt kurarak 'devrim' başlatmayı hedeflediği iddia edildi. Bu durum, terör örgütlerinin iç dinamikleri ve olası yeni yapılanmaları açısından dikkat çekmektedir.
 
 Bu gelişme, Türkiye'deki 'süreç' tartışmalarının farklı bir boyutunu ortaya koymaktadır. Terör örgütlerinin kendi içlerinde dahi ayrışmalar ve yeni yapılanma arayışları olduğu iddiaları, güvenlik ve siyasi analizler açısından önem taşımaktadır.
+
+## Güncelleme - 2026-07-29
+
+Zafer Partisi Genel Başkanı Ümit Özdağ, silah bırakmayan bir örgüte af çıkarılmasının teröre boyun eğmek anlamına geleceğini belirterek, mevcut sürecin bu yönde ilerlediğini savundu. Özdağ, bu tür adımların ülkenin güvenlik politikaları ve milli birlik açısından taşıdığı risklere dikkat çekti.
+
+Medyascope'ta yer alan bir analizde ise Ruşen Çakır, Abdullah Öcalan'ın Kürtlere ihanet edip etmediği konusunu değerlendirdi. Bu yorum, terör örgütü elebaşının rolü ve etkileri üzerine yapılan tartışmaların siyasi boyutunu yansıtmaktadır.
