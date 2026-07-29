@@ -140,3 +140,7 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 CHP'li Çankaya Belediye Başkanı Hüseyin Can Güner, hakkında yürütülen yolsuzluk ve rüşvet soruşturması kapsamında tutuklanmasının ardından partisinden istifa ettiğini duyurdu. Güner, yeni bir siyasi parti kurma hazırlığında olan isimlerle bir araya geleceğini belirtti.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların siyasi boyutunu ve parti içindeki ayrışmaları gözler önüne seriyor. Öte yandan, İzmir'de bazı CHP'li belediye başkanlarının parti içinde kalma yönündeki açıklamaları ve kurultay çağrıları, parti içindeki hareketliliği ve geleceğe yönelik belirsizlikleri artırıyor.
+
+## Güncelleme - 2026-07-29 (2)
+
+İstanbul Üsküdar Belediyesi'ne yönelik rüşvet ve yolsuzluk iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Sinem Dedetaş'ın da aralarında bulunduğu 6 kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.

@@ -86,3 +86,7 @@ AK Parti MYK'da 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 madd
 AK Parti Merkez Yürütme Kurulu (MYK) toplantısında, 'Terörsüz Türkiye' süreci kapsamında hazırlanan 10 maddelik yasa taslağı ele alındı. Taslakta, özellikle kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Bu gelişmeler, sürecin hukuki ve siyasi boyutlarının netleştiğini gösteriyor.
 
 Ancak, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin olduğu da haberlere yansıdı. Bazı kaynaklar, AKP'nin Ekim ayını işaret ettiğini, muhalefetin ise daha erken bir adım istediğini belirtiyor. Ayrıca, Abdullah Öcalan'ın bu teklife onay verdiği yönündeki iddialar da kamuoyunda tartışmalara neden oldu.
+
+## Güncelleme - 2026-07-29
+
+Kabine, bugünkü toplantısında 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 maddelik yasa taslağını ele aldı. Taslakta, kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor.
