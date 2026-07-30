@@ -144,3 +144,7 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 ## Güncelleme - 2026-07-29 (2)
 
 İstanbul Üsküdar Belediyesi'ne yönelik rüşvet ve yolsuzluk iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Sinem Dedetaş'ın da aralarında bulunduğu 6 kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
+
+## Güncelleme - 2026-07-30
+
+Ankara Etimesgut Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Erdal Beşikçioğlu'nun da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
