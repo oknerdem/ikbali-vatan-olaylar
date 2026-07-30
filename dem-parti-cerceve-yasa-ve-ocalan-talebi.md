@@ -68,3 +68,9 @@ DEM Parti İmralı Heyeti, Abdullah Öcalan ile görüşmelerinin ardından yapt
 Son gelişmelere göre, 'Terörsüz Türkiye' vizyonuyla hazırlanan çerçeve yasa teklifine son şeklin verildiği ve Meclis'e sunulma aşamasında olduğu belirtiliyor. Bu yasa teklifinin, terör örgütü PKK ile mücadele ve çözüm süreci kapsamında atılacak adımları içermesi bekleniyor. Ancak, PKK'nın taleplerinin Abdullah Öcalan'ın fiziki özgürlüğünü de kapsayacak şekilde genişlediği ve bu taleplerin karşılanmaması halinde sürecin sabote edileceği yönündeki uyarıları, yasa teklifinin içeriği ve sürece dair belirsizlikleri artırıyor.
 
 Bu süreçte, DEM Parti İmralı Heyeti'nin AK Parti'li yetkililerle yaptığı görüşmeler ve Abdullah Öcalan'ın 'yasal zemin' talebini yinelemesi, çözüm süreciyle ilgili siyasi tansiyonun ve beklentilerin devam ettiğini gösteriyor. Yasa teklifinin Meclis tatile girmeden çıkarılması yönündeki beklentiler sürerken, PKK'nın Öcalan'ın fiziki özgürlüğü konusundaki ısrarı, sürecin önündeki en önemli engellerden biri olarak öne çıkıyor.
+
+## Güncelleme - 2026-07-30
+
+Terör örgütü PKK, Türkiye'de gündeme gelen 'çerçeve yasa' düzenlemesine ilişkin tutumunu henüz belirlemediğini açıkladı. Örgüt tarafından yapılan açıklamalarda, "Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız" ifadesi kullanıldı. Bu açıklama, yasa teklifinin içeriğinin PKK tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini göstermektedir.
+
+Bu gelişme, çözüm süreci ve siyasi gelişmeler açısından kritik öneme sahip. Yasa teklifinin detaylarının netleşmesiyle birlikte PKK'nın tavrının da netleşmesi bekleniyor. Bu durum, sürecin ilerleyişi üzerinde belirleyici bir rol oynayabilir.
