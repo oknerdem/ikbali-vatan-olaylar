@@ -54,3 +54,7 @@ ABD ordusu, İran'a yönelik 11. saldırı dalgasını tamamladığını duyurdu
 ## Güncelleme - 2026-07-25
 
 İran'dan yapılan açıklamalarda, ABD hedeflerine yönelik nokta atışlı saldırıların devam edeceği belirtildi. Bu açıklamalar, iki ülke arasındaki gerilimin artabileceği endişelerini güçlendirdi. Saldırıların devam edeceğine dair yapılan bu vurgu, bölgedeki istikrarsızlığın sürmesine ve tansiyonun yükselmesine neden olmaktadır.
+
+## Güncelleme - 2026-07-30
+
+ABD'nin İran'a yönelik yeni bir saldırı dalgası başlattığı bildirildi. Bu gelişmenin ardından İran'ın farklı bölgelerinde patlama sesleri duyulduğu aktarıldı. Bu durum, iki ülke arasındaki gerilimin tırmandığına işaret ediyor.

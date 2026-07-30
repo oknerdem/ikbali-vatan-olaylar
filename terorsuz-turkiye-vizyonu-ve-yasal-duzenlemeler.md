@@ -20,3 +20,7 @@ AK Parti Sözcüsü Ömer Çelik, 'Terörsüz Türkiye' süreciyle ilgili yaptı
 ## Güncelleme - 2026-07-28 (3)
 
 AK Parti Sözcüsü Ömer Çelik, TBMM kapanmadan "Terörsüz Türkiye" sürecine ilişkin yasal çerçevenin tamamlanacağını ve kamuoyu ile paylaşılacağını belirtti. Bu gelişme, sürecin "ince işçilik" aşamasına geldiğini ve infaz sisteminde yeni bir dönemin başlayabileceğini gösteriyor.
+
+## Güncelleme - 2026-07-30
+
+Terörsüz Türkiye yasası muhalefete sunulacak. Bu yasal düzenlemelerin Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.
