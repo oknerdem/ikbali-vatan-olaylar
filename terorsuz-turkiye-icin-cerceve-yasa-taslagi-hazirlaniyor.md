@@ -88,3 +88,7 @@ AK Parti'li Şamil Tayyar, "Terörsüz Türkiye" hedefiyle hazırlanan çerçeve
 ## Güncelleme - 2026-07-30
 
 TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" hedefiyle hazırlanan çerçeve yasa taslağının genel af niteliği taşımadığını ve bir infaz düzenlemesi olduğunu yineledi. Taslağın Meclis tatile girmeden yasalaşmasını umduğunu belirten Kurtulmuş, MHP lideri Devlet Bahçeli ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu ile görüşmeler gerçekleştirdi. Dervişoğlu, taslağın şeffaf bir süreçle ilerlemesi gerektiğini vurgularken, Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı devam ediyor.
+
+## Güncelleme - 2026-07-31
+
+AK Parti'li Şamil Tayyar, taslağın yaklaşık 8 bin kişiyi kapsayabileceğini ve 5 yıl adli kontrol şartı getirebileceğini iddia etti. Tayyar ayrıca, taslakta PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağını belirtti. Bu gelişmeler, yasal düzenlemenin içeriği ve kapsamı hakkında kamuoyunda yürütülen tartışmaları sürdürüyor.
