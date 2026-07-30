@@ -12,3 +12,9 @@ Bu kapsamda, PKK ile ilgili olduğu belirtilen 10 maddelik bir yasa taslağını
 ## Güncelleme - 2026-07-07
 
 Temmuz ayında Meclis'e sunulması beklenen 10 maddelik yasa taslağı, terörle mücadelede hukuki çerçeveyi güçlendirmeyi amaçlamaktadır. Bu düzenlemelerin, terör örgütlerinin faaliyetlerini engelleme ve tasfiyesini hızlandırma potansiyeli taşıdığı değerlendirilmektedir. Siyasi söylemlerdeki terörsüz Türkiye vurgusu ve güvenlik güçlerinin sahadaki operasyonel başarıları, bu yeni aşamanın temel unsurlarını oluşturmaktadır.
+
+## Güncelleme - 2026-07-30
+
+Milli Savunma Bakanlığı (MSB), Türkiye'nin Irak ile terörle mücadele konusunda koordinasyon ve işbirliğini kararlılıkla sürdürdüğünü açıkladı. Bu işbirliği, bölgesel güvenlik açısından önem taşımakta ve terör örgütlerinin faaliyetlerini engelleme çabalarına katkı sağlamaktadır.
+
+Bu gelişme, mevcut terörle mücadele stratejisinin uluslararası işbirliği boyutunu güçlendirmekte ve terörsüz bir Türkiye hedefi doğrultusunda atılan adımlara yenilerini eklemektedir.

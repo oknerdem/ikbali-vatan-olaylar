@@ -68,3 +68,7 @@ TBMM Başkanı Numan Kurtulmuş, 15 Temmuz Demokrasi ve Milli Birlik Günü anma
 ## Güncelleme - 2026-07-21
 
 TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" hedefi doğrultusunda siyasi partilerle görüşmelerine devam etti. Bu kapsamda MHP Genel Başkanı Devlet Bahçeli'yi ziyaret eden Kurtulmuş, terörle mücadelede yeni yasal düzenlemelerin gerekliliğini ve yeni anayasa çalışmalarını ele aldı. Görüşmelerde, terörle mücadelenin milli dayanışma ile mümkün olacağı ve yeni anayasanın toplumsal mutabakatla şekillenmesi gerektiği vurgulandı. Bu ziyaretler, Meclis'te "Terörsüz Türkiye" gündemine yönelik yasal düzenlemelerin hazırlık sürecinin başladığını göstermektedir.
+
+## Güncelleme - 2026-07-30
+
+TBMM Başkanı Numan Kurtulmuş, 30 Temmuz 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve sürecin büyük ölçüde tamamlandığını belirtti. Kurtulmuş, "Terörsüz Türkiye" hedefi doğrultusunda çıkarılacak yasal düzenlemelerin kesinlikle genel af niteliği taşımayacağını vurguladı. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
