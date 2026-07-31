@@ -146,3 +146,9 @@ MHP'den yapılan açıklamada, "Terörsüz Türkiye" sürecinin Türkiye'nin gü
 ## Güncelleme - 2026-07-27 (2)
 
 AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" süreciyle ilgili olarak, Meclis kapanmadan yasal çerçevenin ortaya çıkarılacağını belirtti. Bu açıklama, sürecin yasal düzenlemelerle somutlaşma aşamasına geldiğini ve TBMM'nin gündeminde öncelikli bir yer tuttuğunu göstermektedir. Çelik, esas olanın Türkiye'yi terör yükünden kurtarmak olduğunu vurgulayarak, bu sürecin yeni başladığını ifade etti.
+
+## Güncelleme - 2026-07-31
+
+DEM Parti, 'Terörsüz Türkiye' süreci için yasal düzenleme çağrısında bulunurken, Kandil'den gelen açıklamalarda Abdullah Öcalan'ın sürece dahil edilmeden bir çerçeve yasanın uygulanamayacağı belirtildi. DEM Parti Sözcüsü, sürecin önümüzdeki günler ve saatlerde kritik olacağını ifade etti.
+
+Bu gelişmeler, TBMM'ye sunulması beklenen yasal düzenlemeler öncesinde siyasi partiler arasındaki farklı yaklaşımları ve hassasiyetleri daha da belirgin hale getirirken, sürecin ilerleyişine dair önemli koşulların ve beklentilerin gündemde olduğunu gösteriyor.

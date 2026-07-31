@@ -74,3 +74,7 @@ Bu süreçte, DEM Parti İmralı Heyeti'nin AK Parti'li yetkililerle yaptığı 
 Terör örgütü PKK, Türkiye'de gündeme gelen 'çerçeve yasa' düzenlemesine ilişkin tutumunu henüz belirlemediğini açıkladı. Örgüt tarafından yapılan açıklamalarda, "Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız" ifadesi kullanıldı. Bu açıklama, yasa teklifinin içeriğinin PKK tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini göstermektedir.
 
 Bu gelişme, çözüm süreci ve siyasi gelişmeler açısından kritik öneme sahip. Yasa teklifinin detaylarının netleşmesiyle birlikte PKK'nın tavrının da netleşmesi bekleniyor. Bu durum, sürecin ilerleyişi üzerinde belirleyici bir rol oynayabilir.
+
+## Güncelleme - 2026-07-31
+
+Son günlerdeki gelişmelere göre, 'çerçeve yasa' düzenlemesinin, özellikle Selahattin Demirtaş'ın durumu ve 'siyaset yasağı' tartışmaları nedeniyle kilitlendiği iddia edilmektedir. İktidar ile DEM Parti arasında bu konunun bir krize dönüştüğü öne sürülüyor. PKK'nın ise yasa teklifinin Abdullah Öcalan'ın fiziki özgürlüğünü içermesi yönündeki talebinin devam ettiği ve aksi takdirde süreci sabote edeceği uyarısı yaptığı belirtiliyor. Bu durum, yasa teklifinin içeriği ve çözüm sürecinin geleceği hakkında belirsizlikleri artırmaktadır.
