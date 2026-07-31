@@ -78,3 +78,9 @@ Diğer yandan, Hizbullah yetkililerinden yapılan açıklamalarda, İran'ın Tan
 ## Güncelleme - 2026-07-22
 
 ABD Başkanı Trump, İran'ın Hürmüz Boğazı'ndaki herhangi bir gemi saldırısına karşılık olarak İran'daki bir köprüyü veya enerji santralini vuracaklarını belirtti. Bu açıklama, iki ülke arasındaki gerilimin tırmandığı bir dönemde geldi. TKP ise ABD'nin İran'a yönelik saldırılarına tepki gösterdi. Bu gelişmeler, bölgedeki diplomatik hareketliliği ve uluslararası ilişkilerdeki hassasiyeti artırıyor.
+
+## Güncelleme - 2026-07-31
+
+İran, Kuveyt'teki ABD üssüne yönelik bir saldırı gerçekleştirdiğini iddia etti. Bu saldırı, İran'ın Keşm Adası'nda sivil kayıplara yol açan ABD saldırısına tepki olarak gerçekleştiği ve "bedelini ödeyecekleri" yönündeki açıklamalarının ardından geldi. Bu gelişmeler, ABD ve İran arasındaki gerilimin tırmandığına işaret ediyor.
+
+Diğer yandan, Ukrayna'nın terör saldırılarına karşı Türk halkının tepkisinin arttığına dair haberler de gündemde yer alıyor. Bu durum, Ukrayna'daki çatışmaların bölgesel yankılarının devam ettiğini gösteriyor.

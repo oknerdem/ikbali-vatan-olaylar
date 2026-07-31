@@ -92,3 +92,7 @@ TBMM Başkanı Numan Kurtulmuş, "terörsüz Türkiye" hedefiyle hazırlanan çe
 ## Güncelleme - 2026-07-31
 
 AK Parti'li Şamil Tayyar, taslağın yaklaşık 8 bin kişiyi kapsayabileceğini ve 5 yıl adli kontrol şartı getirebileceğini iddia etti. Tayyar ayrıca, taslakta PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağını belirtti. Bu gelişmeler, yasal düzenlemenin içeriği ve kapsamı hakkında kamuoyunda yürütülen tartışmaları sürdürüyor.
+
+## Güncelleme - 2026-07-31 (2)
+
+PKK'dan yapılan açıklamalarda, hazırlanan çerçeve yasa taslağının Abdullah Öcalan'ın sürece dahil olması ve çağrı yapmasıyla uygulanabileceği belirtildi. Bu durum, taslağın içeriği ve terör örgütü üzerindeki olası etkileri hakkında yeni tartışmaları beraberinde getirdi. Öte yandan, bazı kaynaklar taslağın yaklaşık 8 bin kişiyi kapsayabileceğini ve 5 yıl adli kontrol şartı getirebileceğini iddia ederken, PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağı vurgulandı.
