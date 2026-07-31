@@ -56,3 +56,9 @@ Ankara'nın Çankaya ilçesi belediyesine yönelik rüşvet ve yolsuzluk soruşt
 CHP'li Akçakoca Belediye Başkanı Fikret Albayrak, hakkında verilen tahliye kararının ardından tekrar tutuklandı. Bu gelişme, daha önce 'icbar suretiyle irtikap' suçlamasıyla tutuklanan Albayrak'ın hukuki sürecinde yaşanan bir dönüm noktası olarak kayıtlara geçti.
 
 Albayrak'ın yeniden tutuklanması, yerel siyaset ve yargı gündeminde tartışılmaya devam ederken, kararın gerekçeleri ve hukuki sürecin bundan sonraki aşamaları merak konusu olmuştur. Bu durum, benzer davalarda verilen kararlar ve yargı bağımsızlığı tartışmalarını da beraberinde getirmektedir.
+
+## Güncelleme - 2026-07-31
+
+Üsküdar Belediye Başkanı Sinem Dedetaş, 'görevi kötüye kullanma' suçlamasıyla yürütülen soruşturma kapsamında tutuklandı. Bu gelişme, yerel yönetimlerdeki hukuki süreçler ve görevden uzaklaştırmalar bağlamında dikkat çekmektedir.
+
+Dedetaş'ın tutuklanması, daha önce benzer suçlamalarla gündeme gelen ve tutuklanan diğer belediye başkanlarının durumlarıyla paralellik göstermektedir. Olay, siyasi çevrelerde ve kamuoyunda yankı bulmuş olup, yargı süreçlerinin nasıl ilerleyeceği merak konusudur.
