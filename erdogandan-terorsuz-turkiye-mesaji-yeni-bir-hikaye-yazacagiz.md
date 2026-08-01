@@ -40,3 +40,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, Irak ile terörle mücadele, enerji ve Ka
 ## Güncelleme - 2026-07-29
 
 Cumhurbaşkanı Erdoğan, Kabine Toplantısı sonrası yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve bu sürecin tamamlanmasıyla Türkiye'nin yeni bir hikâye yazacağını yineledi. Erdoğan, "Terör engeli ortadan kalktığında Türkiye ekonomisi her alanda yeni bir hikaye yazmaya başlayacak" dedi. Ayrıca, "Terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin önümüzdeki günlerde Meclis'e sunulacağını belirtti. Bu düzenlemelerin, sürecin tamamlanmasıyla birlikte 86 milyon vatandaşın kazanacağı bir dönemi başlatacağı ifade edildi.
+
+## Güncelleme - 2026-08-01
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, 1 Ağustos 2026'da yaptığı açıklamalarda, terörle mücadeledeki kararlılıklarını yineleyerek, bu sürecin başarıyla tamamlanmasıyla Türkiye'nin yeni bir döneme gireceğini ve "yeni bir hikâye yazacağını" belirtti. Erdoğan, terör engelinin ortadan kalkmasıyla Türkiye ekonomisinin her alanda yeni bir sayfa açacağını vurguladı. Ayrıca, "terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin yakın zamanda Meclis'e sunulacağını ve bu adımların 86 milyon vatandaş için kazanımlarla dolu bir dönemi başlatacağını ifade etti.

@@ -96,3 +96,7 @@ AK Parti'li Şamil Tayyar, taslağın yaklaşık 8 bin kişiyi kapsayabileceğin
 ## Güncelleme - 2026-07-31 (2)
 
 PKK'dan yapılan açıklamalarda, hazırlanan çerçeve yasa taslağının Abdullah Öcalan'ın sürece dahil olması ve çağrı yapmasıyla uygulanabileceği belirtildi. Bu durum, taslağın içeriği ve terör örgütü üzerindeki olası etkileri hakkında yeni tartışmaları beraberinde getirdi. Öte yandan, bazı kaynaklar taslağın yaklaşık 8 bin kişiyi kapsayabileceğini ve 5 yıl adli kontrol şartı getirebileceğini iddia ederken, PKK'nın terör örgütü listesinden çıkarılması gibi bir durumun söz konusu olmayacağı vurgulandı.
+
+## Güncelleme - 2026-08-01
+
+TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" yasa teklifinin önümüzdeki hafta Meclis'e geleceğini duyurdu. Kurtulmuş, teklifin ortak bir teklif olarak sunulacağını belirtti ve sürecin önemli bir aşamasına gelindiğini vurguladı. Bu gelişme, terörle mücadelede atılacak yeni yasal adımların yakın zamanda kamuoyu ile paylaşılacağının işareti olarak değerlendiriliyor.

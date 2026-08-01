@@ -14,3 +14,9 @@ Bayram sonrası PKK'lılar için eve dönüş yasasının geleceği yönünde ha
 Silah bırakan PKK'lıların Türkiye'ye dönüşüne imkan tanıyacak özel bir yasa hazırlığına ilişkin iddialar gündeme gelmiştir. Bu düzenlemenin, Meclis'in kapanış tarihinden önce yasalaşması beklentisi bulunmaktadır.
 
 Söz konusu yasa teklifinin, bayram sonrası TBMM'ye sunulabileceği ve çözüm süreci kapsamında değerlendirildiği belirtilmektedir. Hazırlanan taslakta, Türkiye'ye dönecek kişilerin listesinin 200 isim civarında olabileceği ve dönüş için siyaset yapma şartı gibi unsurların yer alabileceği iddia edilmektedir.
+
+## Güncelleme - 2026-08-01
+
+Milletvekili Sezgin Tanrıkulu, silah bırakan PKK'lıların Türkiye'ye dönüşü için siyaset yapma güvencesi talep etti. Tanrıkulu'nun bu açıklaması, daha önce gündeme gelen 'eve dönüş yasası' ve düzenleme talepleriyle ilişkilendirildi.
+
+Bu gelişme, terör örgütü mensuplarının topluma entegrasyonu ve çözüm süreci tartışmaları bağlamında önemli bir boyut kazanmıştır. Siyaset yapma güvencesi talebi, bu tür düzenlemelerin hukuki ve toplumsal boyutlarına dair yeni soruları gündeme getirmiştir.
