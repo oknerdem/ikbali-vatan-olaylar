@@ -40,3 +40,9 @@ DEM Parti'den de benzer bir vurgu gelirken, Hatimoğulları'nın 'Terörsüz Tü
 PKK yöneticilerinden Duran Kalkan, "süreç batmayacak" ve "siyasetin önü açıldıkça silahlı mücadele stratejisi bir daha gündeme gelmez" açıklamalarıyla çözüm süreciyle ilgili yeni bir döneme işaret etti. Bu açıklamalar, daha önceki süreçlerden farklı bir yol izleneceği ve siyasi çözümün önceliklendirileceği yönünde yorumlandı.
 
 Öte yandan, DEM Parti'nin çözüm sürecine yönelik "çerçeve yasa" talebi ve bu konudaki siyasi tartışmalar devam ederken, MHP'nin bayram sonrası bu hedef doğrultusunda adımlar atılacağı yönündeki açıklamaları, sürecin siyasi gündemdeki yerini koruduğunu gösteriyor. Ancak, Meclis'in çalışmaması nedeniyle bu adımların gecikebileceği endişeleri de dile getiriliyor.
+
+## Güncelleme - 2026-08-01
+
+PKK'nın sınır hattındaki 81 noktadan çekildiği ve bu kampları boşalttığına dair haberler, 'Terörsüz Türkiye' süreci kapsamında önemli bir gelişme olarak kayıtlara geçti. Bu durumun, sürecin ilerleyişi ve olası yasal düzenlemeler açısından yeni bir aşama teşkil edebileceği belirtiliyor.
+
+Bu çekilme haberleri, daha önceki siyasi adımlar ve açıklamalarla birlikte değerlendirildiğinde, terörle mücadele ve toplumsal huzurun sağlanması hedeflerine yönelik somut adımların atıldığına işaret ediyor. Ancak, bu gelişmenin siyasi süreç üzerindeki nihai etkileri ve çözüm süreciyle entegrasyonu konusunda henüz netlik kazanmış bir durum bulunmuyor.

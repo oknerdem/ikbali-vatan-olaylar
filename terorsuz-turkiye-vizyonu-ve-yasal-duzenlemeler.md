@@ -24,3 +24,7 @@ AK Parti Sözcüsü Ömer Çelik, TBMM kapanmadan "Terörsüz Türkiye" sürecin
 ## Güncelleme - 2026-07-30
 
 Terörsüz Türkiye yasası muhalefete sunulacak. Bu yasal düzenlemelerin Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.
+
+## Güncelleme - 2026-08-01
+
+MHP Genel Başkan Yardımcısı Sadir Durmaz, 'Terörsüz Türkiye' vizyonunun ülkenin geleceği adına atılmış en önemli adımlardan biri olduğunu belirtti. Bu açıklama, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partiler tarafından da desteklendiğini ve vizyonun geniş bir mutabakatla ilerlediğini göstermektedir.
