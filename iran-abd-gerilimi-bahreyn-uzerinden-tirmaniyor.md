@@ -58,3 +58,7 @@ ABD ordusu, İran'a yönelik 11. saldırı dalgasını tamamladığını duyurdu
 ## Güncelleme - 2026-07-30
 
 ABD'nin İran'a yönelik yeni bir saldırı dalgası başlattığı bildirildi. Bu gelişmenin ardından İran'ın farklı bölgelerinde patlama sesleri duyulduğu aktarıldı. Bu durum, iki ülke arasındaki gerilimin tırmandığına işaret ediyor.
+
+## Güncelleme - 2026-08-02
+
+ABD ve İsrail'in İran'a yönelik olası saldırı hazırlıkları kapsamında alarma geçtiği bildirildi. İran'ın ise Suudi Arabistan'ı uyardığı gelen bilgiler arasında yer alıyor. Bu gelişmeler, bölgedeki tansiyonun daha da artabileceği endişelerini beraberinde getiriyor.

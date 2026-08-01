@@ -78,3 +78,7 @@ TBMM Başkanı Numan Kurtulmuş, 30 Temmuz 2026'da yaptığı açıklamalarda, T
 TBMM Başkanı Numan Kurtulmuş, 31 Temmuz 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve sürecin büyük ölçüde tamamlandığını yineledi. Kurtulmuş, "Terörsüz Türkiye ile yepyeni bir kardeşlik dönemi başlayacak" ifadesini kullanarak, bu hedefe ulaşmada milli dayanışmanın önemine dikkat çekti. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini sözlerine ekledi.
 
 Bu açıklamalar, terörle mücadeledeki mevcut durumun siyasi bir değerlendirmesi olarak öne çıkmaktadır. Kurtulmuş'un ifadeleri, Türkiye'nin güvenlik ve siyasi gündemindeki güncel gelişmeleri yansıtmaktadır.
+
+## Güncelleme - 2026-08-02
+
+TBMM Başkanı Numan Kurtulmuş, 1 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve sürecin büyük ölçüde tamamlandığını belirtti. Kurtulmuş, "Artık bu memlekette insanlar terörden bahsetmeyecek" ifadesini kullanarak, terörsüz bir Türkiye'nin yakın zamanda gerçekleşeceğini ve bu kapsamda hazırlanan çerçeve yasa teklifinin Meclis'e geleceğini duyurdu. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
