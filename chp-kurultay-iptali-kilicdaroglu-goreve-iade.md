@@ -192,3 +192,7 @@ Bu aşamada, Yargıtay'ın konuyu ne zaman ele alacağı ve nasıl bir karar ver
 ## Güncelleme - 2026-07-17 (2)
 
 CHP'ye yönelik "mutlak butlan" kararının iptali için yapılan başvuru Yargıtay'a ulaştı. Bu gelişme, kararın hukuki sürecinin devam ettiğini ve partideki belirsizliğin sürdüğünü gösteriyor. Öte yandan, Kemal Kılıçdaroğlu ve Özgür Özel arasında bir cenaze töreninde yaşanan "Genel Başkan benim" krizi, parti içindeki liderlik mücadelesinin ve ayrışmaların ne kadar derinleştiğinin bir göstergesi olarak öne çıktı.
+
+## Güncelleme - 2026-08-01
+
+Kuşadası Belediye Başkanı Ömer Günel ve Üsküdar Belediye Başkanı Sinem Dedetaş'ın tutuklanması, CHP'deki kurultay iptali ve genel başkanlık kriziyle ilgili hukuki ve siyasi süreçlerde yeni bir boyut oluşturdu. Kuşadası Belediye Başkanı Günel, cezaevinden yaptığı açıklamalarda mahkemenin verdiği 'mutlak butlan' kararını demokrasiye bir darbe olarak nitelendirirken, yeni bir parti kurma gerekliliğine işaret etti. Bu tutuklamalar, parti içindeki mevcut gerilimi artırırken, yerel yönetimlerdeki siyasi ve hukuki süreçlerin karmaşıklığını da gözler önüne serdi.
