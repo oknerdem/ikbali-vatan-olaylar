@@ -148,3 +148,9 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 ## Güncelleme - 2026-07-30
 
 Ankara Etimesgut Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı Erdal Beşikçioğlu'nun da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
+
+## Güncelleme - 2026-08-02
+
+Ankara Etimesgut Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine başlatılan operasyonda Belediye Başkanı Erdal Beşikçioğlu ile birlikte 44 kişi hakkında tutuklama talebiyle mahkemeye sevk edildi. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
+
+Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. Siyasi partilerden ve CHP yetkililerinden operasyonun hukuki değil siyasi olduğu yönünde tepkiler gelmeye devam ediyor.
