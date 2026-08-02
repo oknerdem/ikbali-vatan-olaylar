@@ -28,3 +28,9 @@ Terörsüz Türkiye yasası muhalefete sunulacak. Bu yasal düzenlemelerin Türk
 ## Güncelleme - 2026-08-01
 
 MHP Genel Başkan Yardımcısı Sadir Durmaz, 'Terörsüz Türkiye' vizyonunun ülkenin geleceği adına atılmış en önemli adımlardan biri olduğunu belirtti. Bu açıklama, terörle mücadeleye yönelik yasal düzenlemelerin siyasi partiler tarafından da desteklendiğini ve vizyonun geniş bir mutabakatla ilerlediğini göstermektedir.
+
+## Güncelleme - 2026-08-02
+
+MHP Genel Başkanı Devlet Bahçeli, 'Terörsüz Türkiye' vizyonunun siyaset üstü bir konu olarak görülmesi gerektiğini ve bu çerçevede hazırlanacak yasaya tam destek verilmesi gerektiğini vurguladı. Bahçeli, bu sürecin geri dönüşü olmayan bir noktada olduğunu belirterek, Türkiye'nin terörle mücadelesinde yeni bir döneme girildiğinin altını çizdi.
+
+Bu gelişmeler, Türkiye'nin terörle mücadele stratejisinde önemli bir dönüm noktası olabileceğine işaret ederken, yasal düzenlemelerin Meclis'ten geçerek yürürlüğe girmesi bekleniyor. Bu süreç, ülkenin güvenlik ve toplumsal huzuru açısından kritik bir öneme sahip.

@@ -58,3 +58,7 @@ ABD Başkanı Donald Trump, İran ile bir anlaşmanın yarın imzalanmasının p
 ## Güncelleme - 2026-06-15
 
 Türkiye Cumhurbaşkanı Recep Tayyip Erdoğan, 15 Haziran 2026'da yaptığı açıklamalarda, ABD-İran krizi bağlamında Türkiye'nin bölgesel barış ve istikrarı koruma çabalarına değindi. Erdoğan, "Coğrafyamızla birlikte dünyayı uçurumun eşiğine getiren bu krizde tek vatandaşımızın dahi burnu kanamadı. Kardeşi kardeşe kırdırma planları amacına ulaşmadı." ifadeleriyle, Türkiye'nin diplomatik rolünün altını çizdi. Bu açıklamalar, ABD Başkanı Trump'ın İran ile olası bir anlaşmaya yönelik adımları ve bölgedeki gerilimin yönetimi açısından Türkiye'nin stratejik konumunu bir kez daha teyit etti.
+
+## Güncelleme - 2026-08-02
+
+ABD Başkanı Donald Trump, İran'a yönelik saldırıları askıya aldığını duyurdu. Bu gelişme, iki ülke arasındaki gerilimin seyrini değiştirebilecek nitelikte olup, Türkiye'nin de dahil olduğu diplomatik temasların geleceği açısından önem taşımaktadır. İsrail'in ise Türkiye ile ilişkilerin kötüleştiği bir ortamda Suriye'deki operasyonlarını genişletme ihtimali, bölgedeki hassas dengeleri daha da karmaşık hale getirmektedir.
