@@ -48,3 +48,7 @@ Ankara'da polis, daha önce yapılan ihbarlar üzerine harekete geçerek, çeşi
 ## Güncelleme - 2026-07-23 (2)
 
 23 Temmuz 2026 tarihinde Milli Savunma Bakanlığı tarafından yapılan açıklamada, son bir hafta içerisinde 6 PKK'lı teröristin teslim olduğu belirtildi. Ayrıca, hudut birlikleri tarafından gerçekleştirilen operasyonlarda ise toplam 466 kişinin yakalandığı bilgisi paylaşıldı. Bu gelişmeler, terörle mücadele kapsamında yürütülen operasyonların etkinliğini ve sınır güvenliğinin sağlanmasındaki kararlılığı gözler önüne sermektedir.
+
+## Güncelleme - 2026-08-02
+
+Pakistan'da terör örgütlerine yönelik düzenlenen geniş çaplı operasyonlarda 54 şüpheli gözaltına alındı. Bu operasyonlar, bölgedeki terörle mücadele çabalarının bir parçası olarak kayıtlara geçti.

@@ -44,3 +44,9 @@ Cumhurbaşkanı Erdoğan, Kabine Toplantısı sonrası yaptığı açıklamalard
 ## Güncelleme - 2026-08-01
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, 1 Ağustos 2026'da yaptığı açıklamalarda, terörle mücadeledeki kararlılıklarını yineleyerek, bu sürecin başarıyla tamamlanmasıyla Türkiye'nin yeni bir döneme gireceğini ve "yeni bir hikâye yazacağını" belirtti. Erdoğan, terör engelinin ortadan kalkmasıyla Türkiye ekonomisinin her alanda yeni bir sayfa açacağını vurguladı. Ayrıca, "terörsüz Türkiye" süreciyle ilgili yasal düzenlemelerin yakın zamanda Meclis'e sunulacağını ve bu adımların 86 milyon vatandaş için kazanımlarla dolu bir dönemi başlatacağını ifade etti.
+
+## Güncelleme - 2026-08-02
+
+Cumhurbaşkanı Erdoğan'ın terörle mücadeledeki kararlılığı ve 'terörsüz Türkiye' vizyonu, siyasi liderlerin de gündeminde yer buldu. Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli ve AK Parti Sözcüsü Numan Kurtulmuş, bu sürece destek çağrısında bulunarak, yeni bir yasal çerçevenin siyaset üstü bir yaklaşımla ele alınması gerektiğini vurguladılar. Bu açıklamalar, terörle mücadelenin sadece güvenlik boyutuyla değil, aynı zamanda siyasi ve toplumsal bir mutabakatla da ilerlediğini göstermektedir.
+
+Bahçeli, 'terörsüz Türkiye' sürecinin başladığını belirterek, bu konudaki yasal düzenlemelere tam destek verilmesi gerektiğini ifade etti. Kurtulmuş ise yeni yasayla 'terörsüz Türkiye'nin kapılarının açılacağını dile getirdi. Bu gelişmeler, Türkiye'nin terörle mücadelesinde yeni bir aşamaya geçildiğine ve bu sürecin toplumsal bir konsensüsle desteklenmesi gerektiğine işaret etmektedir.
