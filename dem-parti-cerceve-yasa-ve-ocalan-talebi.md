@@ -78,3 +78,7 @@ Bu gelişme, çözüm süreci ve siyasi gelişmeler açısından kritik öneme s
 ## Güncelleme - 2026-07-31
 
 Son günlerdeki gelişmelere göre, 'çerçeve yasa' düzenlemesinin, özellikle Selahattin Demirtaş'ın durumu ve 'siyaset yasağı' tartışmaları nedeniyle kilitlendiği iddia edilmektedir. İktidar ile DEM Parti arasında bu konunun bir krize dönüştüğü öne sürülüyor. PKK'nın ise yasa teklifinin Abdullah Öcalan'ın fiziki özgürlüğünü içermesi yönündeki talebinin devam ettiği ve aksi takdirde süreci sabote edeceği uyarısı yaptığı belirtiliyor. Bu durum, yasa teklifinin içeriği ve çözüm sürecinin geleceği hakkında belirsizlikleri artırmaktadır.
+
+## Güncelleme - 2026-08-02
+
+DEM Parti İmralı Heyeti, 2 Ağustos 2026 tarihinde Abdullah Öcalan ile bir görüşme gerçekleştirdi. Yaklaşık 3 saat süren görüşmenin ardından heyet, bir açıklama yapacağını duyurdu. Bu ziyaret, 'çerçeve yasa' düzenlemesinin Meclis'e sunulması öncesinde gerçekleşti ve çözüm süreciyle ilgili beklentileri artırdı. Görüşmenin içeriği ve Öcalan'ın bu konudaki görüşleri, önümüzdeki günlerde yapılacak açıklamayla netlik kazanacak.
