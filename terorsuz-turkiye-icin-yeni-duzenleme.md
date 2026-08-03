@@ -94,3 +94,9 @@ Kabine, bugünkü toplantısında 'Terörsüz Türkiye' süreci ve bu kapsamda h
 ## Güncelleme - 2026-07-29 (2)
 
 Bu gelişmeler, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin de bulunduğunu ve AKP'nin Ekim ayını işaret ettiği, muhalefetin ise daha erken bir adım istediği yönündeki bilgilerin yanı sıra, Abdullah Öcalan'ın teklife onay verdiği iddialarının da kamuoyunda tartışmalara neden olduğunu gösteriyor.
+
+## Güncelleme - 2026-08-03
+
+Abdullah Öcalan'ın, terörle mücadele kapsamında gündeme gelen yasal düzenlemeleri 'Cumhuriyet'in kuruluşu kadar önemli' bir süreç olarak nitelendirdiği iddia edildi. Bu açıklama, söz konusu yasal süreçlerin kamuoyunda farklı şekillerde yorumlanmasına ve tartışılmaya devam etmesine neden oldu. Öcalan'ın bu yöndeki ifadelerinin, sürecin siyasi ve toplumsal boyutlarına dair yeni tartışmaları beraberinde getirdiği gözlemleniyor.
+
+Bu gelişmeler yaşanırken, AK Parti MYK'da ele alınan 10 maddelik yasa taslağının detayları ve zamanlaması konusundaki farklı görüşler de gündemdeki yerini koruyor. Taslakta yer alan kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerindeki çalışmalar devam ederken, sürecin Meclis kapanmadan tamamlanması gerektiği yönündeki talimatlar dikkat çekiyor.

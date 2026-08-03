@@ -82,3 +82,7 @@ Son günlerdeki gelişmelere göre, 'çerçeve yasa' düzenlemesinin, özellikle
 ## Güncelleme - 2026-08-02
 
 DEM Parti İmralı Heyeti, 2 Ağustos 2026 tarihinde Abdullah Öcalan ile bir görüşme gerçekleştirdi. Yaklaşık 3 saat süren görüşmenin ardından heyet, bir açıklama yapacağını duyurdu. Bu ziyaret, 'çerçeve yasa' düzenlemesinin Meclis'e sunulması öncesinde gerçekleşti ve çözüm süreciyle ilgili beklentileri artırdı. Görüşmenin içeriği ve Öcalan'ın bu konudaki görüşleri, önümüzdeki günlerde yapılacak açıklamayla netlik kazanacak.
+
+## Güncelleme - 2026-08-03
+
+Bu görüşmelerin ardından yapılan açıklamalarda, çıkarılacak yasanın sürecin anahtarı olacağı vurgulandı. Ancak, PKK'nın taleplerinin Abdullah Öcalan'ın fiziki özgürlüğünü de içermesi yönündeki ısrarı ve aksi takdirde süreci sabote edecekleri yönündeki uyarıları, yasa teklifinin içeriği ve çözüm sürecinin geleceği hakkında belirsizlikleri artırmaya devam ediyor.

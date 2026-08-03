@@ -104,3 +104,7 @@ TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" yasa teklifinin önümüz
 ## Güncelleme - 2026-08-02
 
 TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" yasa teklifinin önümüzdeki hafta Meclis'e geleceğini duyurdu. Teklifin ortak bir teklif olarak sunulacağını belirten Kurtulmuş, sürecin önemli bir aşamaya geldiğini vurguladı. MHP lideri Devlet Bahçeli de yaptığı açıklamada, "Terörsüz Türkiye" politikasının geri dönülmesi mümkün olmayan bir adım olduğunu ve meselenin siyaset üstü görülmesi gerektiğini ifade etti. Bu gelişmeler, yasa taslağının yakın zamanda yasalaşma sürecine gireceğine işaret ediyor.
+
+## Güncelleme - 2026-08-03
+
+AK Parti, 'Terörsüz Türkiye' hedefiyle hazırlanan çerçeve yasa taslağına ilişkin muhalefet partilerine ön bilgilendirme yapmaya başladı. Bu hafta içinde TBMM'ye sunulması beklenen teklifin, terörle mücadeledeki kararlılığı pekiştirmesi ve bir infaz düzenlemesi niteliği taşıması öngörülüyor. Taslakta ağır suçlar ve genel af uygulamasının yer almayacağı, ayrıca Abdullah Öcalan'a yönelik özel bir statü veya umut hakkı düzenlemesinin bulunmayacağı kesinleşti. MHP lideri Devlet Bahçeli, politikanın geri dönülmez bir adım olduğunu ve meselenin siyaset üstü görülmesi gerektiğini vurguladı. Öte yandan, İYİ Parti Genel Başkanı Müsavat Dervişoğlu, taslağın şeffaf bir süreçle ilerlemesi gerektiğini belirterek, kapalı kapılar ardındaki hazırlıkları kabul etmeyeceklerini ifade etti. Adalet Bakanlığı'nın terör suçlarına yönelik soruşturma bürolarını 81 ile yaygınlaştırma hazırlığı da devam ediyor.
