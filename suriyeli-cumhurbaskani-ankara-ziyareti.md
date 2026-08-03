@@ -40,3 +40,9 @@ Suriye Cumhurbaşkanı Ahmed Şara, Türkiye ziyaretinin ardından yaptığı a�
 ## Güncelleme - 2026-07-27
 
 Suriye Cumhurbaşkanı Ahmed Şara, Ankara ziyaretinin ardından yaptığı açıklamalarda, İsrail ile ilgili önemli değerlendirmelerde bulundu. Şara, Türkiye'nin bu konudaki yaklaşımını ve bölgesel diplomasideki rolünü vurguladı. Ayrıca, YPG ile ilgili bir mutabakat sürecinde yaşanan aksamalara da dikkat çekerek, bu konudaki kritik uyarılarını yineledi. Bu açıklamalar, Türkiye'nin dış politikası ve Suriye ile olan ilişkileri açısından önemli değerlendirmeler olarak öne çıkıyor.
+
+## Güncelleme - 2026-08-03
+
+Suriye Cumhurbaşkanı Ahmed Şara, 3 Ağustos 2026'da Şam'da Mesud Barzani'yi Kürdistan bayrağı önünde karşıladı. Bu karşılama, bölgesel siyaset ve Türkiye'nin dış politikası açısından önemli bir gelişme olarak değerlendirildi.
+
+Aynı günlerde, Şara'nın El Cezire'ye verdiği röportajda Golan Tepeleri'ne dair aidiyet duygusunun çocukluğundan itibaren şekillendiğini belirtmesi, İsrail ile olan ilişkiler bağlamında dikkat çekti.
