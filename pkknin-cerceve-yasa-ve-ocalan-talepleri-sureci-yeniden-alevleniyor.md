@@ -10,3 +10,9 @@ PKK, olası bir çerçeve yasa düzenlemesi öncesinde Abdullah Öcalan'ın özg
 Gazeteci Cengiz Çandar, yasanın Cumhurbaşkanı Erdoğan, İbrahim Kalın ve Abdullah Öcalan tarafından bilindiğini iddia ederken, sürece dair kritik bir takvimden bahsetti. Bu gelişmeler, siyasi arenada da sert tepkilere yol açtı.
 
 Zafer Partisi Genel Başkanı Ümit Özdağ,
+
+## Güncelleme - 2026-08-04
+
+AK Parti milletvekillerinin imzasına açılan çözüm sürecine ilişkin çerçeve yasa teklifi, tartışmaları daha da alevlendirdi. Bu gelişme, PKK'nın Abdullah Öcalan'ın özgürlüğü talebiyle birleşince, siyasi arenada yeni bir gündem maddesi oluşturdu.
+
+MHP Genel Başkanı Devlet Bahçeli, teklife sert tepki göstererek, "Çözüm süreci denilen ihanet projesinin bir başka versiyonuyla karşı karşıyayız" dedi. Bahçeli, bu tür adımların ülkenin birlik ve beraberliğine zarar verdiğini savundu. Diğer yandan, bazı siyasi çevreler ise teklifin içeriğini ve olası sonuçlarını tartışmaya devam ediyor.
