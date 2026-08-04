@@ -120,3 +120,7 @@ MHP Genel Başkanı Devlet Bahçeli, 'Terörsüz Türkiye' hedefiyle hazırlanan
 ## Güncelleme - 2026-08-04 (2)
 
 Bu gelişme, yasa teklifinin yakın zamanda yasalaşma sürecine gireceğine işaret ederken, İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun taslağın şeffaf bir süreçle ilerlemesi gerektiği yönündeki açıklamaları ve Yavuz Ağıralioğlu'nun "Ne olduğunu Öcalan biliyor, ben bilmiyorum" şeklindeki tepkisi, teklifin içeriği ve süreci hakkındaki tartışmaları sürdürüyor.
+
+## Güncelleme - 2026-08-04 (3)
+
+TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" yasa teklifinin önümüzdeki hafta Meclis'e geleceğini ve ortak bir teklif olarak sunulacağını duyurdu. MHP Genel Başkanı Devlet Bahçeli de teklife imza atarak "Terörsüz Türkiye" politikasının geri dönülmez bir adım olduğunu ve meselenin siyaset üstü görülmesi gerektiğini belirtti. Teklifin adı 'Toplumsal Bütünleşme' olarak belirlendi ve terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapının güçlendirilmesi hedefleniyor.
