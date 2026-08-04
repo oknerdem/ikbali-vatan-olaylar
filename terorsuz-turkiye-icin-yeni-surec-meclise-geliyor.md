@@ -152,3 +152,9 @@ AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" süreciyle ilgili olarak
 DEM Parti, 'Terörsüz Türkiye' süreci için yasal düzenleme çağrısında bulunurken, Kandil'den gelen açıklamalarda Abdullah Öcalan'ın sürece dahil edilmeden bir çerçeve yasanın uygulanamayacağı belirtildi. DEM Parti Sözcüsü, sürecin önümüzdeki günler ve saatlerde kritik olacağını ifade etti.
 
 Bu gelişmeler, TBMM'ye sunulması beklenen yasal düzenlemeler öncesinde siyasi partiler arasındaki farklı yaklaşımları ve hassasiyetleri daha da belirgin hale getirirken, sürecin ilerleyişine dair önemli koşulların ve beklentilerin gündemde olduğunu gösteriyor.
+
+## Güncelleme - 2026-08-04
+
+Türkiye Büyük Millet Meclisi'ne sunulan "Terörsüz Türkiye" düzenlemesi, milletvekilleri tarafından imzaya açıldı. Bu gelişme, Adalet Bakanı Akın Gürlek'in daha önce duyurduğu ve TBMM gündemine gelmesi beklenen yasal düzenlemelerle ilgili süreci somutlaştırmaktadır. İçişleri Bakan Yardımcısı Bülent Turan'ın da vurguladığı gibi, "Terörsüz Türkiye'yi beraber inşa edeceğiz" hedefi doğrultusunda atılan bu adım, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor.
+
+Düzenlemenin imzaya açılması, siyasi partiler arasındaki müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır. Terör örgütünün tamamen feshedilmesi şartına bağlanan yasal çerçevenin hayata geçirilmesi, sürecin ilerleyişi açısından kritik bir öneme sahip. Bu adımın, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüştüğü belirtiliyor.
