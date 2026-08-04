@@ -112,3 +112,7 @@ AK Parti, 'Terörsüz Türkiye' hedefiyle hazırlanan çerçeve yasa taslağına
 ## Güncelleme - 2026-08-03 (2)
 
 TBMM Başkanı Numan Kurtulmuş, 'Terörsüz Türkiye' yasa teklifinin önümüzdeki hafta Meclis'e geleceğini ve ortak bir teklif olarak sunulacağını duyurdu. Bu gelişme, sürecin önemli bir aşamaya geldiğini ve yasal düzenlemenin yakın zamanda yasalaşma sürecine gireceğini gösteriyor. MHP lideri Devlet Bahçeli de politikanın geri dönülmez bir adım olduğunu ve meselenin siyaset üstü görülmesi gerektiğini vurguladı.
+
+## Güncelleme - 2026-08-04
+
+MHP Genel Başkanı Devlet Bahçeli, 'Terörsüz Türkiye' hedefiyle hazırlanan çerçeve yasa teklifine imza attı. Bu gelişme, yasa teklifinin yasalaşma sürecinde önemli bir siyasi destek aldığını gösteriyor. Teklifin önümüzdeki hafta TBMM'ye sunulması bekleniyor ve terörle mücadelede yeni bir dönemin kapısını aralayacağı ifade ediliyor. Yasa teklifinin adı 'Toplumsal Bütünleşme' olarak belirlendi ve terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapının güçlendirilmesi hedefleniyor.

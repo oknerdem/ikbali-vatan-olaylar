@@ -22,3 +22,9 @@ Bahçeli'nin bu yeni çıkışı, terörle mücadeledeki kararlılığın altın
 MHP Genel Başkanı Devlet Bahçeli, 9 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve 'terörsüz bir Türkiye'nin milli varlığın zırhı olduğunu vurguladı. Bu ifadeler, daha önce Abdullah Öcalan için 'kurucu önder' gibi söylemler kullandığı iddialarıyla gündeme gelen Bahçeli'nin, terörle mücadele konusundaki duruşunu yeniden netleştirdiği şeklinde yorumlandı.
 
 Bahçeli'nin bu açıklamaları, özellikle CHP Genel Başkanı Özgür Özel'e yönelik bir çağrı olarak da değerlendirildi. Terörün kaynağına ve unsurlarına karşı sergilenen bu net duruş, siyasi çevrelerde ve kamuoyunda farklı değerlendirmelere yol açtı. Bahçeli'nin bu çıkışı, geçmişteki iddiaların aksine, terörle mücadeledeki kararlılığını ve kırmızı çizgilerini yeniden teyit ettiği şeklinde yorumlandı.
+
+## Güncelleme - 2026-08-04
+
+MHP Genel Başkanı Devlet Bahçeli, 4 Ağustos 2026'da yaptığı açıklamalarda, 'terörsüz Türkiye' hedefi doğrultusunda atılan adımları ve imzaları vurguladı. Bu vurgu, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin, terörle mücadeledeki kararlılığını ve milli birlik vurgusunu pekiştirdiği şeklinde yorumlandı.
+
+Bahçeli'nin bu açıklamaları, MHP'nin terörle mücadeledeki kırmızı çizgilerini ve 'terörsüz Türkiye' vizyonunu bir kez daha ortaya koyarken, siyasi çevrelerde ve kamuoyunda bu duruşun önemi üzerinde duruldu.

@@ -52,3 +52,9 @@ Milliyetçi Hareket Partisi (MHP) yetkilileri, 'terörsüz Türkiye' vizyonunun 
 ## Güncelleme - 2026-07-28
 
 AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" sürecinde yeni bir aşamaya gelindiğini belirtti. Bu yeni aşama, hazırlanan yasa taslağının ince işçilik ve tamamlanma sürecine girdiğini göstermektedir. Sürecin Meclis tatile girmeden tamamlanması hedeflenmektedir. Öte yandan, "silah eldeyken kanun çıkmaz" ilkesi gereği terör örgütü mensuplarının silah bırakması şartının taslakta yer aldığı ve bu durumun süreci etkileyebileceği yönünde haberler de bulunmaktadır. Ayrıca, "Öcalan dosyasının" akıbetiyle ilgili soru önergesi verilmesi, konunun farklı boyutlarıyla gündemde olduğunu göstermektedir.
+
+## Güncelleme - 2026-08-04
+
+Beş hukuk profesörünün terör yargılamaları ve Avrupa İnsan Hakları Mahkemesi (AİHM) kararlarının uygulanması konusundaki ortak mütalaası, yargı ve insan hakları bağlamında önemli bir gelişme olarak öne çıktı. Bu profesörler, AİHM'in terör davalarıyla ilgili ihlal kararlarının eksiksiz uygulanması çağrısında bulundu. Bu durum, hazırlanan çerçeve yasa taslağının uluslararası hukuk ve insan hakları standartları açısından da değerlendirilmesi gerektiğini göstermektedir.
+
+İletişim Başkanı Fahrettin Duran, "terörsüz Türkiye" hedefi doğrultusunda hazırlanan çerçeve yasa taslağının "tarihi bir adım" olduğunu belirtti. Bu açıklama, taslağın siyasi ve bürokratik düzeyde ne kadar önemsendiğini vurgulamaktadır. Taslağın tamamlanma sürecine girdiği ve Meclis tatile girmeden yasalaşmasının hedeflendiği bilgisi de kamuoyuyla paylaşıldı.

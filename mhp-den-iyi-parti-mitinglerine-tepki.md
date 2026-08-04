@@ -24,3 +24,7 @@ AK Parti'nin TBMM'ye sunduğu ve 'terörsüz Türkiye' hedefiyle ilişkilendiril
 ## Güncelleme - 2026-07-22
 
 İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun, "Terörsüz Türkiye" süreci ve bazı gerçeklerin saklandığına dair iddiaları, siyasi gündemde yer buldu. Dervişoğlu, terör örgütünün dayatmasıyla hazırlanan düzenlemelere karşı çıkacaklarını belirtti. Bu açıklamalar, MHP'nin daha önceki tepkileriyle birlikte değerlendirildiğinde, partiler arasındaki söylem farklılıklarını ve terör konusunun siyasi tartışmalardaki ağırlığını bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-04
+
+AK Parti, 'Terörsüz Türkiye' hedefiyle hazırladığı düzenleme kapsamında muhalefet partilerini ziyaret etmeye başladı. Bu ziyaretler, daha önce MHP'nin İYİ Parti mitinglerine yönelik eleştirileri ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun 'terörsüz Türkiye' süreciyle ilgili iddiaları göz önüne alındığında, siyasi tansiyonu daha da artırdı. Partiler arasındaki bu söylem farklılıkları, terör konusunun siyasi tartışmalardaki merkezi rolünü ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği ortaya koymaktadır.
