@@ -154,3 +154,9 @@ Ankara Etimesgut Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerin
 Ankara Etimesgut Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine başlatılan operasyonda Belediye Başkanı Erdal Beşikçioğlu ile birlikte 44 kişi hakkında tutuklama talebiyle mahkemeye sevk edildi. Soruşturmanın, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. Siyasi partilerden ve CHP yetkililerinden operasyonun hukuki değil siyasi olduğu yönünde tepkiler gelmeye devam ediyor.
+
+## Güncelleme - 2026-08-04
+
+İzmir'in Menderes Belediyesi'ne 4 Ağustos 2026 tarihinde yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı İlkay Çiçek'in de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Gözaltı sayısının 16 ile 21 arasında değiştiği yönünde bilgiler yer alırken, soruşturmanın belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
+
+Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. CHP yetkilileri, bu tür operasyonların siyasi olduğunu savunarak tepki göstermeye devam etti. Operasyonun detayları ve sonuçları kamuoyu tarafından yakından takip ediliyor.
