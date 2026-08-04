@@ -34,3 +34,9 @@ MHP Genel Başkan Yardımcısı Sadir Durmaz, 'Terörsüz Türkiye' vizyonunun �
 MHP Genel Başkanı Devlet Bahçeli, 'Terörsüz Türkiye' vizyonunun siyaset üstü bir konu olarak görülmesi gerektiğini ve bu çerçevede hazırlanacak yasaya tam destek verilmesi gerektiğini vurguladı. Bahçeli, bu sürecin geri dönüşü olmayan bir noktada olduğunu belirterek, Türkiye'nin terörle mücadelesinde yeni bir döneme girildiğinin altını çizdi.
 
 Bu gelişmeler, Türkiye'nin terörle mücadele stratejisinde önemli bir dönüm noktası olabileceğine işaret ederken, yasal düzenlemelerin Meclis'ten geçerek yürürlüğe girmesi bekleniyor. Bu süreç, ülkenin güvenlik ve toplumsal huzuru açısından kritik bir öneme sahip.
+
+## Güncelleme - 2026-08-04
+
+TBMM Başkanı Numan Kurtulmuş, 4 Ağustos 2026 tarihinde "Terörsüz Türkiye" teklifini imzalayarak sürece resmiyet kazandırdı. Bu gelişme, Türkiye'nin terörle mücadeledeki kararlılığını ve bu yöndeki yasal düzenlemelerin hız kazandığını gösteriyor. AK Parti'nin bu teklifi Meclis'e sunmasıyla birlikte, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor.
+
+Söz konusu yasal düzenlemelerin, Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu belirtilirken, muhalefet partilerinin de sürece destek vermesi bekleniyor. MHP Genel Başkanı Devlet Bahçeli'nin de "Terörsüz Türkiye" vizyonuna tam destek vermesi, konunun siyaset üstü bir mesele olarak ele alındığını ortaya koyuyor.
