@@ -160,3 +160,7 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 İzmir'in Menderes Belediyesi'ne 4 Ağustos 2026 tarihinde yolsuzluk ve rüşvet iddiaları üzerine bir operasyon düzenlendi. Operasyon kapsamında Belediye Başkanı İlkay Çiçek'in de aralarında bulunduğu çok sayıda kişi gözaltına alındı. Gözaltı sayısının 16 ile 21 arasında değiştiği yönünde bilgiler yer alırken, soruşturmanın belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı belirtildi.
 
 Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor. CHP yetkilileri, bu tür operasyonların siyasi olduğunu savunarak tepki göstermeye devam etti. Operasyonun detayları ve sonuçları kamuoyu tarafından yakından takip ediliyor.
+
+## Güncelleme - 2026-08-05
+
+İzmir Büyükşehir Belediyesi'ne yönelik operasyonda, CHP Genel Başkan Yardımcısı Veli Ağbaba'nın ağabeyi Hür Ağbaba'nın da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Operasyonun detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
