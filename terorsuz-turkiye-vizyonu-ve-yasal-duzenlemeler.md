@@ -40,3 +40,7 @@ Bu gelişmeler, Türkiye'nin terörle mücadele stratejisinde önemli bir dönü
 TBMM Başkanı Numan Kurtulmuş, 4 Ağustos 2026 tarihinde "Terörsüz Türkiye" teklifini imzalayarak sürece resmiyet kazandırdı. Bu gelişme, Türkiye'nin terörle mücadeledeki kararlılığını ve bu yöndeki yasal düzenlemelerin hız kazandığını gösteriyor. AK Parti'nin bu teklifi Meclis'e sunmasıyla birlikte, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor.
 
 Söz konusu yasal düzenlemelerin, Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu belirtilirken, muhalefet partilerinin de sürece destek vermesi bekleniyor. MHP Genel Başkanı Devlet Bahçeli'nin de "Terörsüz Türkiye" vizyonuna tam destek vermesi, konunun siyaset üstü bir mesele olarak ele alındığını ortaya koyuyor.
+
+## Güncelleme - 2026-08-05
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği perçinlemeyi hedeflediğini belirtti. MHP Genel Başkanı Devlet Bahçeli'nin de tam destek vermesi, konunun siyaset üstü bir mesele olarak ele alındığını ortaya koyuyor. Bu yasal düzenlemelerin, Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.

@@ -22,3 +22,9 @@ Bu gelişmelerin yanı sıra, Türkiye ile Polonya arasında güvenlik diplomasi
 ABD eski Başkanı Donald Trump, İran'ı "dünyanın bir numaralı devlet destekli terör hamisi" olarak nitelendirdi. Bu açıklama, bölgedeki gerilimleri ve uluslararası ilişkilerdeki hassasiyetleri bir kez daha gündeme getirdi.
 
 Öte yandan, Türkiye'nin dış politika stratejilerindeki dönüşüm, özellikle pragmatizm ve doktrin arasındaki denge üzerine yapılan analizler, ülkenin bölgesel ve küresel politikalardaki rolünü yeniden şekillendirdiği yorumlarına yol açtı.
+
+## Güncelleme - 2026-08-05
+
+Suriye Dışişleri Bakanı, Türkiye'ye resmi bir ziyaret gerçekleştirerek Dışişleri Bakanı Hakan Fidan ile bir araya geldi. Bu görüşme, iki ülke arasındaki diplomatik ilişkilerin normalleşme sürecinde önemli bir adım olarak değerlendiriliyor. Ziyaret kapsamında, bölgesel güvenlik ve siyasi konular başta olmak üzere ikili ilişkilerin geliştirilmesine yönelik konuların ele alındığı belirtildi.
+
+Bu temaslar, Türkiye'nin Suriye'deki istikrarın sağlanması ve bölgedeki dengelerin yeniden kurulması yönündeki çabalarının bir parçası olarak görülüyor. Görüşmelerin ardından yapılan açıklamalarda, iki bakanın önümüzdeki dönemde de temasların devamı konusunda mutabık kaldığı ifade edildi.
