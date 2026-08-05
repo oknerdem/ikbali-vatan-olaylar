@@ -128,3 +128,7 @@ TBMM Başkanı Numan Kurtulmuş, "Terörsüz Türkiye" yasa teklifinin önümüz
 ## Güncelleme - 2026-08-05
 
 TBMM Başkanı Numan Kurtulmuş, MHP Genel Başkanı Devlet Bahçeli'nin de imza attığı 'Terörsüz Türkiye' yasa teklifinin adının 'Toplumsal Bütünleşme' olarak belirlendiğini duyurdu. Teklifin önümüzdeki hafta TBMM'ye sunulması bekleniyor. Bu adım, terörle mücadelede önemli bir siyasi destekle yasalaşma sürecine girerken, terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapının güçlendirilmesi hedefleniyor.
+
+## Güncelleme - 2026-08-05 (2)
+
+Cumhurbaşkanı Erdoğan, teklifin 'aziz milletimizin çözüm iradesini yansıtan geniş bir mutabakatla Meclis'e sunulduğunu' belirterek, Türkiye'yi terör tehdidinden kalıcı olarak kurtarmayı hedeflediklerini ifade etti. Teklifin adı 'Toplumsal Bütünleşme' olarak belirlenirken, terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapının güçlendirilmesi amaçlanıyor.
