@@ -44,3 +44,7 @@ Söz konusu yasal düzenlemelerin, Türkiye'nin güvenliği ve toplumsal huzuru 
 ## Güncelleme - 2026-08-05
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği perçinlemeyi hedeflediğini belirtti. MHP Genel Başkanı Devlet Bahçeli'nin de tam destek vermesi, konunun siyaset üstü bir mesele olarak ele alındığını ortaya koyuyor. Bu yasal düzenlemelerin, Türkiye'nin güvenliği ve toplumsal huzuru açısından kritik öneme sahip olduğu vurgulanıyor.
+
+## Güncelleme - 2026-08-06
+
+5 Ağustos 2026 tarihinde "Terörsüz Türkiye" hedefiyle ilgili 12 maddelik kanun teklifi TBMM Başkanlığına sunuldu. AK Parti Grup Başkanı Abdullah Güler, teklifin yasalaşma sürecine girdiğini belirtti. Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği perçinlemeyi hedeflediğini vurgularken, MHP Genel Başkanı Devlet Bahçeli de sürece tam destek verdiklerini açıkladı. Bu gelişmeler, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktası olabileceğine işaret ediyor.

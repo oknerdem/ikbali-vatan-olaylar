@@ -86,3 +86,7 @@ DEM Parti İmralı Heyeti, 2 Ağustos 2026 tarihinde Abdullah Öcalan ile bir g�
 ## Güncelleme - 2026-08-03
 
 Bu görüşmelerin ardından yapılan açıklamalarda, çıkarılacak yasanın sürecin anahtarı olacağı vurgulandı. Ancak, PKK'nın taleplerinin Abdullah Öcalan'ın fiziki özgürlüğünü de içermesi yönündeki ısrarı ve aksi takdirde süreci sabote edecekleri yönündeki uyarıları, yasa teklifinin içeriği ve çözüm sürecinin geleceği hakkında belirsizlikleri artırmaya devam ediyor.
+
+## Güncelleme - 2026-08-06
+
+AK Parti Grup Başkanı Abdullah Güler, TBMM'ye sunulan çerçeve yasa teklifiyle ilgili olarak, "Belli idari düzenlemelerle İmralı'ya ziyaretler yapılabilir" açıklamasında bulundu. Bu gelişme, daha önceki günlerde DEM Parti İmralı Heyeti'nin Abdullah Öcalan ile gerçekleştirdiği görüşmeler ve Öcalan'ın 'yasal zemin' talebinin ardından geldi. Teklifin içeriği ve İmralı'ya ziyaretlerin hukuki zemini konusundaki detaylar, çözüm süreci ve siyasi gündem açısından yakından takip ediliyor.
