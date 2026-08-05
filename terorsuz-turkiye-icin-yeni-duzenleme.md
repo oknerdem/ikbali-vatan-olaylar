@@ -112,3 +112,7 @@ Bu süreçte, Abdullah Öcalan'ın yasal düzenlemeleri 'Cumhuriyet'in kuruluşu
 Terörle mücadele kapsamında hazırlanan ve "Terörsüz Türkiye" vizyonunu destekleyen yasal düzenlemelerle ilgili çalışmalar hız kazandı. AK Parti MYK'da ele alınan 10 maddelik yasa taslağının detayları ve zamanlaması üzerindeki tartışmalar devam ederken, taslakta yer alan kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor.
 
 Bu süreçte, Abdullah Öcalan'ın yasal düzenlemeleri "Cumhuriyet'in kuruluşu kadar önemli" bir süreç olarak nitelendirdiği iddiaları da kamuoyunda tartışmalara neden oldu. MHP'nin de "Terörsüz Türkiye" vurgusuyla sürece destek verdiği ve farklı siyasi partilerden gelen ortak destek mesajları, terörle mücadeledeki toplumsal ve siyasi birliğin pekiştiğini gösteriyor. Ancak, yasa teklifinin içeriği ve zamanlaması konusunda farklı görüşlerin bulunduğu da haberlere yansımaya devam ediyor.
+
+## Güncelleme - 2026-08-05 (2)
+
+AK Parti MYK'da 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 maddelik yasa taslağı ele alındı. Taslakta yer alan kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor.
