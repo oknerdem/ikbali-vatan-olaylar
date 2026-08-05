@@ -30,3 +30,9 @@ AK Parti Sözcüsü Ömer Çelik, Abdullah Öcalan'a yönelik 'umut hakkı' veya
 ## Güncelleme - 2026-07-14 (2)
 
 AK Parti Sözcüsü Ömer Çelik, 14 Temmuz 2026'da yaptığı açıklamada, Abdullah Öcalan'a yönelik 'umut hakkı' veya 'özel statü' gibi bir uygulamanın söz konusu olmadığını kesin bir dille belirtti. Çelik, mevcut yasal çerçevede Öcalan için herhangi bir ayrıcalık tanınmadığını ve bu tür iddiaların gerçeği yansıtmadığını vurguladı. Bu açıklama, daha önce MHP lideri Devlet Bahçeli'nin gündeme getirdiği ve kamuoyunda geniş yankı uyandıran 'umut hakkı' konusundaki tartışmalara AK Parti'nin resmi pozisyonunu netleştiren bir adım olarak değerlendirildi. Bu gelişme, daha önceki 'çözüm süreci' ve 'terörle mücadele' kapsamındaki tartışmaların devamı niteliğindedir.
+
+## Güncelleme - 2026-08-05
+
+MHP Genel Başkanı Devlet Bahçeli, 5 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın 'umut hakkına', Selahattin Demirtaş'ın 'evine', eski milletvekili Ahmet Türk'ün ise 'görevine' dönmesi gerektiğini belirterek yeni bir tartışma başlattı. Bahçeli'nin bu çıkışı, özellikle terörle mücadele ve siyasi af konularında hassasiyet gösteren kesimlerden sert tepkilere neden oldu. Şehit aileleri ve bazı siyasi partiler, Meclis'in teröristlerin konuşulacağı bir platform olamayacağını vurgulayarak Bahçeli'nin açıklamalarını eleştirdi.
+
+Bu açıklama, daha önce de gündeme gelen 'çözüm süreci' ve 'siyasi normalleşme' tartışmalarını yeniden alevlendirdi. Bahçeli'nin 'umut hakkı' kavramını gündeme getirmesi, ağırlaştırılmış müebbet cezası almış mahkumların belirli şartlar altında serbest kalabilme ihtimalini ifade etmesi açısından da dikkat çekti. Bu durum, toplumsal vicdanda farklı görüşlerin ortaya çıkmasına yol açtı.

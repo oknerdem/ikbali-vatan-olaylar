@@ -20,3 +20,9 @@ Bu görüşme, Türkiye'nin Ukrayna ile olan diplomatik ilişkilerini ve bölges
 Dışişleri Bakanı Hakan Fidan, 27 Mayıs 2026 tarihinde Moskova'da İran ve Irak arasındaki güvenlik görüşmelerini takip etti. Bu görüşmeler, bölgesel istikrar ve güvenlik iş birliği açısından önem taşımaktadır.
 
 Bu temaslar, Türkiye'nin bölgedeki diplomatik faaliyetlerinin ve güvenlik endişelerinin bir yansıması olarak değerlendirilmektedir. Fidan'ın bu süreci yakından izlemesi, Türkiye'nin bölgesel politikasındaki proaktif yaklaşımını göstermektedir.
+
+## Güncelleme - 2026-08-05
+
+Suriye Dışişleri Bakanı Faysal Mikdad'ın 6 Ağustos 2026 tarihinde Ankara'ya yapacağı ziyaret, Türkiye-Suriye ilişkilerinde yeni bir dönemin başlangıcı olarak değerlendiriliyor. Görüşmede, terörle mücadele, bölgesel güvenlik ve siyasi çözüm gibi kritik konuların ele alınması bekleniyor.
+
+Bu ziyaret, iki ülke arasındaki üst düzey temasların artması ve bölgesel istikrarın sağlanması yönündeki çabaların bir göstergesi olarak öne çıkıyor. Mikdad'ın ziyareti, Suriye'deki iç savaşın ardından bölgedeki dengelerin yeniden şekillendiği bir dönemde gerçekleşmesi açısından da büyük önem taşıyor.
