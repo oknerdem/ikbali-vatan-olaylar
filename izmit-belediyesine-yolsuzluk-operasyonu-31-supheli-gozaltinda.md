@@ -30,3 +30,7 @@ Soruşturma kapsamında İzmit Belediye Başkanı Fatma Kaplan Hürriyet'in de a
 ## Güncelleme - 2026-08-03
 
 Ankara Batı Cumhuriyet Başsavcılığı tarafından yürütülen Etimesgut Belediyesi'ne yönelik soruşturma kapsamında, Belediye Başkanı Erdal Beşikçioğlu ile birlikte toplam 39 kişi tutuklandı. Gözaltına alınan şüpheliler, tutuklama talebiyle mahkemeye sevk edilmişti. Mahkeme, savcılığın talebi doğrultusunda Beşikçioğlu ve diğer 39 şüpheli hakkında tutuklama kararı verdi.
+
+## Güncelleme - 2026-08-05
+
+Bu gelişme, daha önce 31 şüphelinin gözaltına alındığı operasyonun hukuki sürecinde önemli bir aşamayı temsil etmektedir. Soruşturma kapsamında delil toplama ve sorgulama işlemlerinin devam ettiği belirtildi.

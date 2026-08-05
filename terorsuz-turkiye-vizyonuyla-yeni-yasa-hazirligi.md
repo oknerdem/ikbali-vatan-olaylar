@@ -58,3 +58,9 @@ AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye" sürecinde yeni bir aşa
 Beş hukuk profesörünün terör yargılamaları ve Avrupa İnsan Hakları Mahkemesi (AİHM) kararlarının uygulanması konusundaki ortak mütalaası, yargı ve insan hakları bağlamında önemli bir gelişme olarak öne çıktı. Bu profesörler, AİHM'in terör davalarıyla ilgili ihlal kararlarının eksiksiz uygulanması çağrısında bulundu. Bu durum, hazırlanan çerçeve yasa taslağının uluslararası hukuk ve insan hakları standartları açısından da değerlendirilmesi gerektiğini göstermektedir.
 
 İletişim Başkanı Fahrettin Duran, "terörsüz Türkiye" hedefi doğrultusunda hazırlanan çerçeve yasa taslağının "tarihi bir adım" olduğunu belirtti. Bu açıklama, taslağın siyasi ve bürokratik düzeyde ne kadar önemsendiğini vurgulamaktadır. Taslağın tamamlanma sürecine girdiği ve Meclis tatile girmeden yasalaşmasının hedeflendiği bilgisi de kamuoyuyla paylaşıldı.
+
+## Güncelleme - 2026-08-05
+
+Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli, "Terörsüz Türkiye" vizyonuyla ilgili yaptığı açıklamalarda, Abdullah Öcalan'ın "umut hakkına", HDP eski Eş Genel Başkanı Selahattin Demirtaş'ın "evine", diğer siyasi figürlerin ise "görevlerine" dönmesi gerektiğini belirterek dikkat çekici bir çağrıda bulundu. Bahçeli, bu önerilerin "bin yıllık kardeşliğin" bir tescili olduğunu ifade etti. Bu açıklamalar, hazırlanan çerçeve yasa taslağının siyasi tartışmalara açıldığını ve farklı aktörlerin bu sürece dair beklentilerini ortaya koyduğunu göstermektedir.
+
+Bahçeli'nin bu çıkışları, "Terörsüz Türkiye" hedefinin sadece güvenlik odaklı bir yasal düzenleme olmadığını, aynı zamanda siyasi ve toplumsal boyutları da içeren bir vizyon olduğunu ortaya koyuyor. Yasa taslağının Meclis'e gelmesi beklenirken, bu tür açıklamalar, sürecin hassasiyetini ve farklı yorumlara açık olduğunu da gözler önüne seriyor.
