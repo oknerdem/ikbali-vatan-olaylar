@@ -18,3 +18,9 @@ Bu açıklamalar, terörle mücadele stratejilerinde gelinen noktayı ve gelece�
 ## Güncelleme - 2026-07-27
 
 AK Parti Sözcüsü Ömer Çelik, Türkiye'nin terörle mücadelesinde gelinen noktayı değerlendirerek, sürecin artık "ince işçilik" aşamasına geçtiğini belirtti. Çelik, "Asıl mesele şimdi başlıyor" ifadesini kullanarak, terörün tamamen ortadan kaldırılması için yürütülen çalışmaların hassasiyetle devam ettiğini vurguladı. Bu yeni aşamada, yasal düzenlemelerin yanı sıra toplumsal duyarlılığın ve doğru politik atmosferin oluşturulmasının önemine dikkat çekti.
+
+## Güncelleme - 2026-08-05
+
+AK Parti Sözcüsü Ömer Çelik'in "Terörsüz Türkiye Sürecinde Yeni Bir Aşamaya Geçildi" açıklamalarının ardından, bu süreci yasal zemine oturtacak çerçeve yasa teklifi Türkiye Büyük Millet Meclisi'ne (TBMM) sunuldu. Teklifin, terörle mücadelede gelinen noktayı pekiştirmesi ve geleceğe yönelik adımları hukuki bir çerçeveye oturtması hedefleniyor.
+
+TBMM'ye sunulan 12 maddelik teklifin detayları kamuoyu ile paylaşılırken, hangi suçların kapsam dışı kalacağı ve sürecin işleyişi gibi konuların tartışılması bekleniyor. Bu gelişme, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktası olarak değerlendiriliyor.
