@@ -16,3 +16,7 @@ Zafer Partisi Genel Başkanı Ümit Özdağ,
 AK Parti milletvekillerinin imzasına açılan çözüm sürecine ilişkin çerçeve yasa teklifi, tartışmaları daha da alevlendirdi. Bu gelişme, PKK'nın Abdullah Öcalan'ın özgürlüğü talebiyle birleşince, siyasi arenada yeni bir gündem maddesi oluşturdu.
 
 MHP Genel Başkanı Devlet Bahçeli, teklife sert tepki göstererek, "Çözüm süreci denilen ihanet projesinin bir başka versiyonuyla karşı karşıyayız" dedi. Bahçeli, bu tür adımların ülkenin birlik ve beraberliğine zarar verdiğini savundu. Diğer yandan, bazı siyasi çevreler ise teklifin içeriğini ve olası sonuçlarını tartışmaya devam ediyor.
+
+## Güncelleme - 2026-08-07
+
+Milli Güvenlik Kurulu (MGK) ve Milli Savunma Bakanlığı (MSB) gibi kurumlar, "Terörsüz Türkiye" vurgusu yaparak, ülkenin güvenlik ve istikrarına yönelik kararlılıklarını yineledi. Bu açıklamalar, mevcut siyasi tartışmaların yanı sıra, terörle mücadelede yeni bir aşamaya geçildiği ve bu sürecin yasal düzenlemelerle destekleneceği beklentisini güçlendirdi.
