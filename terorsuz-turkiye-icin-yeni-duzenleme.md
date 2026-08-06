@@ -116,3 +116,9 @@ Bu süreçte, Abdullah Öcalan'ın yasal düzenlemeleri "Cumhuriyet'in kuruluşu
 ## Güncelleme - 2026-08-05 (2)
 
 AK Parti MYK'da 'Terörsüz Türkiye' süreci ve bu kapsamda hazırlanan 10 maddelik yasa taslağı ele alındı. Taslakta yer alan kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu belirtildi. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor.
+
+## Güncelleme - 2026-08-06
+
+Türkiye Büyük Millet Meclisi'ne sunulan 'Terörsüz Türkiye' yasa teklifi, Meclis'te görüşülmeye başlandı. AK Parti Grubu'nun basına kapalı toplantısında ele alınan teklif, yasalaşma süreci için TBMM Başkanlığı'na sunuldu. Teklifin, 'Millî Dayanışma ve Toplumsal Bütünleşmenin Güçlendirilmesine Dair Kanun Teklifi' adıyla 12 maddeden oluştuğu belirtiliyor. Bu düzenlemelerin, terörle mücadelede yeni bir dönemi başlatması ve toplumsal bütünleşmeyi güçlendirmesi hedefleniyor.
+
+Teklifin içeriği ve kimleri kapsadığına dair detaylar kamuoyuyla paylaşılırken, özellikle kontrollü infaz mekanizmaları ve af niteliği taşımayan geçici düzenlemeler üzerinde durulduğu ifade ediliyor. Cumhurbaşkanı Erdoğan'ın, Meclis kapanmadan yasayı tamamlamak gerektiği yönündeki talimatı, sürecin hızlandığına işaret ediyor. Abdullah Öcalan'ın da bu süreci 'Cumhuriyet'in kuruluşu kadar önemli' olarak nitelendirdiği iddiaları ise tartışmalara neden olmaya devam ediyor.
