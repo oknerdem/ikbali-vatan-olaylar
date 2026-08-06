@@ -22,3 +22,9 @@ Bu çerçevede, sınır kapılarının modernizasyonu ve lojistik altyapının g
 Türkiye ve Suriye arasındaki ekonomik ilişkilerde yeni bir gelişme olarak, TOBB Başkanı Rifat Hisarcıklıoğlu, iki ülke arasındaki ticaret hacminin 3.75 milyar dolara ulaştığını belirtti. Hisarcıklıoğlu, Türkiye ile Suriye'nin birlikte kazandıkça bölgelerinin de kazanacağını vurgulayarak, ekonomik işbirliğinin önemine dikkat çekti.
 
 Bu gelişmeler, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma yolunda atılan somut adımlar olarak değerlendiriliyor. İki ülke yetkilileri, Nusaybin-Kamışlı sınır kapısının yeniden aktif hale getirilmesi ve ticari potansiyelin artırılması gibi konuları ele alarak, sınır kapılarının modernizasyonu ve lojistik altyapının güçlendirilmesi üzerinde durdu.
+
+## Güncelleme - 2026-08-06
+
+Türkiye Dışişleri Bakanı Hakan Fidan, 6 Ağustos 2026 tarihinde Suriye Dışişleri Bakanı Faysal Mikdad ile Ankara'da bir araya geldi. Görüşmede, iki ülke arasındaki ilişkilerin normalleşmesi, bölgesel güvenlik ve işbirliği konuları ele alındı. Fidan, Türkiye ve Suriye'nin istikrarının birbirinden ayrı düşünülemeyeceğini vurgulayarak, "Suriye ile aramızda ortak bir gelecek var" ifadelerini kullandı.
+
+Bu görüşme, Türkiye'nin Suriye ile olan diplomatik temaslarını güçlendirme ve bölgesel istikrarı sağlama çabalarının bir parçası olarak öne çıkıyor. MİT Başkanı İbrahim Kalın'ın da Suriye Dışişleri Bakanı ile görüşmesi, iki ülke arasındaki stratejik işbirliğinin derinleştiğine işaret ediyor.
