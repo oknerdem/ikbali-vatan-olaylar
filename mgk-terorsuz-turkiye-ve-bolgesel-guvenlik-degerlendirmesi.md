@@ -16,3 +16,7 @@ MGK'nın bu değerlendirmeleri, Türkiye'nin güvenlik politikalarının gelece�
 Milli Güvenlik Kurulu'nun son toplantısında, Türkiye'nin terörle mücadelesindeki kararlılığı ve 'terörsüz Türkiye' hedefine yönelik çalışmaların sürdürüleceği bir kez daha teyit edildi. Toplantıda ayrıca, bölgesel barış ve istikrarın sağlanması yönündeki adımların önemi vurgulandı.
 
 Değerlendirmelerde, Türkiye'nin ulusal güvenliğini tehdit eden unsurlarla mücadelenin kararlılıkla devam edeceği belirtilirken, uluslararası alanda da bölgesel güvenlik dinamiklerinin yakından takip edildiği ifade edildi. Bu kapsamda, Doğu Akdeniz ve Gazze'deki gelişmelerin de gündeme geldiği ve bu konularda Türkiye'nin tutumunun net olduğu kaydedildi.
+
+## Güncelleme - 2026-08-06
+
+Milli Güvenlik Kurulu (MGK) 6 Ağustos 2026'da Beştepe'de toplandı. Toplantının ana gündem maddeleri arasında "Terörsüz Türkiye" süreci ve bölgesel güvenlik konuları yer aldı. Bu toplantıda, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel istikrarın sağlanması yönündeki adımların önemi bir kez daha vurgulandı.
