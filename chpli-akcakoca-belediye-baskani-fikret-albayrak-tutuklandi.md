@@ -62,3 +62,7 @@ Albayrak'ın yeniden tutuklanması, yerel siyaset ve yargı gündeminde tartış
 Üsküdar Belediye Başkanı Sinem Dedetaş, 'görevi kötüye kullanma' suçlamasıyla yürütülen soruşturma kapsamında tutuklandı. Bu gelişme, yerel yönetimlerdeki hukuki süreçler ve görevden uzaklaştırmalar bağlamında dikkat çekmektedir.
 
 Dedetaş'ın tutuklanması, daha önce benzer suçlamalarla gündeme gelen ve tutuklanan diğer belediye başkanlarının durumlarıyla paralellik göstermektedir. Olay, siyasi çevrelerde ve kamuoyunda yankı bulmuş olup, yargı süreçlerinin nasıl ilerleyeceği merak konusudur.
+
+## Güncelleme - 2026-08-07
+
+CHP'li belediyelere yönelik operasyonlar devam ederken, Menderes Belediye Başkanı İlkay Çiçek'in de aralarında bulunduğu 10 kişi, rüşvet soruşturması kapsamında tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasıyla birlikte, partiye yönelik yargısal süreçlerin sürdüğünü göstermektedir.
