@@ -2,7 +2,7 @@
 title: CHP'de Vekil İhraçları ve Parti İçi Disiplin Tartışmaları
 date: "2026-06-11"
 category: "Siyasi"
-img: ""
+img: "https://habereksprescomtr.teimg.com/crop/1280x720/haberekspres-com-tr/uploads/2026/07/son-dakika/10fe4c68-596f-4c29-9280-0e4a70442056.jpg"
 ---
 
 Cumhuriyet Halk Partisi (CHP) içinde, bazı milletvekillerinin partiden ihraç edilmesi istemleriyle disiplin süreçlerinin başlatıldığına dair haberler yer almaktadır. Bu durum, parti içinde önemli bir gerilime ve disiplin mekanizmalarının işleyişine dair tartışmalara yol açmıştır.
@@ -30,3 +30,7 @@ Bu olay, parti disiplini ve alınan kararların parti üyeleri ve kamuoyu üzeri
 CHP'de disiplin süreçleri devam ederken, Kayseri'de bir meclis üyesinin kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içindeki gerilimlerin ve ihraç taleplerinin sürdüğünü göstermektedir.
 
 Öte yandan, Kocaeli'de daha önce üniversiteden ihraç edilen iki ismin görevlerine iade edilmesi de dikkat çekmiştir. Bu durum, ihraç süreçlerinin ve sonrasında yaşanan hukuki veya idari gelişmelerin çeşitliliğini ortaya koymaktadır.
+
+## Güncelleme - 2026-08-07
+
+CHP'de disiplin süreçleri devam ederken, Menderes Belediye Başkanı İlkay Çiçek hakkında kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içindeki gerilimlerin ve ihraç taleplerinin sürdüğünü göstermektedir.
