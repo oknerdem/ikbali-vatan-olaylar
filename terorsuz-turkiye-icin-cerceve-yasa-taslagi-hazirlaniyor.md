@@ -132,3 +132,9 @@ TBMM Başkanı Numan Kurtulmuş, MHP Genel Başkanı Devlet Bahçeli'nin de imza
 ## Güncelleme - 2026-08-05 (2)
 
 Cumhurbaşkanı Erdoğan, teklifin 'aziz milletimizin çözüm iradesini yansıtan geniş bir mutabakatla Meclis'e sunulduğunu' belirterek, Türkiye'yi terör tehdidinden kalıcı olarak kurtarmayı hedeflediklerini ifade etti. Teklifin adı 'Toplumsal Bütünleşme' olarak belirlenirken, terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapının güçlendirilmesi amaçlanıyor.
+
+## Güncelleme - 2026-08-07
+
+TBMM Adalet Komisyonu, 'Terörsüz Türkiye' hedefiyle hazırlanan çerçeve yasa teklifini görüşmek üzere toplandı. Teklifin 12 maddeden oluştuğu ve terörle mücadelede yeni bir dönemi başlatması hedeflendiği belirtiliyor. MHP Genel Başkanı Devlet Bahçeli'nin de teklife imza atarak destek verdiği ve 'Toplumsal Bütünleşme' olarak adlandırılan teklifin, terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapıyı güçlendirmeyi amaçladığı ifade ediliyor.
+
+Komisyondaki görüşmeler öncesinde yaşanan gerginlikler ve İYİ Parti'nin araştırma önergesinin reddedilmesi, teklifin içeriği ve süreci hakkındaki tartışmaların devam ettiğini gösteriyor. Cumhurbaşkanı Erdoğan, teklifin geniş bir mutabakatla Meclis'e sunulduğunu ve Türkiye'yi terör tehdidinden kalıcı olarak kurtarmayı hedeflediklerini belirtti.

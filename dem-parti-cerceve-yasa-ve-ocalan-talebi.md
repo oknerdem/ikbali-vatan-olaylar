@@ -90,3 +90,7 @@ Bu görüşmelerin ardından yapılan açıklamalarda, çıkarılacak yasanın s
 ## Güncelleme - 2026-08-06
 
 AK Parti Grup Başkanı Abdullah Güler, TBMM'ye sunulan çerçeve yasa teklifiyle ilgili olarak, "Belli idari düzenlemelerle İmralı'ya ziyaretler yapılabilir" açıklamasında bulundu. Bu gelişme, daha önceki günlerde DEM Parti İmralı Heyeti'nin Abdullah Öcalan ile gerçekleştirdiği görüşmeler ve Öcalan'ın 'yasal zemin' talebinin ardından geldi. Teklifin içeriği ve İmralı'ya ziyaretlerin hukuki zemini konusundaki detaylar, çözüm süreci ve siyasi gündem açısından yakından takip ediliyor.
+
+## Güncelleme - 2026-08-07
+
+Öte yandan, PKK'nın 'çerçeve yasa' düzenlemesine ilişkin tutumunu henüz belirlemediğini ve 'Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız' açıklamasını yapması, yasa teklifinin içeriğinin örgüt tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini göstermektedir. Bu durum, çözüm süreci ve siyasi gelişmeler açısından kritik öneme sahip.
