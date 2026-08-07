@@ -168,3 +168,9 @@ Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" hedefinin milli bir devlet p
 Türkiye Büyük Millet Meclisi'ne sunulan ve milletvekilleri tarafından imzaya açılan 'Terörsüz Türkiye' düzenlemesi, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor. Adalet Bakanı Akın Gürlek'in daha önce duyurduğu bu adım, terör örgütünün tamamen feshedilmesi şartına bağlı yasal çerçevenin hayata geçirilmesi açısından kritik bir öneme sahip. Milli Savunma Bakanlığı da bu vizyonun bölgesel istikrara katkı sağlayacağını belirterek, TSK'nın görevine kararlılıkla devam edeceğini vurguladı.
 
 Bu süreç, şehit aileleri ve gazilerin hassasiyetlerini temel alırken, terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığı Adalet Bakanı Gürlek tarafından açıklandı. 'Terörsüz Türkiye' hedefinin milli bir devlet politikası olduğu ve hukuki zemininin güçlendirildiği belirtilirken, bu adımın ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüştüğü ifade edildi.
+
+## Güncelleme - 2026-08-08
+
+TBMM Adalet Komisyonu'nda 'Terörsüz Türkiye' düzenlemesi görüşülürken tansiyon yükseldi. DEM Parti'nin Abdullah Öcalan'a teşekkür etmesi üzerine İYİ Parti ve diğer partilerden sert tepkiler geldi. MHP'li Feti Yıldız, TBMM'de Öcalan'ın çağrı metnini okuyarak sürece farklı bir boyut kazandırdı. Adalet Bakanı Akın Gürlek, teklifin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını, şehit aileleri ve gazilerin hassasiyetlerinin temel alındığını vurguladı.
+
+AK Parti Sözcüsü Ömer Çelik, sürecin milletin tamamının hukukunu ve devletin bekasını gözettiğini belirtirken, terör örgütünün tamamen feshedilmesi ve silah bırakması şartının altını çizdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
