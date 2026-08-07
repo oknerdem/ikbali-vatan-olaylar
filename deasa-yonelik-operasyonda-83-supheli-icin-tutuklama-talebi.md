@@ -84,3 +84,7 @@ Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı
 Türkiye genelinde 30 ilde DEAŞ terör örgütüne yönelik düzenlenen eş zamanlı operasyonlarda 119 şüpheli yakalandı. İçişleri Bakanlığı'ndan yapılan açıklamaya göre, operasyonlar sonucunda gözaltına alınan şüphelilerin emniyetteki işlemleri devam ediyor.
 
 Bu operasyonlar, terör örgütlerinin faaliyetlerini engellemeye yönelik sürdürülen mücadelenin bir parçası olarak değerlendiriliyor. Yakalanan şüphelilerin örgüte üye kazandırma, propaganda yapma ve finansal destek sağlama gibi suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-08-07
+
+8 Ağustos 2026 tarihinde, İçişleri Bakanlığı tarafından yapılan duyuruya göre, Türkiye genelinde 30 ilde eş zamanlı olarak DEAŞ terör örgütüne yönelik büyük bir operasyon düzenlendi. Operasyonlarda toplam 104 şüpheli yakalanarak gözaltına alındı. Gözaltına alınan şüphelilerin emniyetteki işlemleri devam etmekle birlikte, bu operasyonlar terörle mücadele kapsamında sürdürülen kararlı mücadelenin bir parçası olarak öne çıkıyor.

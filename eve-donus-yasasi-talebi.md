@@ -20,3 +20,9 @@ Söz konusu yasa teklifinin, bayram sonrası TBMM'ye sunulabileceği ve çözüm
 Milletvekili Sezgin Tanrıkulu, silah bırakan PKK'lıların Türkiye'ye dönüşü için siyaset yapma güvencesi talep etti. Tanrıkulu'nun bu açıklaması, daha önce gündeme gelen 'eve dönüş yasası' ve düzenleme talepleriyle ilişkilendirildi.
 
 Bu gelişme, terör örgütü mensuplarının topluma entegrasyonu ve çözüm süreci tartışmaları bağlamında önemli bir boyut kazanmıştır. Siyaset yapma güvencesi talebi, bu tür düzenlemelerin hukuki ve toplumsal boyutlarına dair yeni soruları gündeme getirmiştir.
+
+## Güncelleme - 2026-08-07
+
+Türkiye İşçi Partisi (TİP) ve Emek Partisi (EMEP), TBMM'de görüşülen ve PKK'lı teröristlerin Türkiye'ye dönüşünü düzenlemeyi amaçlayan yasa teklifine imza vermeme kararı aldı. Bu partiler, teklifin içeriği ve çözüm süreciyle ilgili yaklaşımları nedeniyle imza atmadıklarını belirtti.
+
+Bu gelişme, daha önce gündeme gelen 'eve dönüş yasası' ve düzenleme taleplerinin siyasi yansımalarını ortaya koymaktadır. Farklı partilerin bu konudaki tutumları, çözüm süreci tartışmalarının karmaşıklığını ve siyasi kutuplaşmayı gözler önüne sermektedir.
