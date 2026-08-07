@@ -162,3 +162,9 @@ Düzenlemenin imzaya açılması, siyasi partiler arasındaki müzakerelerin ve 
 ## Güncelleme - 2026-08-06
 
 Adalet Bakanı Akın Gürlek, "Terörsüz Türkiye" hedefinin milli bir devlet politikası olduğunu ve bu sürecin hukuki zemininin güçlendirildiğini belirtti. Bakan Gürlek, Meclis'e sunulan kanun teklifinin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını vurgulayarak, şehit aileleri ve gazilerin hassasiyetlerinin temel ölçü alındığını ifade etti. Milli Savunma Bakanlığı da "Terörsüz Türkiye" vizyonunun bölgesel istikrara katkı sağlayacak stratejik bir adım olduğunu belirterek, TSK'nın görevine kararlılıkla devam edeceğini bildirdi. Bu gelişmeler, sürecin hem hukuki hem de güvenlik boyutlarıyla ele alındığını göstermektedir.
+
+## Güncelleme - 2026-08-07
+
+Türkiye Büyük Millet Meclisi'ne sunulan ve milletvekilleri tarafından imzaya açılan 'Terörsüz Türkiye' düzenlemesi, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor. Adalet Bakanı Akın Gürlek'in daha önce duyurduğu bu adım, terör örgütünün tamamen feshedilmesi şartına bağlı yasal çerçevenin hayata geçirilmesi açısından kritik bir öneme sahip. Milli Savunma Bakanlığı da bu vizyonun bölgesel istikrara katkı sağlayacağını belirterek, TSK'nın görevine kararlılıkla devam edeceğini vurguladı.
+
+Bu süreç, şehit aileleri ve gazilerin hassasiyetlerini temel alırken, terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığı Adalet Bakanı Gürlek tarafından açıklandı. 'Terörsüz Türkiye' hedefinin milli bir devlet politikası olduğu ve hukuki zemininin güçlendirildiği belirtilirken, bu adımın ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüştüğü ifade edildi.
