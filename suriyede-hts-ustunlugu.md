@@ -14,3 +14,7 @@ ABD ve koalisyon kuvvetleri Suriye’deki IŞİD tutsaklarının bulunduğu hapi
 ## Güncelleme - 2026-08-07
 
 Kuzey Irak'taki terör örgütlerine yönelik operasyonlar kapsamında, örgütlere iki aylık bir süre tanındığı belirtildi. Bu gelişme, Suriye'deki terör örgütlerinin durumuyla ilgili mevcut bilgileri tamamlayıcı niteliktedir ve bölgesel güvenlik dinamiklerini etkilemektedir.
+
+## Güncelleme - 2026-08-07 (2)
+
+Suriye'deki terör örgütlerinin durumu ve Türkiye'nin terörle mücadelesi kapsamında, 7 Ağustos 2026 tarihinde önemli gelişmeler yaşanmıştır. Bu tarihte, Türkiye Büyük Millet Meclisi'nde (TBMM) "Terörsüz Türkiye" süreciyle ilgili çerçeve yasa teklifinin görüşmelerine başlanmıştır. Milli Güvenlik Kurulu (MGK) da toplantısında "Terörsüz Türkiye" vurgusu yapmış ve müteakip aşamaların istişare edildiğini bildirmiştir. Ayrıca, PKK terör örgütüne yönelik operasyonlar kapsamında, örgütlere silah bırakmaları için iki aylık bir süre tanındığı ve bu sürecin detaylarının netleştiği belirtilmiştir. "Güvenli ve sessiz dönüş" modelinin devreye gireceği ve bu süreçte herkese indirim uygulanmayacağı da haberlerde yer almıştır.

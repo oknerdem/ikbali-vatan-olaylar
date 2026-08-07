@@ -164,3 +164,9 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 ## Güncelleme - 2026-08-05
 
 İzmir Büyükşehir Belediyesi'ne yönelik operasyonda, CHP Genel Başkan Yardımcısı Veli Ağbaba'nın ağabeyi Hür Ağbaba'nın da aralarında bulunduğu çok sayıda kişi gözaltına alındı. Operasyonun detayları ve gözaltı gerekçeleri hakkında bilgiler gelmeye devam ediyor. Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyonların devamı niteliğinde değerlendiriliyor.
+
+## Güncelleme - 2026-08-07
+
+Aydın'ın Kuşadası Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine başlatılan operasyon genişleyerek devam etti. Üçüncü dalga olarak nitelendirilen operasyonda, aralarında belediye meclis üyeleri ve belediye personelinin de bulunduğu 15 kişi daha gözaltına alındı. Operasyonun, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı ve daha önceki gözaltılarla bağlantılı olduğu belirtildi.
+
+Bu yeni gözaltılarla birlikte soruşturmanın kapsamı daha da genişlerken, Kuşadası Belediyesi'ndeki yolsuzluk iddialarına ilişkin soruşturmada toplam gözaltı sayısının arttığı öğrenildi. Operasyonun detayları ve gözaltı gerekçeleri hakkında resmi açıklamalar bekleniyor.
