@@ -2,7 +2,7 @@
 title: "MGK'dan 'Terörsüz Türkiye' Vurgusu ve Bölgesel Güvenlik Değerlendirmesi"
 date: "2026-06-19"
 category: "Süreç"
-img: ""
+img: "https://sozcu01.sozcucdn.com/sozcu/production/uploads/images/2026/8/926jpg-c1rPqXwT9kKxHAIAjDGcTA.jpg?&mode=crop&scale=both"
 ---
 
 Milli Güvenlik Kurulu (MGK) son toplantısında, Türkiye'nin terörle mücadelesi ve bölgesel güvenlik konuları ele alındı. Toplantıda, 'terörsüz Türkiye' hedefine yönelik yürütülen çalışmaların değerlendirildiği bildirildi.
@@ -20,3 +20,9 @@ Değerlendirmelerde, Türkiye'nin ulusal güvenliğini tehdit eden unsurlarla m�
 ## Güncelleme - 2026-08-06
 
 Milli Güvenlik Kurulu (MGK) 6 Ağustos 2026'da Beştepe'de toplandı. Toplantının ana gündem maddeleri arasında "Terörsüz Türkiye" süreci ve bölgesel güvenlik konuları yer aldı. Bu toplantıda, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel istikrarın sağlanması yönündeki adımların önemi bir kez daha vurgulandı.
+
+## Güncelleme - 2026-08-07
+
+Milli Güvenlik Kurulu'nun 6 Ağustos 2026 tarihli toplantısında, "Terörsüz Türkiye" hedefi doğrultusunda atılacak adımlar ve sürecin yeni aşamaları istişare edildi. Toplantıda ayrıca, bölgesel güvenlik dinamikleri çerçevesinde Doğu Akdeniz ve Gazze'deki gelişmelerin de ele alındığı ve Türkiye'nin bu konulardaki tutumunun net olduğu belirtildi.
+
+Bu kapsamda, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel istikrarın sağlanması yönündeki çabaların devam edeceği vurgulandı. Bazı siyasi figürlerin ve kurumların da "terörsüz Türkiye" söylemine yönelik açıklamaları ve bu sürece dair farklı görüşler kamuoyunda yer buldu.
