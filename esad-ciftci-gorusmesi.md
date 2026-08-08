@@ -22,3 +22,9 @@ Suriye İçişleri Bakanı, Suriye Devlet Başkanı Beşar Esad ile yaptığı g
 Türkiye Milli Savunma Bakanı Yaşar Güler, 1 Ağustos 2026 tarihinde Suriye Savunma Bakanı Ebu Kasra ile bir araya geldi. Bu görüşme, daha önce Türkiye İçişleri Bakanı'nın Suriye Devlet Başkanı Esad ile yaptığı görüşmelerin ardından iki ülke arasındaki savunma ve güvenlik alanındaki temasların devam ettiğini göstermektedir.
 
 Görüşmede, bölgesel güvenlik, terörle mücadele ve iki ülke arasındaki savunma iş birliğinin geliştirilmesi gibi konuların ele alındığı belirtildi. Bu tür üst düzey temaslar, Suriye'deki mevcut durum ve Türkiye'nin bölgeye yönelik politikaları açısından önem taşımaktadır.
+
+## Güncelleme - 2026-08-08
+
+8 Ağustos 2026 tarihinde, Türkiye İçişleri Bakanı Mustafa Çiftçi'nin Suriye Devlet Başkanı Beşar Esad ile gerçekleştirdiği görüşmenin ardından, "Terörsüz Türkiye Teklifi"nin Meclis'ten geçeceği yönünde açıklamalar yapıldı. Bu teklifin, Türkiye'yi terör sorunundan tamamen kurtarmayı amaçladığı belirtildi. Adalet Bakanı Akın Gürlek de bu süreçte devletin kararlılığını vurgulayarak, meydanın boş sanılmaması gerektiğini ifade etti.
+
+Bu gelişmeler, Suriye ile yürütülen diplomatik temasların yanı sıra, Türkiye'nin iç güvenlik politikalarındaki güncel durumu ve terörle mücadeleye yönelik yasal düzenleme çabalarını yansıtmaktadır. Özellikle "Terörsüz Türkiye" vurgusu, siyasi ve toplumsal gündemde geniş yankı bulmuştur.

@@ -66,3 +66,7 @@ Dedetaş'ın tutuklanması, daha önce benzer suçlamalarla gündeme gelen ve tu
 ## Güncelleme - 2026-08-07
 
 CHP'li belediyelere yönelik operasyonlar devam ederken, Menderes Belediye Başkanı İlkay Çiçek'in de aralarında bulunduğu 10 kişi, rüşvet soruşturması kapsamında tutuklandı. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasıyla birlikte, partiye yönelik yargısal süreçlerin sürdüğünü göstermektedir.
+
+## Güncelleme - 2026-08-08
+
+TSK'dan ihraç edildikten sonra davasını kazanıp görevine dönen bir albayın emekliliğe sevk edilmesi ve YENİ Parti Manisa İl Başkanı'nın tutuklanması gibi gelişmeler, siyasi ve askeri alandaki güncel olayları yansıtmaktadır. Bu tür olaylar, kurum içi süreçler, yargı kararları ve siyasi partilerin karşılaştığı durumlar açısından önem taşımaktadır.
