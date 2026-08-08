@@ -20,3 +20,9 @@ MHP Genel Başkanı Devlet Bahçeli, teklife sert tepki göstererek, "Çözüm s
 ## Güncelleme - 2026-08-07
 
 Milli Güvenlik Kurulu (MGK) ve Milli Savunma Bakanlığı (MSB) gibi kurumlar, "Terörsüz Türkiye" vurgusu yaparak, ülkenin güvenlik ve istikrarına yönelik kararlılıklarını yineledi. Bu açıklamalar, mevcut siyasi tartışmaların yanı sıra, terörle mücadelede yeni bir aşamaya geçildiği ve bu sürecin yasal düzenlemelerle destekleneceği beklentisini güçlendirdi.
+
+## Güncelleme - 2026-08-08
+
+Zafer Partisi Genel Başkanı Ümit Özdağ, PKK'nın silah bırakması karşılığında hükümet ile yapılan görüşmelerde ne konuşulduğunu sordu. Özdağ, Cumhurbaşkanı Erdoğan ve MHP Genel Başkanı Devlet Bahçeli'ye yönelik bu soruyu, çözüm süreci ve olası bir çerçeve yasa teklifi tartışmalarının gölgesinde dile getirdi. Bu gelişme, siyasi partiler arasındaki tansiyonu artırırken, kamuoyunda da farklı yorumlara neden oldu.
+
+Öte yandan, "Silah bırakacağım" diyen bir örgüte karşı bu talebin kabul edilip edilmeyeceği konusundaki tartışmalar da devam ediyor. Bu durum, sürecin hassasiyetini ve karmaşıklığını gözler önüne seriyor.
