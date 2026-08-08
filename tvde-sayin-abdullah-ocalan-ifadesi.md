@@ -14,3 +14,7 @@ Radyo ve Televizyon Üst Kurulu (RTÜK), olayla ilgili acil toplanarak kanala, "
 MHP Milletvekili Feti Yıldız, TBMM Anayasa Komisyonu'nda görüşülen 'Çerçeve Yasa' teklifi görüşmelerinde, Abdullah Öcalan'ın bir çağrısını okuyarak, 'Sayın Öcalan'ın çağrısı büyük Ortadoğu barışının çağrısıdır' ifadesini kullandı. Bu durum, komisyonda ve kamuoyunda tartışmalara yol açtı.
 
 Öte yandan, bir haber kanalında gazetecinin Abdullah Öcalan'dan bahsederken 'Sayın Abdullah Öcalan' demesi üzerine başlayan tartışma ve sonrasında RTÜK'ün verdiği cezalarla gündeme gelen olay, siyasi söylemlerdeki hassasiyetleri ve terörle mücadeledeki dilin önemini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-09
+
+Bu gelişme, daha önce bir haber kanalında gazetecinin Abdullah Öcalan'dan bahsederken 'Sayın Abdullah Öcalan' demesi üzerine başlayan tartışma ve sonrasında RTÜK'ün verdiği cezalarla gündeme gelen olayın ardından, siyasi söylemlerdeki hassasiyetleri ve terörle mücadeledeki dilin önemini bir kez daha gündeme getirdi.
