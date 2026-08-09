@@ -94,3 +94,9 @@ AK Parti Grup Başkanı Abdullah Güler, TBMM'ye sunulan çerçeve yasa teklifiy
 ## Güncelleme - 2026-08-07
 
 Öte yandan, PKK'nın 'çerçeve yasa' düzenlemesine ilişkin tutumunu henüz belirlemediğini ve 'Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız' açıklamasını yapması, yasa teklifinin içeriğinin örgüt tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini göstermektedir. Bu durum, çözüm süreci ve siyasi gelişmeler açısından kritik öneme sahip.
+
+## Güncelleme - 2026-08-09
+
+TBMM'ye sunulan 'Terörsüz Türkiye' çerçeve yasa teklifi, siyasi partiler arasında farklı görüşlere neden oldu. AK Parti Grup Başkanı Abdullah Güler, teklifle ilgili olarak "Belli idari düzenlemelerle İmralı'ya ziyaretler yapılabilir" açıklamasını yaparken, MHP ve bazı diğer siyasi figürler, terör örgütü mensuplarının affedilmesine veya statü verilmesine kesinlikle karşı olduklarını belirttiler. Bu durum, teklifin içeriği ve uygulanabilirliği konusundaki tartışmaları derinleştirdi.
+
+Öte yandan, PKK'nın yasa teklifine ilişkin tutumunu henüz belirlemediği ve "Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız" açıklaması, teklifin detaylarının örgüt tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini gösteriyor. Bu belirsizlik, çözüm süreci ve siyasi gelişmeler açısından kritik önem taşımaya devam ediyor.
