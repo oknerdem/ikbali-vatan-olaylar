@@ -28,3 +28,9 @@ Görüşmede, bölgesel güvenlik, terörle mücadele ve iki ülke arasındaki s
 8 Ağustos 2026 tarihinde, Türkiye İçişleri Bakanı Mustafa Çiftçi'nin Suriye Devlet Başkanı Beşar Esad ile gerçekleştirdiği görüşmenin ardından, "Terörsüz Türkiye Teklifi"nin Meclis'ten geçeceği yönünde açıklamalar yapıldı. Bu teklifin, Türkiye'yi terör sorunundan tamamen kurtarmayı amaçladığı belirtildi. Adalet Bakanı Akın Gürlek de bu süreçte devletin kararlılığını vurgulayarak, meydanın boş sanılmaması gerektiğini ifade etti.
 
 Bu gelişmeler, Suriye ile yürütülen diplomatik temasların yanı sıra, Türkiye'nin iç güvenlik politikalarındaki güncel durumu ve terörle mücadeleye yönelik yasal düzenleme çabalarını yansıtmaktadır. Özellikle "Terörsüz Türkiye" vurgusu, siyasi ve toplumsal gündemde geniş yankı bulmuştur.
+
+## Güncelleme - 2026-08-09
+
+Suriye ve Rusya arasında, Rus askeri varlığının yeniden yapılandırılmasına ilişkin bir mutabakat zaptı imzalandığı 9 Ağustos 2026 tarihinde duyuruldu. Bu gelişme, Suriye'deki Rus askeri mevcudiyetinin geleceğine dair önemli bir adım olarak değerlendiriliyor.
+
+Bu anlaşma, Türkiye'nin de yakından takip ettiği bölgesel güvenlik dinamikleri açısından önem taşımaktadır. Daha önce Türkiye İçişleri Bakanı Mustafa Çiftçi'nin Suriye Devlet Başkanı Beşar Esad ile yaptığı görüşmeler ve Milli Savunma Bakanı Yaşar Güler'in Suriye Savunma Bakanı Ebu Kasra ile bir araya gelmesi gibi temasların ardından, Rusya ile Suriye arasındaki bu askeri işbirliği anlaşması, bölgedeki güç dengeleri ve Türkiye'nin dış politikası üzerindeki etkileri açısından dikkatle incelenmektedir.

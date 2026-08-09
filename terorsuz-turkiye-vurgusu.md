@@ -32,3 +32,9 @@ Bu gelişme, "terörsüz Türkiye" temasının sadece toplumsal etkinliklerle s�
 İçişleri Bakanı Mustafa Çiftçi, Hakkari'nin Şemdinli ilçesindeki sınır karakollarını ziyaret ederek "Terörsüz Türkiye" projesinin başarıyla devam ettiğini ve kararlılıkla süreceğini belirtti. Bakan Çiftçi, projenin hayata geçtiğini ve başarıya ulaşacağına dair inancının tam olduğunu vurguladı.
 
 Bu açıklamalar, "Terörsüz Türkiye" hedefinin sadece söylemde kalmadığını, aynı zamanda sınır bölgelerindeki operasyonel faaliyetlerle de desteklendiğini ve devletin bu konudaki kararlılığının altını çizdiğini göstermektedir. Projenin başarıya ulaşacağına dair yapılan vurgular, terörle mücadelenin ülkenin güvenliği ve istikrarı için merkezi bir öncelik olduğunu teyit etmektedir.
+
+## Güncelleme - 2026-08-09
+
+İçişleri Bakanı Mustafa Çiftçi, "Terörsüz Türkiye sürecinin akamete uğramaması için takipçisiyiz" açıklamasında bulundu. Bu ifade, terörle mücadeledeki kararlılığın ve sürecin kesintisiz devam etmesi gerektiğinin altını çizmektedir.
+
+Bu açıklama, "Terörsüz Türkiye" hedefinin sadece bir temenni olmaktan öte, aktif bir takip ve yönetim gerektiren bir süreç olduğunu vurgulamaktadır. Bakan Çiftçi'nin bu konudaki takipçi olma vurgusu, konunun siyasi ve idari düzeyde ne kadar önemsendiğini göstermektedir.

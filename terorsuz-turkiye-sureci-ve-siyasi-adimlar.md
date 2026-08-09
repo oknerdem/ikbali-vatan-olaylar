@@ -46,3 +46,9 @@ PKK yöneticilerinden Duran Kalkan, "süreç batmayacak" ve "siyasetin önü aç
 PKK'nın sınır hattındaki 81 noktadan çekildiği ve bu kampları boşalttığına dair haberler, 'Terörsüz Türkiye' süreci kapsamında önemli bir gelişme olarak kayıtlara geçti. Bu durumun, sürecin ilerleyişi ve olası yasal düzenlemeler açısından yeni bir aşama teşkil edebileceği belirtiliyor.
 
 Bu çekilme haberleri, daha önceki siyasi adımlar ve açıklamalarla birlikte değerlendirildiğinde, terörle mücadele ve toplumsal huzurun sağlanması hedeflerine yönelik somut adımların atıldığına işaret ediyor. Ancak, bu gelişmenin siyasi süreç üzerindeki nihai etkileri ve çözüm süreciyle entegrasyonu konusunda henüz netlik kazanmış bir durum bulunmuyor.
+
+## Güncelleme - 2026-08-09
+
+CHP Genel Başkanı Özgür Özel ve parti sözcüsü Deniz Demir, 'Terörsüz Türkiye' söylemine destek verdiklerini ve bu sürecin takipçisi olacaklarını belirttiler. Demir, "Kardeşliğin teminat altına alındığı bir Türkiye için sürecin takipçisi ve güvencesi olmaya devam edeceğiz" ifadelerini kullanırken, Kılıçdaroğlu da sürece tereddütsüz katkı vereceklerini ve bölücü küresel yapılara geçit verilmeyeceğini vurguladı.
+
+Bu açıklamalar, CHP'nin terörle mücadele ve toplumsal huzurun sağlanması konusundaki duruşunu netleştirirken, sürecin siyasi aktörler tarafından nasıl sahiplenildiğini göstermektedir. PKK yöneticilerinden Duran Kalkan'ın daha önceki "süreç batmayacak" ve "siyasetin önü açıldıkça silahlı mücadele stratejisi bir daha gündeme gelmez" şeklindeki açıklamalarıyla birlikte değerlendirildiğinde, siyasi çözümün önceliklendirildiği bir döneme girildiği yorumları yapılmaktadır.
