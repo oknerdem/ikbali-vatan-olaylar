@@ -64,3 +64,9 @@ Beş hukuk profesörünün terör yargılamaları ve Avrupa İnsan Hakları Mahk
 Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli, "Terörsüz Türkiye" vizyonuyla ilgili yaptığı açıklamalarda, Abdullah Öcalan'ın "umut hakkına", HDP eski Eş Genel Başkanı Selahattin Demirtaş'ın "evine", diğer siyasi figürlerin ise "görevlerine" dönmesi gerektiğini belirterek dikkat çekici bir çağrıda bulundu. Bahçeli, bu önerilerin "bin yıllık kardeşliğin" bir tescili olduğunu ifade etti. Bu açıklamalar, hazırlanan çerçeve yasa taslağının siyasi tartışmalara açıldığını ve farklı aktörlerin bu sürece dair beklentilerini ortaya koyduğunu göstermektedir.
 
 Bahçeli'nin bu çıkışları, "Terörsüz Türkiye" hedefinin sadece güvenlik odaklı bir yasal düzenleme olmadığını, aynı zamanda siyasi ve toplumsal boyutları da içeren bir vizyon olduğunu ortaya koyuyor. Yasa taslağının Meclis'e gelmesi beklenirken, bu tür açıklamalar, sürecin hassasiyetini ve farklı yorumlara açık olduğunu da gözler önüne seriyor.
+
+## Güncelleme - 2026-08-09
+
+Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli'nin, Abdullah Öcalan'ın "umut hakkına", HDP eski Eş Genel Başkanı Selahattin Demirtaş'ın ise "evine dönmesi" yönündeki açıklamaları, "Terörsüz Türkiye" vizyonuyla hazırlanan çerçeve yasa taslağına dair siyasi tartışmaları alevlendirdi. Bahçeli, bu önerilerin "bin yıllık kardeşliğin" bir tescili olduğunu ifade ederek, taslağın sadece güvenlik odaklı bir düzenleme olmadığını, aynı zamanda siyasi ve toplumsal boyutları da içeren bir vizyon olduğunu vurguladı.
+
+Bu gelişmeler yaşanırken, İYİ Parti Burdur Gençlik Kolları şehitlik önünde bir açıklama yaparak "Terörsüz Türkiye" çağrısında bulundu. Öte yandan, MHP'li yetkililer, "terörsüz Türkiye" hedefinde önemli bir eşik aşılacağını ve bu kutlu yoldan dönüş olmadığını belirterek, hazırlanan yasanın Türkiye'yi yeni bir faza geçireceği mesajını verdi.
