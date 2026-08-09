@@ -38,3 +38,9 @@ CHP'deki kurultay süreciyle ilgili gelişmeler devam ederken, Adalar Belediye B
 CHP'deki olağanüstü kurultay talebi, mahkemeye yapılan başvurularla birlikte yargıya taşındı. Özgür Özel'in başını çektiği bir grup tarafından yapılan "Çağrı Heyeti" başvurusu, parti içindeki kurultay sürecini hukuki bir zemine oturtma çabası olarak görülüyor. Bu gelişmeler, CHP'nin iç dinamiklerindeki hareketliliği ve kurultay tartışmalarının seyrini daha da karmaşık hale getirdi.
 
 Cumhurbaşkanı Erdoğan, CHP'ye yönelik kurultay çağrılarına ilişkin yaptığı açıklamada, partiyi "becerebilirseniz şaibesiz kurultay yapın" diyerek eleştirdi. Bu sözler, parti içindeki mevcut gerilimin ve dışarıdan gelen siyasi yorumların bir yansıması olarak değerlendiriliyor.
+
+## Güncelleme - 2026-08-09
+
+CHP'deki kurultay süreci, 'terörsüz Türkiye' söylemiyle kesişerek siyasi gündemin üst sıralarına yerleşti. Bu durum, parti içi dinamiklerin ülke gündemindeki önemli bir konuyla nasıl ilişkilendiğini gösteriyor. Parti içinde onursal genel başkanlık gibi konuların da masada olduğu belirtiliyor.
+
+Öte yandan, Öcalan'ın ayağına gidenlerin gazileri ziyaret etmediği yönündeki eleştiriler ve Kılıçdaroğlu'na yönelik 'aday olmayın, aktif siyaseti bırakın' çağrıları, parti içindeki tartışmaların derinleştiğini ve farklı görüşlerin öne çıktığını gösteriyor.
