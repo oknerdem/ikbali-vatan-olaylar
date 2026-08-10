@@ -38,3 +38,9 @@ Bu açıklama, terörün ülke ekonomisi üzerindeki etkilerinin devam ettiğini
 İletişim Başkanlığı, terörün Türkiye'ye olan 40 yıllık ekonomik maliyetinin 3 trilyon doları aştığını açıkladı. Bu rakam, daha önceki tahminlerin üzerine çıkarak, terörle mücadelenin ülke ekonomisi üzerindeki yükünün boyutunu yeniden ortaya koymaktadır.
 
 Başkanlık tarafından paylaşılan verilerde, terörün yol açtığı milli gelir kaybının ve doğrudan/dolaylı maliyetlerin toplamının bu seviyeye ulaştığı belirtildi. Bu durum, terörle mücadelenin ekonomik etkilerinin ne denli büyük olduğunu ve bu maliyetin ülke ekonomisi için uzun vadeli bir risk teşkil ettiğini vurgulamaktadır.
+
+## Güncelleme - 2026-08-10
+
+Adalet eski Bakanı Abdulhamit Gül, 10 Ağustos 2026'da yaptığı açıklamada terörün Türkiye'ye maliyetinin 2,3 trilyon dolar olduğunu belirtti. Gül, bu rakamın Türkiye'nin 30 defa yeniden inşa edilmesi anlamına geldiğini ifade etti.
+
+Bu açıklama, daha önceki tahminlerin üzerine çıkarak terörün ülke ekonomisi üzerindeki yükünün boyutunu bir kez daha gözler önüne sermiştir. Farklı kaynaklarda da benzer şekilde 2,3 trilyon dolar civarında olduğu belirtilen maliyet, terörle mücadelenin ekonomik etkilerinin ne denli büyük olduğunu ve bu durumun ülkenin ekonomik geleceği açısından önemli bir risk teşkil ettiğini vurgulamaktadır.

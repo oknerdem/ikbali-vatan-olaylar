@@ -70,3 +70,9 @@ CHP'li belediyelere yönelik operasyonlar devam ederken, Menderes Belediye Başk
 ## Güncelleme - 2026-08-08
 
 TSK'dan ihraç edildikten sonra davasını kazanıp görevine dönen bir albayın emekliliğe sevk edilmesi ve YENİ Parti Manisa İl Başkanı'nın tutuklanması gibi gelişmeler, siyasi ve askeri alandaki güncel olayları yansıtmaktadır. Bu tür olaylar, kurum içi süreçler, yargı kararları ve siyasi partilerin karşılaştığı durumlar açısından önem taşımaktadır.
+
+## Güncelleme - 2026-08-10
+
+Menderes Belediye Başkanı İlkay Çiçek'in rüşvet soruşturması kapsamında tutuklanmasının ardından CHP'den istifa ettiği bildirildi. Bu gelişme, daha önce Akçakoca Belediye Başkanı Fikret Albayrak'ın da benzer suçlamalarla tutuklanmasıyla birlikte, partiye yönelik yargısal süreçlerin devam ettiğini göstermektedir.
+
+İlkay Çiçek'in istifası, yerel yönetimlerdeki yolsuzluk iddiaları ve bu iddialara yönelik yürütülen hukuki süreçlerin siyasi yansımaları açısından dikkat çekmektedir. Kamuoyu, bu tür olayların yargı bağımsızlığı ve şeffaflık ilkeleri çerçevesinde nasıl sonuçlanacağını yakından takip etmektedir.

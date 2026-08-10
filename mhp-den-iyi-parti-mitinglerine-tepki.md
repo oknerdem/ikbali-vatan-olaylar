@@ -28,3 +28,7 @@ AK Parti'nin TBMM'ye sunduğu ve 'terörsüz Türkiye' hedefiyle ilişkilendiril
 ## Güncelleme - 2026-08-04
 
 AK Parti, 'Terörsüz Türkiye' hedefiyle hazırladığı düzenleme kapsamında muhalefet partilerini ziyaret etmeye başladı. Bu ziyaretler, daha önce MHP'nin İYİ Parti mitinglerine yönelik eleştirileri ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun 'terörsüz Türkiye' süreciyle ilgili iddiaları göz önüne alındığında, siyasi tansiyonu daha da artırdı. Partiler arasındaki bu söylem farklılıkları, terör konusunun siyasi tartışmalardaki merkezi rolünü ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği ortaya koymaktadır.
+
+## Güncelleme - 2026-08-10
+
+TBMM'de 'Terörsüz Türkiye' hedefiyle hazırlanan düzenlemenin görüşülmeye başlanması, siyasi tartışmaları daha da alevlendirdi. Bu süreçte, MHP'li yetkililer İYİ Parti'nin mitinglerdeki söylemlerini eleştirmeye devam ederken, İYİ Parti de "Terörle pazarlık yapılmaz" vurgusuyla kendi duruşunu korudu. Parlamenterler Derneği gibi kurumlar ise "Terörsüz Türkiye"nin ülkeye tarihi fırsatlar sunacağı yönünde destek mesajları verdi. Bu gelişmeler, terörle mücadelenin siyasi söylemlerdeki yerini ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği bir kez daha ortaya koydu.
