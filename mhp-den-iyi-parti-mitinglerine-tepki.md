@@ -2,7 +2,7 @@
 title: "MHP'den İYİ Parti Mitinglerine Tepki: 'Boş Sloganlarla Terörsüz Türkiye İradesi Durdurulamaz'"
 date: "2026-06-28"
 category: "Siyasi"
-img: ""
+img: "https://img.haberankara.com/rcman/Cw1280h720q95gc/storage/files/images/2026/08/10/yeni-parti-genel-baskani-ozel-terorsuz-turkiye-yasa-teklifine-evet-diyeceklerini-acikladi-eyyb.jpg"
 ---
 
 MHP'li yetkililer, İYİ Parti'nin düzenlediği mitinglere sert tepki gösterdi. MHP'li bir isim, İYİ Parti mitinglerini kast ederek, "Milletin terörsüz Türkiye iradesini meydanlardan yükselen boş sloganlarla durduramazsınız" ifadelerini kullandı.
@@ -38,3 +38,9 @@ TBMM'de 'Terörsüz Türkiye' hedefiyle hazırlanan düzenlemenin görüşülmey
 İYİ Parti ve Demokrat Parti'nin çeşitli il teşkilatlarından, TBMM'ye sunulan ve "terörsüz Türkiye" hedefiyle ilişkilendirilen düzenlemeye yönelik tepkiler gelmeye devam etti. Bu partilerin temsilcileri, "teröristle müzakere edilmez" ve "terör örgütüne imtiyaz kabul edilemez" gibi ifadelerle düzenlemeye karşı çıktıklarını belirttiler.
 
 Bu gelişmeler, MHP'nin daha önceki İYİ Parti mitinglerine yönelik eleştirileriyle birlikte değerlendirildiğinde, terörle mücadele konusunun siyasi partiler arasındaki söylem farklılıklarında merkezi bir rol oynamaya devam ettiğini göstermektedir. Farklı partilerin bu konuya yaklaşımındaki çeşitlilik ve bu konunun siyasi tartışmalardaki ağırlığı bir kez daha ortaya konulmuştur.
+
+## Güncelleme - 2026-08-10 (3)
+
+TBMM'de 'Terörsüz Türkiye' hedefiyle sunulan kanun teklifinin görüşmelerine başlanması, siyasi tartışmaları daha da alevlendirdi. MHP'li yetkililer, İYİ Parti'nin mitinglerdeki söylemlerini eleştirmeye devam ederken, İYİ Parti de "Terörle pazarlık yapılmaz" vurgusuyla kendi duruşunu korudu. Bu süreçte, Parlamenterler Derneği gibi kurumlar, "Terörsüz Türkiye"nin ülkeye tarihi fırsatlar sunacağı yönünde destek mesajları verdi. Farklı partilerin bu konuya yaklaşımındaki çeşitlilik ve terörle mücadelenin siyasi söylemlerdeki merkezi rolü bir kez daha ortaya konuldu.
+
+İYİ Parti ve Demokrat Parti'nin çeşitli il teşkilatlarından da "terörsüz Türkiye" hedefiyle ilişkilendirilen düzenlemeye yönelik tepkiler geldi. Bu partilerin temsilcileri, "teröristle müzakere edilmez" ve "terör örgütüne imtiyaz kabul edilemez" gibi ifadelerle düzenlemeye karşı çıktıklarını belirttiler. Bu gelişmeler, MHP'nin daha önceki İYİ Parti mitinglerine yönelik eleştirileriyle birlikte değerlendirildiğinde, terörle mücadele konusunun siyasi partiler arasındaki söylem farklılıklarında merkezi bir rol oynamaya devam ettiğini göstermektedir.

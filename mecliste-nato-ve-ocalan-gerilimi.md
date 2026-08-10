@@ -12,3 +12,7 @@ Bu olaylar, Meclis'in gündemine taşınan hassas konuların başında yer alır
 ## Güncelleme - 2026-07-01
 
 TBMM'de yaşanan NATO ve Abdullah Öcalan'a yönelik tartışmalar, DEM Parti ve İYİ Parti arasında sert polemiklere yol açtı. DEM Parti'nin NATO'ya yönelik eleştirileri ve Öcalan'a dair söylemleri, İYİ Parti tarafından sert tepkiyle karşılandı. Bu durum, Meclis'in siyasi atmosferini daha da gerginleştirdi.
+
+## Güncelleme - 2026-08-10
+
+TBMM'de devam eden kritik yasa görüşmeleri sırasında, Abdullah Öcalan'a ait olduğu iddia edilen ve 10 ay önce çekildiği belirtilen bir aile fotoğrafının servis edilmesi Meclis'te yeni bir gerilime neden oldu. Fotoğrafın servis edildiği zamanlama, özellikle DEM Parti ve İYİ Parti arasındaki mevcut siyasi tartışmaların ortasında dikkat çekti. Bu durum, Meclis'teki hassas gündemi daha da karmaşık hale getirdi.

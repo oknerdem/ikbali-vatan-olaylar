@@ -50,3 +50,7 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, 1 Ağustos 2026'da yaptığı açıklamal
 Cumhurbaşkanı Erdoğan'ın terörle mücadeledeki kararlılığı ve 'terörsüz Türkiye' vizyonu, siyasi liderlerin de gündeminde yer buldu. Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli ve AK Parti Sözcüsü Numan Kurtulmuş, bu sürece destek çağrısında bulunarak, yeni bir yasal çerçevenin siyaset üstü bir yaklaşımla ele alınması gerektiğini vurguladılar. Bu açıklamalar, terörle mücadelenin sadece güvenlik boyutuyla değil, aynı zamanda siyasi ve toplumsal bir mutabakatla da ilerlediğini göstermektedir.
 
 Bahçeli, 'terörsüz Türkiye' sürecinin başladığını belirterek, bu konudaki yasal düzenlemelere tam destek verilmesi gerektiğini ifade etti. Kurtulmuş ise yeni yasayla 'terörsüz Türkiye'nin kapılarının açılacağını dile getirdi. Bu gelişmeler, Türkiye'nin terörle mücadelesinde yeni bir aşamaya geçildiğine ve bu sürecin toplumsal bir konsensüsle desteklenmesi gerektiğine işaret etmektedir.
+
+## Güncelleme - 2026-08-10
+
+AK Parti ve MHP'den yapılan açıklamalarda, 'terörsüz Türkiye' hedefinin altı çizildi. AK Parti Şanlıurfa İl Başkanı Günbegi, 'Terörsüz Türkiye idealini gerçeğe dönüştürdük' ifadelerini kullanırken, MHP Genel Başkanı Devlet Bahçeli de 'terörsüz Türkiye sürecinin başladığını' belirterek, bu konudaki yasal düzenlemelere destek çağrısı yaptı. AK Parti Sözcüsü Numan Kurtulmuş ise yeni yasayla 'terörsüz Türkiye'nin kapılarının açılacağını dile getirdi. Bu açıklamalar, terörle mücadelenin siyasi ve toplumsal bir mutabakatla ilerlediğini göstermektedir.
