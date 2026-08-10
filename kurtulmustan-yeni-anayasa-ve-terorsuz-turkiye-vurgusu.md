@@ -2,7 +2,7 @@
 title: "Numan Kurtulmuş'tan Yeni Anayasa ve Terörsüz Türkiye Vurgusu"
 date: "2026-05-27"
 category: "Siyasi"
-img: ""
+img: "https://web-cdnprod.aa.com.tr/uploads/Contents/2026/08/10/thumbs_b_c_4e381e806e3cc2e6ef967d6b65d1edbf.jpg"
 ---
 
 TBMM Başkanı Numan Kurtulmuş, Kurban Bayramı dolayısıyla yayımladığı mesajda yeni anayasa çalışmaları ve terörle mücadeleye değindi. Kurtulmuş, terörsüz bir Türkiye'nin demokratik kanallarla güçleneceğini belirtti.
@@ -82,3 +82,7 @@ Bu açıklamalar, terörle mücadeledeki mevcut durumun siyasi bir değerlendirm
 ## Güncelleme - 2026-08-02
 
 TBMM Başkanı Numan Kurtulmuş, 1 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve sürecin büyük ölçüde tamamlandığını belirtti. Kurtulmuş, "Artık bu memlekette insanlar terörden bahsetmeyecek" ifadesini kullanarak, terörsüz bir Türkiye'nin yakın zamanda gerçekleşeceğini ve bu kapsamda hazırlanan çerçeve yasa teklifinin Meclis'e geleceğini duyurdu. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini yineledi.
+
+## Güncelleme - 2026-08-11
+
+Bu gelişmelerin ardından, 10 Ağustos 2026 tarihinde TBMM Genel Kurulu'nda yapılan oylamada "Terörsüz Türkiye" çerçeve yasası, 468 kabul, 88 ret ve 6 çekimser oyla kabul edilerek yasalaştı. Bu yasanın kabulü, Türkiye'nin terörle mücadelesinde yeni bir dönemin başlangıcı olarak değerlendirildi. Cumhurbaşkanı Yardımcısı Cevdet Yılmaz, yasaya verilen 468 evet oyunu siyasi mutabakat ve toplumsal sahiplenme adına son derece önemli bulduğunu belirtti.
