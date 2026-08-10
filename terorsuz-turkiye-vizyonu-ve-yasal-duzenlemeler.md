@@ -48,3 +48,9 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği per
 ## Güncelleme - 2026-08-06
 
 5 Ağustos 2026 tarihinde "Terörsüz Türkiye" hedefiyle ilgili 12 maddelik kanun teklifi TBMM Başkanlığına sunuldu. AK Parti Grup Başkanı Abdullah Güler, teklifin yasalaşma sürecine girdiğini belirtti. Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği perçinlemeyi hedeflediğini vurgularken, MHP Genel Başkanı Devlet Bahçeli de sürece tam destek verdiklerini açıkladı. Bu gelişmeler, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktası olabileceğine işaret ediyor.
+
+## Güncelleme - 2026-08-10
+
+TBMM Başkanlığı'na sunulan 12 maddelik "Terörsüz Türkiye" kanun teklifi, yasalaşma sürecine girdi. AK Parti Grup Başkanı Abdullah Güler, teklifin yasalaşma sürecine girdiğini belirtirken, Cumhurbaşkanı Recep Tayyip Erdoğan teklifin milli birlik ve beraberliği pekiştirmeyi hedeflediğini vurguladı. MHP Genel Başkanı Devlet Bahçeli de sürece tam destek verdiklerini açıkladı. Bu gelişmeler, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktası olabileceğine işaret ediyor.
+
+Öte yandan, CHP'de "Terörsüz Türkiye" süreciyle ilgili farklı görüşler ortaya çıktı. CHP Genel Başkanı Kılıçdaroğlu'nun teklifi değerlendirmesi ve İlhan Kesici'nin oyunu açıklaması, muhalefet cephesindeki tartışmalara ışık tutuyor. Bu süreçte, terörsüz Türkiye yasası için başvuru süreçlerinin de belirlendiği ve kamuoyuna duyurulduğu bilgisi paylaşıldı.
