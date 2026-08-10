@@ -70,3 +70,9 @@ Bahçeli'nin bu çıkışları, "Terörsüz Türkiye" hedefinin sadece güvenlik
 Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli'nin, Abdullah Öcalan'ın "umut hakkına", HDP eski Eş Genel Başkanı Selahattin Demirtaş'ın ise "evine dönmesi" yönündeki açıklamaları, "Terörsüz Türkiye" vizyonuyla hazırlanan çerçeve yasa taslağına dair siyasi tartışmaları alevlendirdi. Bahçeli, bu önerilerin "bin yıllık kardeşliğin" bir tescili olduğunu ifade ederek, taslağın sadece güvenlik odaklı bir düzenleme olmadığını, aynı zamanda siyasi ve toplumsal boyutları da içeren bir vizyon olduğunu vurguladı.
 
 Bu gelişmeler yaşanırken, İYİ Parti Burdur Gençlik Kolları şehitlik önünde bir açıklama yaparak "Terörsüz Türkiye" çağrısında bulundu. Öte yandan, MHP'li yetkililer, "terörsüz Türkiye" hedefinde önemli bir eşik aşılacağını ve bu kutlu yoldan dönüş olmadığını belirterek, hazırlanan yasanın Türkiye'yi yeni bir faza geçireceği mesajını verdi.
+
+## Güncelleme - 2026-08-10
+
+TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine başlandı. Bu gelişme, uzun süredir hazırlıkları devam eden ve siyasi partilerden farklı düzeylerde destek gören yasal düzenlemenin yasalaşma sürecinde önemli bir aşamaya gelindiğini gösteriyor. Teklifin Genel Kurul'da görüşülmesi, terörle mücadele stratejilerinde yeni bir dönemin başlangıcı olarak değerlendiriliyor.
+
+Teklifin görüşüldüğü bu kritik süreçte, siyasi liderlerden de açıklamalar gelmeye devam ediyor. Ana muhalefet partisi lideri Kemal Kılıçdaroğlu, sürece tereddütsüz katkı vereceklerini belirtirken, MHP Genel Başkanı Devlet Bahçeli'nin daha önceki açıklamalarıyla gündeme gelen Abdullah Öcalan ve Selahattin Demirtaş gibi isimlere yönelik önerileri de tartışmaları alevlendirmişti. Bu durum, yasa teklifinin sadece güvenlik boyutunu değil, aynı zamanda siyasi ve toplumsal uzlaşıyı da ilgilendiren yönleri olduğunu ortaya koyuyor.
