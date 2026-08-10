@@ -20,3 +20,7 @@ Bu gelişme, Türkiye'nin gündemindeki terörle mücadele ve siyasi partilerin 
 AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye sürecinde artık yeni bir aşamadayız" açıklamasını yaptı. Bu açıklama, terörle mücadele ve olası yasal düzenlemeler konusunda yeni bir döneme girildiğine işaret ediyor. Ancak, bu sürecin detayları ve somut adımları henüz netlik kazanmış değil.
 
 Bu gelişmeler, İYİ Parti'nin daha önceki "Öcalan'ın onayına sunulacak yasa yok hükmündedir" şeklindeki net duruşuyla birlikte değerlendirildiğinde, siyasi partilerin terörle mücadele ve çözüm süreci gibi hassas konulardaki farklı yaklaşımlarını gözler önüne seriyor.
+
+## Güncelleme - 2026-08-10
+
+İYİ Parti'nin çeşitli kademelerinden gelen açıklamalarda, Türkiye'nin geleceğinin terör örgütü elebaşısı Abdullah Öcalan'dan gelen mesajlarla belirlenemeyeceği vurgulandı. Bu açıklamalar, partinin bu konudaki net duruşunu ve hassasiyetini bir kez daha ortaya koydu. Bu gelişme, terörle mücadele ve siyasi partilerin bu konudaki tutumlarına dair önemli bir siyasi duruşu yansıtmaktadır.
