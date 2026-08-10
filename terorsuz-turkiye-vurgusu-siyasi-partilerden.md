@@ -38,3 +38,9 @@ MHP'li yetkililer, terörle mücadelenin taviz verilmeden sürdürülmesi gereke
 ## Güncelleme - 2026-07-26
 
 MHP Genel Başkan Yardımcısı Ahmet Selim Yurdakul, terörle mücadelenin günlük siyasetin bir konusu olmadığını, bunun yerine devlet aklının bir meselesi olduğunu belirtti. Bu açıklama, partinin terörle mücadeleye yaklaşımının stratejik ve uzun vadeli bir perspektife sahip olduğunu ve bu konunun milli bir öncelik olarak ele alındığını göstermektedir. 'Terörsüz Türkiye' vizyonu, bu çerçevede milli bir zafere giden tarihî bir fırsat olarak değerlendirilmektedir.
+
+## Güncelleme - 2026-08-10
+
+TBMM'de "Terörsüz Türkiye" yasa teklifinin görüşülmeye başlanması, siyasi partilerin bu konudaki tutumlarını yeniden gündeme getirdi. MHP, terörle mücadelenin kararlılıkla sürdürülmesi gerektiğini vurgulayarak "Terörsüz Türkiye" vizyonunu desteklediğini belirtti. CHP lideri Özgür Özel, partilerinin bu yasaya 'evet' oyu vereceğini açıklarken, İYİ Parti'den ise sürece yönelik eleştiriler geldi. DEM Parti'nin de konuya ilişkin görüşleri kamuoyuyla paylaşıldı. Bu gelişmeler, terörle mücadele konusunda farklı siyasi aktörlerin yaklaşımlarını ve olası iş birliği alanlarını gözler önüne seriyor.
+
+Diğer yandan, bazı siyasetçiler ve kurumlar, terörle mücadelenin bir devlet aklı meselesi olduğunu ve bu sürecin hukuki zemine oturtulmasının önemini vurguladı. Bu çerçevede, "Terörsüz Türkiye" hedefinin, ülkenin güvenliği ve huzuru için atılan önemli bir adım olduğu ve bu yöndeki çalışmaların devam edeceği belirtildi.

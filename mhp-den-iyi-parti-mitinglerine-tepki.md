@@ -32,3 +32,9 @@ AK Parti, 'Terörsüz Türkiye' hedefiyle hazırladığı düzenleme kapsamında
 ## Güncelleme - 2026-08-10
 
 TBMM'de 'Terörsüz Türkiye' hedefiyle hazırlanan düzenlemenin görüşülmeye başlanması, siyasi tartışmaları daha da alevlendirdi. Bu süreçte, MHP'li yetkililer İYİ Parti'nin mitinglerdeki söylemlerini eleştirmeye devam ederken, İYİ Parti de "Terörle pazarlık yapılmaz" vurgusuyla kendi duruşunu korudu. Parlamenterler Derneği gibi kurumlar ise "Terörsüz Türkiye"nin ülkeye tarihi fırsatlar sunacağı yönünde destek mesajları verdi. Bu gelişmeler, terörle mücadelenin siyasi söylemlerdeki yerini ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-10 (2)
+
+İYİ Parti ve Demokrat Parti'nin çeşitli il teşkilatlarından, TBMM'ye sunulan ve "terörsüz Türkiye" hedefiyle ilişkilendirilen düzenlemeye yönelik tepkiler gelmeye devam etti. Bu partilerin temsilcileri, "teröristle müzakere edilmez" ve "terör örgütüne imtiyaz kabul edilemez" gibi ifadelerle düzenlemeye karşı çıktıklarını belirttiler.
+
+Bu gelişmeler, MHP'nin daha önceki İYİ Parti mitinglerine yönelik eleştirileriyle birlikte değerlendirildiğinde, terörle mücadele konusunun siyasi partiler arasındaki söylem farklılıklarında merkezi bir rol oynamaya devam ettiğini göstermektedir. Farklı partilerin bu konuya yaklaşımındaki çeşitlilik ve bu konunun siyasi tartışmalardaki ağırlığı bir kez daha ortaya konulmuştur.
