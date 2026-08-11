@@ -24,3 +24,9 @@ Adalet Bakanlığı'nın 81 ilde kurduğu Terör Suçları Soruşturma Bürolar�
 ## Güncelleme - 2026-08-11
 
 Bu gelişme, terörle mücadeledeki yeni yapılanmanın toplumsal ve siyasi boyutlarda da tartışılmaya başlandığını göstermektedir. Bakanlığın uzmanlaşma hedefiyle attığı adım, insan hakları savunucuları ve bazı siyasi partiler tarafından da yakından takip edilmektedir.
+
+## Güncelleme - 2026-08-12
+
+Adalet Bakanlığı'nda 11 Ağustos 2026'da düzenlenen 'Terör Suçları Değerlendirme Toplantısı'nda, terörle mücadelede etkinliğin artırılması amacıyla 81 ildeki Cumhuriyet başsavcılıklarında Terör Suçları Soruşturma Büroları kurulması kararı alındığı belirtildi. Bu yeni yapılanmanın, terör suçlarına ilişkin soruşturmalarda uzmanlaşmayı ve koordinasyonu güçlendirerek daha hızlı ve etkili bir süreç izlenmesini hedeflediği ifade edildi.
+
+Toplantıda, özellikle FETÖ ile mücadeledeki kararlılığın en üst seviyede olduğu vurgulandı. Bu adımın, terörle mücadeledeki kurumsal kapasiteyi artırmaya yönelik kritik bir gelişme olduğu değerlendirmeleri yapıldı.
