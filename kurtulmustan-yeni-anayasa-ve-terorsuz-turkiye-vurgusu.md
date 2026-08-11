@@ -86,3 +86,7 @@ TBMM Başkanı Numan Kurtulmuş, 1 Ağustos 2026'da yaptığı açıklamalarda, 
 ## Güncelleme - 2026-08-11
 
 Bu gelişmelerin ardından, 10 Ağustos 2026 tarihinde TBMM Genel Kurulu'nda yapılan oylamada "Terörsüz Türkiye" çerçeve yasası, 468 kabul, 88 ret ve 6 çekimser oyla kabul edilerek yasalaştı. Bu yasanın kabulü, Türkiye'nin terörle mücadelesinde yeni bir dönemin başlangıcı olarak değerlendirildi. Cumhurbaşkanı Yardımcısı Cevdet Yılmaz, yasaya verilen 468 evet oyunu siyasi mutabakat ve toplumsal sahiplenme adına son derece önemli bulduğunu belirtti.
+
+## Güncelleme - 2026-08-11 (2)
+
+Bu yasanın kabulüyle birlikte, terörle mücadeledeki yeni yol haritasının ve süreçlerin de kamuoyuna duyurulması bekleniyor. Yasada yer alan 10 veya 12 maddelik silahsızlanma süreci ve başvuru takviminin detayları önümüzdeki günlerde netleşecektir.
