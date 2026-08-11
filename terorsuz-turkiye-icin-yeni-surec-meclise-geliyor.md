@@ -174,3 +174,9 @@ Bu süreç, şehit aileleri ve gazilerin hassasiyetlerini temel alırken, terör
 TBMM Adalet Komisyonu'nda 'Terörsüz Türkiye' düzenlemesi görüşülürken tansiyon yükseldi. DEM Parti'nin Abdullah Öcalan'a teşekkür etmesi üzerine İYİ Parti ve diğer partilerden sert tepkiler geldi. MHP'li Feti Yıldız, TBMM'de Öcalan'ın çağrı metnini okuyarak sürece farklı bir boyut kazandırdı. Adalet Bakanı Akın Gürlek, teklifin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını, şehit aileleri ve gazilerin hassasiyetlerinin temel alındığını vurguladı.
 
 AK Parti Sözcüsü Ömer Çelik, sürecin milletin tamamının hukukunu ve devletin bekasını gözettiğini belirtirken, terör örgütünün tamamen feshedilmesi ve silah bırakması şartının altını çizdi. Bu gelişmeler, TBMM'de yaşanacak müzakerelerin ve uzlaşma zeminlerinin önemini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-08-11
+
+Türkiye Büyük Millet Meclisi (TBMM), 'Terörsüz Türkiye' hedefi doğrultusunda hazırlanan Milli Dayanışma ve Toplumsal Bütünleşmenin Güçlendirilmesine Dair Kanun Teklifi'ni kabul etti. 468 milletvekilinin oyuyla kabul edilen kanun, terörle mücadelede yeni bir dönemin başlangıcı olarak nitelendirildi. Adalet Bakanı Akın Gürlek, teklifin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını, şehit aileleri ve gazilerin hassasiyetlerinin temel alındığını vurguladı.
+
+Cumhurbaşkanı Yardımcısı Cevdet Yılmaz ve İletişim Başkanı Fahrettin Altun gibi isimler, bu gelişmeyi 'tarihi bir adım' ve 'güçlü bir mutabakat' olarak değerlendirirken, TBMM Başkanı Numan Kurtulmuş, 'Terörsüz Türkiye yolunda kapının aralandığını' belirtti. Milli Savunma Bakanlığı da bu vizyonun bölgesel istikrara katkı sağlayacağını ifade etti. Kanun teklifinin kabul edilmesi, siyasi partiler arasındaki uzlaşma ve devlet iradesinin bir göstergesi olarak yorumlandı.
