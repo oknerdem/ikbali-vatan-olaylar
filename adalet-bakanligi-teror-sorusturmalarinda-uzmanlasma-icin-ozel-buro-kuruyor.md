@@ -20,3 +20,7 @@ Bu bürolar aracılığıyla, terör suçlarına yönelik soruşturma süreçler
 ## Güncelleme - 2026-07-23
 
 Adalet Bakanlığı'nın 81 ilde kurduğu Terör Suçları Soruşturma Büroları'na yönelik DEM Parti'den tepki geldi. DEM Parti Milletvekili Ömer Faruk Gergerlioğlu, bu yeni yapılanmanın ciddi hak ihlali riskleri barındırdığını belirterek, uygulamanın hukukun üstünlüğü ilkesine aykırı olabileceği endişesini dile getirdi. Gergerlioğlu, bu tür özel büroların terörle mücadele adı altında muhalif kesimleri hedef alabileceği uyarısında bulundu.
+
+## Güncelleme - 2026-08-11
+
+Bu gelişme, terörle mücadeledeki yeni yapılanmanın toplumsal ve siyasi boyutlarda da tartışılmaya başlandığını göstermektedir. Bakanlığın uzmanlaşma hedefiyle attığı adım, insan hakları savunucuları ve bazı siyasi partiler tarafından da yakından takip edilmektedir.
