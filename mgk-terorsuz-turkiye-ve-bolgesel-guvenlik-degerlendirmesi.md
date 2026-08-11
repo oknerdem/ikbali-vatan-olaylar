@@ -26,3 +26,9 @@ Milli Güvenlik Kurulu (MGK) 6 Ağustos 2026'da Beştepe'de toplandı. Toplantı
 Milli Güvenlik Kurulu'nun 6 Ağustos 2026 tarihli toplantısında, "Terörsüz Türkiye" hedefi doğrultusunda atılacak adımlar ve sürecin yeni aşamaları istişare edildi. Toplantıda ayrıca, bölgesel güvenlik dinamikleri çerçevesinde Doğu Akdeniz ve Gazze'deki gelişmelerin de ele alındığı ve Türkiye'nin bu konulardaki tutumunun net olduğu belirtildi.
 
 Bu kapsamda, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel istikrarın sağlanması yönündeki çabaların devam edeceği vurgulandı. Bazı siyasi figürlerin ve kurumların da "terörsüz Türkiye" söylemine yönelik açıklamaları ve bu sürece dair farklı görüşler kamuoyunda yer buldu.
+
+## Güncelleme - 2026-08-11
+
+Türkiye Büyük Millet Meclisi (TBMM), 'Terörsüz Türkiye' düzenlemesini büyük bir çoğunlukla kabul ederek yasalaştırdı. Bu yasa, terörle mücadelede yeni bir dönemin başlangıcı olarak nitelendiriliyor ve ulusal güvenlik stratejilerinde önemli bir adım olarak görülüyor.
+
+Yasama sürecinin ardından siyasi partilerden ve çeşitli kurum temsilcilerinden destek ve eleştiri içeren açıklamalar geldi. Bazı çevreler, yasanın terörün sona erdirilmesi ve toplumsal huzurun sağlanması açısından kritik olduğunu belirtirken, diğerleri ise yasanın içeriği ve uygulanmasına dair farklı görüşler dile getirdi. Bu gelişmeler, Türkiye'nin terörle mücadelesindeki kararlılığını ve bölgesel güvenlik politikalarındaki güncel durumu yansıtmaktadır.
