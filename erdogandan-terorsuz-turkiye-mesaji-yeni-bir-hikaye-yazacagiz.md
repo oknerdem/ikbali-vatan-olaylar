@@ -54,3 +54,7 @@ Bahçeli, 'terörsüz Türkiye' sürecinin başladığını belirterek, bu konud
 ## Güncelleme - 2026-08-10
 
 AK Parti ve MHP'den yapılan açıklamalarda, 'terörsüz Türkiye' hedefinin altı çizildi. AK Parti Şanlıurfa İl Başkanı Günbegi, 'Terörsüz Türkiye idealini gerçeğe dönüştürdük' ifadelerini kullanırken, MHP Genel Başkanı Devlet Bahçeli de 'terörsüz Türkiye sürecinin başladığını' belirterek, bu konudaki yasal düzenlemelere destek çağrısı yaptı. AK Parti Sözcüsü Numan Kurtulmuş ise yeni yasayla 'terörsüz Türkiye'nin kapılarının açılacağını dile getirdi. Bu açıklamalar, terörle mücadelenin siyasi ve toplumsal bir mutabakatla ilerlediğini göstermektedir.
+
+## Güncelleme - 2026-08-12
+
+Türkiye Büyük Millet Meclisi'nde (TBMM) 'terörsüz Türkiye' hedefiyle ilgili yeni yasal düzenlemeler gündeme geldi. Bu düzenlemelerin, terörle mücadelenin tamamlanmasıyla birlikte ülkenin ekonomik ve toplumsal alanlarda yeni bir sayfa açmasını amaçladığı belirtildi. Yapılan açıklamalarda, bu sürecin 86 milyon vatandaş için kazanımlarla dolu bir dönemi başlatacağı ifade edildi. Ayrıca, siyasi partilerden de bu sürece destek ve mutabakat çağrıları yükseldi. Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli ve AK Parti Sözcüsü Numan Kurtulmuş, yasal düzenlemelerin önemine vurgu yaparak, siyaset üstü bir yaklaşımla ele alınması gerektiğini dile getirdiler. Bu gelişmeler, terörle mücadelenin sadece güvenlik boyutuyla değil, aynı zamanda siyasi ve toplumsal bir konsensüsle ilerlediğini göstermektedir.
