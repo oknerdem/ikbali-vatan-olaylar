@@ -142,3 +142,7 @@ Komisyondaki görüşmeler öncesinde yaşanan gerginlikler ve İYİ Parti'nin a
 ## Güncelleme - 2026-08-09
 
 Komisyondaki görüşmeler sırasında tansiyonun yükseldiği ve İYİ Parti'nin araştırma önergesinin reddedildiği belirtildi. Cumhurbaşkanı Erdoğan, teklifin geniş bir mutabakatla Meclis'e sunulduğunu ve Türkiye'yi terör tehdidinden kalıcı olarak kurtarmayı hedeflediklerini ifade etti. Teklifin önümüzdeki günlerde Genel Kurul'da görüşülmesi bekleniyor.
+
+## Güncelleme - 2026-08-13
+
+TBMM Adalet Komisyonu, 'Terörsüz Türkiye' hedefiyle hazırlanan ve adı 'Toplumsal Bütünleşme' olarak belirlenen çerçeve yasa teklifini görüşmek üzere toplandı. 12 maddeden oluşan teklifin, terörle mücadelede yeni bir dönemi başlatması hedefleniyor. MHP Genel Başkanı Devlet Bahçeli'nin de imza atarak destek verdiği teklifin, terör suçlarına yönelik soruşturma bürolarının 81 ile yaygınlaştırılması gibi adımlarla hukuki altyapıyı güçlendirmesi amaçlanıyor.

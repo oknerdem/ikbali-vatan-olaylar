@@ -44,3 +44,7 @@ MHP Genel Başkan Yardımcısı Ahmet Selim Yurdakul, terörle mücadelenin gün
 TBMM'de "Terörsüz Türkiye" yasa teklifinin görüşülmeye başlanması, siyasi partilerin bu konudaki tutumlarını yeniden gündeme getirdi. MHP, terörle mücadelenin kararlılıkla sürdürülmesi gerektiğini vurgulayarak "Terörsüz Türkiye" vizyonunu desteklediğini belirtti. CHP lideri Özgür Özel, partilerinin bu yasaya 'evet' oyu vereceğini açıklarken, İYİ Parti'den ise sürece yönelik eleştiriler geldi. DEM Parti'nin de konuya ilişkin görüşleri kamuoyuyla paylaşıldı. Bu gelişmeler, terörle mücadele konusunda farklı siyasi aktörlerin yaklaşımlarını ve olası iş birliği alanlarını gözler önüne seriyor.
 
 Diğer yandan, bazı siyasetçiler ve kurumlar, terörle mücadelenin bir devlet aklı meselesi olduğunu ve bu sürecin hukuki zemine oturtulmasının önemini vurguladı. Bu çerçevede, "Terörsüz Türkiye" hedefinin, ülkenin güvenliği ve huzuru için atılan önemli bir adım olduğu ve bu yöndeki çalışmaların devam edeceği belirtildi.
+
+## Güncelleme - 2026-08-13
+
+Aile ve Sosyal Hizmetler Bakanı Mahinur Özdemir Göktaş, 'terörsüz Türkiye' vurgusu yaparak, bu hedefin gelecek nesillerin daha huzurlu bir ülkede büyümesi ve güçlü Türkiye'nin teminatı olması için önemli olduğunu belirtti. Göktaş, terörle mücadelede ailelerin rolünün yadsınamaz olduğunu ifade ederken, af beklentilerine yönelik bir açıklama yapmaktan kaçındı. Bu durum, 'terörsüz Türkiye' söyleminin somut politikalarla desteklendiği ve bu konudaki kararlılığın sürdüğü şeklinde yorumlandı.

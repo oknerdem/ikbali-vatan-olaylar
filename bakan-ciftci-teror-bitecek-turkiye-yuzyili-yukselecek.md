@@ -20,3 +20,9 @@ TBMM'de kabul edilen 'Terörsüz Türkiye' yasası, iş dünyası ve çeşitli s
 İçişleri Bakanı Mustafa Çiftçi, yeni nesil suç örgütlerinin terör örgütlerine dönüştüğüne dair tespitlerini paylaşarak, bu yapılanmalarla mücadelenin kararlılıkla sürdürüleceğini belirtti. Bu durumun, terörle mücadele stratejilerinde güncel bir değerlendirme olarak öne çıktığı ifade edildi.
 
 TBMM'de kabul edilen ve terörle mücadelede yeni bir dönemi başlatması beklenen 'Terörsüz Türkiye' yasası, çeşitli kesimlerden destek gördü. Yasanın yürürlüğe girmesiyle birlikte, ülkenin güvenliği ve refahı açısından önemli adımlar atılacağı vurgulandı.
+
+## Güncelleme - 2026-08-13
+
+İçişleri Bakanı Mustafa Çiftçi, terörle mücadelenin kararlılıkla sürdüğünü ve terör örgütlerinin bütün unsurlarıyla tasfiye edileceğini belirtti. Bakan Çiftçi, "Silah bütünüyle devreden çıkacak" ifadeleriyle mücadelenin geldiği noktayı ve hedefleri vurguladı.
+
+Aile ve Sosyal Hizmetler Bakanı Göktaş da terörün olmadığı yerde huzur ve barışın hakim olacağını belirterek, "Terörsüz Türkiye, güçlü Türkiye'nin teminatı olması için var" dedi. Bakan Göktaş, bu hedefin gelecek nesillerin daha huzurlu bir Türkiye'de büyümesi için önemini vurguladı.
