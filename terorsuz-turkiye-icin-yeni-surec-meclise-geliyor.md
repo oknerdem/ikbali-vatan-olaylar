@@ -184,3 +184,9 @@ Cumhurbaşkanı Yardımcısı Cevdet Yılmaz ve İletişim Başkanı Fahrettin A
 ## Güncelleme - 2026-08-12
 
 Türkiye Büyük Millet Meclisi (TBMM), 'Terörsüz Türkiye' hedefi doğrultusunda hazırlanan Milli Dayanışma ve Toplumsal Bütünleşmenin Güçlendirilmesine Dair Kanun Teklifi'ni 468 milletvekilinin oyuyla kabul etti. Adalet Bakanı Akın Gürlek, teklifin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını, şehit aileleri ve gazilerin hassasiyetlerinin temel alındığını vurguladı. Cumhurbaşkanı Yardımcısı Cevdet Yılmaz ve İletişim Başkanı Fahrettin Altun bu gelişmeyi 'tarihi bir adım' olarak nitelendirirken, TBMM Başkanı Numan Kurtulmuş 'Terörsüz Türkiye yolunda kapının aralandığını' belirtti. Milli Savunma Bakanlığı da bu vizyonun bölgesel istikrara katkı sağlayacağını ifade etti.
+
+## Güncelleme - 2026-08-12 (2)
+
+TBMM Başkanı Numan Kurtulmuş ve İçişleri Bakanı Ali Yerlikaya'nın valilerle ve güvenlik bürokrasisiyle bir araya gelerek 'Terörsüz Türkiye' hedefinde tarihi bir eşiğin aşıldığını belirtmesi, sürecin ilerleyişine dair önemli bir gelişmedir. Bu toplantılar, 81 ilin mülki amirlerini ve güvenlik birimlerini kapsayarak, terörle mücadelede yeni bir zemine taşınan hedefin somutlaştırılmasına yönelik adımları içermektedir.
+
+Öte yandan, 'Terörsüz Türkiye' çerçeve yasasında yer alan 12 maddeye ilişkin ayrıntılar da kamuoyu ile paylaşılmaya başlandı. Bu yasal düzenlemelerin, terörle mücadele stratejilerinin belirlenmesi ve uygulanması konusunda önemli bir rol üstlenmesi bekleniyor. Sürecin, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüştüğü ve bölgesel istikrara katkı sağlayacağı vurgulanmaktadır.

@@ -76,3 +76,9 @@ Bu gelişmeler yaşanırken, İYİ Parti Burdur Gençlik Kolları şehitlik ön�
 TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine başlandı. Bu gelişme, uzun süredir hazırlıkları devam eden ve siyasi partilerden farklı düzeylerde destek gören yasal düzenlemenin yasalaşma sürecinde önemli bir aşamaya gelindiğini gösteriyor. Teklifin Genel Kurul'da görüşülmesi, terörle mücadele stratejilerinde yeni bir dönemin başlangıcı olarak değerlendiriliyor.
 
 Teklifin görüşüldüğü bu kritik süreçte, siyasi liderlerden de açıklamalar gelmeye devam ediyor. Ana muhalefet partisi lideri Kemal Kılıçdaroğlu, sürece tereddütsüz katkı vereceklerini belirtirken, MHP Genel Başkanı Devlet Bahçeli'nin daha önceki açıklamalarıyla gündeme gelen Abdullah Öcalan ve Selahattin Demirtaş gibi isimlere yönelik önerileri de tartışmaları alevlendirmişti. Bu durum, yasa teklifinin sadece güvenlik boyutunu değil, aynı zamanda siyasi ve toplumsal uzlaşıyı da ilgilendiren yönleri olduğunu ortaya koyuyor.
+
+## Güncelleme - 2026-08-12
+
+Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli, Türkiye'nin istikametinin belli olduğunu ve "Terörsüz Türkiye" hedefinin büyük yürüyüşün başlangıç şartlarından biri olduğunu belirtti. Bahçeli, kaybedecek vakit olmadığını vurgulayarak hukuki ve idari süreçlerin hayata geçirilmesi gerektiğini ifade etti. Bu açıklamalar, hazırlanan çerçeve yasa taslağının siyasi irade tarafından desteklendiğini ve terörle mücadelede kararlılığın sürdüğünü göstermektedir.
+
+Bahçeli'nin bu açıklamaları, "Terörsüz Türkiye" hedefi ile "Terörsüz Bölge" ülküsünü buluşturan bütüncül bir iradenin hayat bulduğunu ve bu sürecin hızlandırılması gerektiğini ortaya koymaktadır. Yasa teklifinin TBMM Genel Kurulu'nda görüşülmeye başlanmasıyla birlikte, bu hedef doğrultusunda atılan adımların somutlaştığı görülmektedir.
