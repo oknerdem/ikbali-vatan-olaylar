@@ -28,3 +28,9 @@ Bu gelişmeler, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine
 Türkiye Dışişleri Bakanı Hakan Fidan, 6 Ağustos 2026 tarihinde Suriye Dışişleri Bakanı Faysal Mikdad ile Ankara'da bir araya geldi. Görüşmede, iki ülke arasındaki ilişkilerin normalleşmesi, bölgesel güvenlik ve işbirliği konuları ele alındı. Fidan, Türkiye ve Suriye'nin istikrarının birbirinden ayrı düşünülemeyeceğini vurgulayarak, "Suriye ile aramızda ortak bir gelecek var" ifadelerini kullandı.
 
 Bu görüşme, Türkiye'nin Suriye ile olan diplomatik temaslarını güçlendirme ve bölgesel istikrarı sağlama çabalarının bir parçası olarak öne çıkıyor. MİT Başkanı İbrahim Kalın'ın da Suriye Dışişleri Bakanı ile görüşmesi, iki ülke arasındaki stratejik işbirliğinin derinleştiğine işaret ediyor.
+
+## Güncelleme - 2026-08-12
+
+Türkiye ve Suriye arasındaki ekonomik ve stratejik ilişkilerde yeni bir gelişme olarak, Nusaybin-Kamışlı sınır kapısının yeniden faaliyete geçirilmesi gündeme geldi. Bu adım, iki ülke arasındaki ticaret hacmini artırma ve bölgesel ekonomik entegrasyonu güçlendirme çabalarının bir parçası olarak değerlendiriliyor.
+
+Bu gelişme, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma yolunda atılan somut adımlardan biri olarak görülüyor. Sınır kapılarının modernizasyonu ve lojistik altyapının iyileştirilmesi gibi konuların da ele alınması bekleniyor.
