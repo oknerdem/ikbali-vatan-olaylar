@@ -54,3 +54,9 @@ Cumhurbaşkanı Recep Tayyip Erdoğan, teklifin milli birlik ve beraberliği per
 TBMM Başkanlığı'na sunulan 12 maddelik "Terörsüz Türkiye" kanun teklifi, yasalaşma sürecine girdi. AK Parti Grup Başkanı Abdullah Güler, teklifin yasalaşma sürecine girdiğini belirtirken, Cumhurbaşkanı Recep Tayyip Erdoğan teklifin milli birlik ve beraberliği pekiştirmeyi hedeflediğini vurguladı. MHP Genel Başkanı Devlet Bahçeli de sürece tam destek verdiklerini açıkladı. Bu gelişmeler, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktası olabileceğine işaret ediyor.
 
 Öte yandan, CHP'de "Terörsüz Türkiye" süreciyle ilgili farklı görüşler ortaya çıktı. CHP Genel Başkanı Kılıçdaroğlu'nun teklifi değerlendirmesi ve İlhan Kesici'nin oyunu açıklaması, muhalefet cephesindeki tartışmalara ışık tutuyor. Bu süreçte, terörsüz Türkiye yasası için başvuru süreçlerinin de belirlendiği ve kamuoyuna duyurulduğu bilgisi paylaşıldı.
+
+## Güncelleme - 2026-08-12
+
+Terörle mücadelede yaralanan ancak malul sayılmayan vatandaşlara yönelik yeni haklar duyuruldu. Bakan Mahinur Özdemir Göktaş, bu haklardan faydalanmak isteyenlerin başvurularının 1 Eylül'de başlayacağını açıkladı. Bu gelişme, 'Terörsüz Türkiye' vizyonu çerçevesinde atılan somut adımlardan biri olarak öne çıkıyor.
+
+Öte yandan, iş dünyası temsilcileri de 'Terörsüz Türkiye' yasasıyla ilgili olumlu görüşlerini dile getirerek, bu düzenlemenin ülkenin geleceği ve toplumsal huzuru açısından önemini vurguladı. Diyarbakır'da ise Kürtçe pankartla Cumhurbaşkanı Erdoğan'a 'Terörsüz Türkiye' teşekkürü edilmesi, sürecin toplumsal bir karşılık bulduğuna işaret etti.
