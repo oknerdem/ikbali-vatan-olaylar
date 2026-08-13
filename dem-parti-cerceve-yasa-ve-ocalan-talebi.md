@@ -106,3 +106,7 @@ TBMM'ye sunulan 'Terörsüz Türkiye' çerçeve yasa teklifi, siyasi partiler ar
 Irak Kürt Bölgesel Yönetimi (IKBY) Başkanı Neçirvan Barzani, Türkiye Büyük Millet Meclisi'nde (TBMM) kabul edilen 'çerçeve yasa' düzenlemesini övgüyle karşılayarak, bu adımı 'cesur' olarak nitelendirdi. Barzani'nin bu değerlendirmesi, Türkiye'nin iç siyasetindeki önemli bir gelişmeye bölgesel bir aktörden gelen olumlu bir tepki olarak öne çıkıyor.
 
 Bu gelişme, daha önce DEM Parti'nin Abdullah Öcalan'ın durumu ve 'çerçeve yasa' talepleriyle başlayan ve PKK'nın da Öcalan'ın fiziki özgürlüğünü içermeyen bir yasanın süreci sabote edeceği yönündeki uyarılarıyla devam eden sürecin uluslararası boyut kazandığına işaret ediyor. Yasa teklifinin içeriği ve uygulanabilirliği konusundaki tartışmalar sürerken, Barzani'nin açıklaması sürece dair farklı yorumlara neden olabilir.
+
+## Güncelleme - 2026-08-13 (2)
+
+Irak Kürt Bölgesel Yönetimi (IKBY) Başkanı Neçirvan Barzani, TBMM'de kabul edilen 'çerçeve yasa' düzenlemesini 'cesur' bir adım olarak nitelendirerek övgüde bulundu. Bu değerlendirme, Türkiye'nin iç siyasetindeki önemli bir gelişmeye bölgesel bir aktörden gelen olumlu bir tepki olarak öne çıkıyor.
