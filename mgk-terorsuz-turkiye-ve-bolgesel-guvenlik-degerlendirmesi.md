@@ -32,3 +32,9 @@ Bu kapsamda, terörle mücadelenin kararlılıkla sürdürüleceği ve bölgesel
 Türkiye Büyük Millet Meclisi (TBMM), 'Terörsüz Türkiye' düzenlemesini büyük bir çoğunlukla kabul ederek yasalaştırdı. Bu yasa, terörle mücadelede yeni bir dönemin başlangıcı olarak nitelendiriliyor ve ulusal güvenlik stratejilerinde önemli bir adım olarak görülüyor.
 
 Yasama sürecinin ardından siyasi partilerden ve çeşitli kurum temsilcilerinden destek ve eleştiri içeren açıklamalar geldi. Bazı çevreler, yasanın terörün sona erdirilmesi ve toplumsal huzurun sağlanması açısından kritik olduğunu belirtirken, diğerleri ise yasanın içeriği ve uygulanmasına dair farklı görüşler dile getirdi. Bu gelişmeler, Türkiye'nin terörle mücadelesindeki kararlılığını ve bölgesel güvenlik politikalarındaki güncel durumu yansıtmaktadır.
+
+## Güncelleme - 2026-08-13
+
+İçişleri Bakanlığı koordinasyonunda, çeşitli illerde valilerin katılımıyla 'Terörsüz Türkiye' hedefi doğrultusunda güvenlik toplantıları düzenlenmeye devam ediyor. Bu toplantılarda, terörle mücadeledeki güncel durum değerlendirilmekte ve yerel düzeyde alınacak önlemler görüşülmektedir. Toplantılara video konferans yöntemiyle katılan valiler, kendi bölgelerindeki güvenlik stratejilerini ve terörle mücadeledeki başarılarını paylaşıyorlar.
+
+Bu toplantılar, 'Terörsüz Türkiye' vizyonunun ülke genelinde yaygınlaştırılması ve somut adımlarla hayata geçirilmesi amacını taşımaktadır. Toplantılarda, bölgesel güvenlik konuları ve Türkiye'nin ulusal güvenliğini ilgilendiren gelişmeler de ele alınarak, koordineli bir mücadele yürütülmesinin önemi vurgulanmaktadır.
