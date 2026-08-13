@@ -16,3 +16,7 @@ Toplantının içeriği ve olası sonuçları hakkında henüz resmi bir açıkl
 Cumhurbaşkanı Recep Tayyip Erdoğan'ın, DEM Parti'nin İmralı heyetini kabul edeceği bilgisi, 'süreç yasası' olarak bilinen düzenlemenin ardından geldi. Bu görüşme, çözüm süreci ve İmralı dosyası açısından kritik bir gelişme olarak değerlendiriliyor.
 
 Toplantının gündemi ve olası sonuçları hakkında henüz resmi bir açıklama yapılmamış olsa da, kamuoyu ve siyasi çevreler tarafından yakından takip ediliyor. Bu buluşmanın, ilerleyen süreçte atılacak adımlar açısından önemli ipuçları vermesi bekleniyor.
+
+## Güncelleme - 2026-08-13 (2)
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, DEM Parti'nin İmralı heyetini kabul etti. Görüşmede, çözüm sürecinin kararlılıkla sürdürülmesi gerektiği vurgulandı ve sürecin hızlı ilerlemesi yönünde bir irade ortaya konulduğu belirtildi. Bu görüşme, 'süreç yasası' olarak bilinen düzenlemenin ardından gerçekleşmesiyle dikkat çekti. Toplantının içeriği ve ilerleyen adımlara dair detaylar kamuoyu tarafından yakından takip ediliyor.

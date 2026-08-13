@@ -2,7 +2,7 @@
 title: "Erdoğan'dan 'Terörsüz Türkiye' Mesajı: Yeni Bir Hikâye Yazacağız"
 date: "2026-07-11"
 category: "Siyasi"
-img: ""
+img: "https://img.gercekgundem.com/rcman/Cw1280h720q95gc/storage/files/images/2026/08/13/cumhurbaskani-erdogandan-terorsuz-turkiye-mesaji-kardeslik-turkuleri-soyleyecegiz-u6n6.png"
 ---
 
 Cumhurbaşkanı Recep Tayyip Erdoğan, Türkiye'nin geleceğine dair önemli mesajlar verdi. Erdoğan, "Terörsüz Türkiye" vurgusu yaparak, ülkenin yeni bir hikâye yazacağını ifade etti.
@@ -58,3 +58,9 @@ AK Parti ve MHP'den yapılan açıklamalarda, 'terörsüz Türkiye' hedefinin al
 ## Güncelleme - 2026-08-12
 
 Türkiye Büyük Millet Meclisi'nde (TBMM) 'terörsüz Türkiye' hedefiyle ilgili yeni yasal düzenlemeler gündeme geldi. Bu düzenlemelerin, terörle mücadelenin tamamlanmasıyla birlikte ülkenin ekonomik ve toplumsal alanlarda yeni bir sayfa açmasını amaçladığı belirtildi. Yapılan açıklamalarda, bu sürecin 86 milyon vatandaş için kazanımlarla dolu bir dönemi başlatacağı ifade edildi. Ayrıca, siyasi partilerden de bu sürece destek ve mutabakat çağrıları yükseldi. Milliyetçi Hareket Partisi (MHP) Genel Başkanı Devlet Bahçeli ve AK Parti Sözcüsü Numan Kurtulmuş, yasal düzenlemelerin önemine vurgu yaparak, siyaset üstü bir yaklaşımla ele alınması gerektiğini dile getirdiler. Bu gelişmeler, terörle mücadelenin sadece güvenlik boyutuyla değil, aynı zamanda siyasi ve toplumsal bir konsensüsle ilerlediğini göstermektedir.
+
+## Güncelleme - 2026-08-13
+
+Cumhurbaşkanı Recep Tayyip Erdoğan, 13 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktasına gelindiğini ve bu sürecin kalıcı olarak çözüleceğini belirtti. Meclis'te atılan adımların tarihi nitelikte olduğunu vurgulayan Erdoğan, "Terörsüz Türkiye ve terörsüz bölge vizyonumuzun menziline ulaştırılması hayati önemdedir" dedi. Bu ifadeler, terör meselesinin kökten çözülerek ülkenin daha güvenli ve refah dolu bir geleceğe adım atacağı beklentisini güçlendirdi.
+
+Erdoğan'ın açıklamaları, terörün gölgesinin çekildiği bir Türkiye'de yeni kardeşlik türkülerinin söyleneceği bir döneme işaret ediyor. Bu vizyon, ülkenin hem iç hem de dış politikada daha güçlü bir konuma gelmesini ve toplumsal huzurun pekişmesini hedefliyor. Terörle mücadelenin başarıyla tamamlanmasıyla birlikte, Türkiye'nin ekonomik ve sosyal alanlarda yeni bir hikâye yazacağı öngörülüyor.
