@@ -24,3 +24,9 @@ Barış Boyun'a ait olduğu iddia edilen dinleme kayıtları, örgütün içinde
 ## Güncelleme - 2026-07-17
 
 PKK yöneticisi Duran Kalkan, yaptığı açıklamalarda Abdullah Öcalan ile görüştüklerini ve sürecin devam ettiğini, 'batmayacağını' belirtti. Kalkan, örgütün siyasi zemine geçiş yaparak demokratik siyaset içinde yer alması gerektiğini ifade etti. Bu açıklamalar, örgütün içindeki olası bölünmeler ve geleceğine dair tartışmalar sürerken, Duran Kalkan'ın 'süreç' vurgusu dikkat çekti.
+
+## Güncelleme - 2026-08-13
+
+PKK'nın, 1 Ekim'e kadar Türkiye'deki kamplarını boşaltma ve güçlerini sınır dışına çekme kararı aldığına dair haberler, örgütün içindeki olası bir kırılmayı ve fiili bir dağılma sürecini işaret ediyor. Bu gelişme, örgütün geçmişte aldığı 'silah bırakma ve kendini feshetme' çağrıları sonrasında gelen bir adım olarak değerlendiriliyor. MİT ve TSK'nın bu süreçteki rolüne dair detayların da önümüzdeki günlerde netleşmesi bekleniyor.
+
+Bu karar, örgüt tabanında ciddi bir moral bozukluğuna yol açarken, uzmanlar PKK'nın marjinalleşerek farklı yapılar altında faaliyet gösterme ihtimalinin arttığını belirtiyor. Bu durum, Türkiye'nin terörle mücadele stratejisi ve bölgedeki güvenlik dengeleri açısından önemli sonuçlar doğurabilir.

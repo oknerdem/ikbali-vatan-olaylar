@@ -38,3 +38,9 @@ Yasama sürecinin ardından siyasi partilerden ve çeşitli kurum temsilcilerind
 İçişleri Bakanlığı koordinasyonunda, çeşitli illerde valilerin katılımıyla 'Terörsüz Türkiye' hedefi doğrultusunda güvenlik toplantıları düzenlenmeye devam ediyor. Bu toplantılarda, terörle mücadeledeki güncel durum değerlendirilmekte ve yerel düzeyde alınacak önlemler görüşülmektedir. Toplantılara video konferans yöntemiyle katılan valiler, kendi bölgelerindeki güvenlik stratejilerini ve terörle mücadeledeki başarılarını paylaşıyorlar.
 
 Bu toplantılar, 'Terörsüz Türkiye' vizyonunun ülke genelinde yaygınlaştırılması ve somut adımlarla hayata geçirilmesi amacını taşımaktadır. Toplantılarda, bölgesel güvenlik konuları ve Türkiye'nin ulusal güvenliğini ilgilendiren gelişmeler de ele alınarak, koordineli bir mücadele yürütülmesinin önemi vurgulanmaktadır.
+
+## Güncelleme - 2026-08-13 (2)
+
+TBMM'de 'Terörsüz Türkiye' düzenlemesi kabul edilerek yasalaştı. Bu gelişme, terörle mücadelede yeni bir dönemin başlangıcı olarak değerlendiriliyor ve ulusal güvenlik stratejilerinde önemli bir adım olarak görülüyor. Yasanın ardından siyasi partilerden ve çeşitli kurumlardan destek ve eleştiri içeren açıklamalar yapıldı.
+
+İçişleri Bakanlığı koordinasyonunda, valilerin katılımıyla 'Terörsüz Türkiye' hedefi doğrultusunda güvenlik toplantıları düzenlenmeye devam ediyor. Bu toplantılarda terörle mücadeledeki güncel durum değerlendirilmekte ve yerel önlemler görüşülmektedir. Toplantılar, 'Terörsüz Türkiye' vizyonunun ülke genelinde yaygınlaştırılması ve somut adımlarla hayata geçirilmesi amacını taşımaktadır.
