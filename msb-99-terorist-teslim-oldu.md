@@ -2,7 +2,7 @@
 title: MSB: Yılbaşından Bugüne 99 Terörist Teslim Oldu
 date: "2026-06-04"
 category: "Terör"
-img: ""
+img: "https://web-cdnprod.aa.com.tr/uploads/Contents/2026/08/13/thumbs_b_c_357cb61393ac6a936fa7077b0d0d4787.jpg"
 ---
 
 Milli Savunma Bakanlığı (MSB), 1 Ocak'tan bu yana terörle mücadele kapsamında teslim olan terörist sayısının 99'a ulaştığını duyurdu.
@@ -50,3 +50,9 @@ Bu son teslim olan teröristlerle birlikte, yılbaşından bu yana teslim olan t
 ## Güncelleme - 2026-08-06
 
 Milli Savunma Bakanlığı (MSB) tarafından 6 Ağustos 2026'da yapılan bilgilendirmeye göre, son operasyonlarda 1 terörist güvenlik güçlerine teslim olmuştur. Bu gelişme, terörle mücadele kapsamında yürütülen ikna çalışmalarının ve operasyonel faaliyetlerin devam ettiğini göstermektedir. Aynı gün hudut birlikleri tarafından 490 kişinin yakalandığı da bildirilmiştir. Bu rakamlar, sınır güvenliğinin sağlanması ve terörün önlenmesi yönündeki operasyonel faaliyetlerin etkinliğini bir kez daha ortaya koymaktadır.
+
+## Güncelleme - 2026-08-14
+
+Milli Savunma Bakanlığı (MSB) tarafından 13 Ağustos 2026'da yapılan açıklamalara göre, terörle mücadelede yaralanıp malul sayılmayan personel için başvuru süreci 1 Eylül 2026 tarihinde başlayacaktır. Bu gelişme, güvenlik güçlerinin sağlığı ve hakları açısından önemli bir adım olarak değerlendirilmektedir.
+
+Bu duyuru, mevcut terörle mücadeledeki güncel sayıları doğrudan etkilemese de, operasyonlarda yaralanan personelin durumuna ilişkin önemli bir bilgiyi arşivimize eklemektedir.
