@@ -100,3 +100,9 @@ AK Parti Grup Başkanı Abdullah Güler, TBMM'ye sunulan çerçeve yasa teklifiy
 TBMM'ye sunulan 'Terörsüz Türkiye' çerçeve yasa teklifi, siyasi partiler arasında farklı görüşlere neden oldu. AK Parti Grup Başkanı Abdullah Güler, teklifle ilgili olarak "Belli idari düzenlemelerle İmralı'ya ziyaretler yapılabilir" açıklamasını yaparken, MHP ve bazı diğer siyasi figürler, terör örgütü mensuplarının affedilmesine veya statü verilmesine kesinlikle karşı olduklarını belirttiler. Bu durum, teklifin içeriği ve uygulanabilirliği konusundaki tartışmaları derinleştirdi.
 
 Öte yandan, PKK'nın yasa teklifine ilişkin tutumunu henüz belirlemediği ve "Esas yaklaşım ve tutumumuzu yasayı gördükten sonra ortaya koyacağız" açıklaması, teklifin detaylarının örgüt tarafından yakından takip edildiğini ve nihai pozisyonlarının bu içeriğe göre şekilleneceğini gösteriyor. Bu belirsizlik, çözüm süreci ve siyasi gelişmeler açısından kritik önem taşımaya devam ediyor.
+
+## Güncelleme - 2026-08-13
+
+Irak Kürt Bölgesel Yönetimi (IKBY) Başkanı Neçirvan Barzani, Türkiye Büyük Millet Meclisi'nde (TBMM) kabul edilen 'çerçeve yasa' düzenlemesini övgüyle karşılayarak, bu adımı 'cesur' olarak nitelendirdi. Barzani'nin bu değerlendirmesi, Türkiye'nin iç siyasetindeki önemli bir gelişmeye bölgesel bir aktörden gelen olumlu bir tepki olarak öne çıkıyor.
+
+Bu gelişme, daha önce DEM Parti'nin Abdullah Öcalan'ın durumu ve 'çerçeve yasa' talepleriyle başlayan ve PKK'nın da Öcalan'ın fiziki özgürlüğünü içermeyen bir yasanın süreci sabote edeceği yönündeki uyarılarıyla devam eden sürecin uluslararası boyut kazandığına işaret ediyor. Yasa teklifinin içeriği ve uygulanabilirliği konusundaki tartışmalar sürerken, Barzani'nin açıklaması sürece dair farklı yorumlara neden olabilir.
