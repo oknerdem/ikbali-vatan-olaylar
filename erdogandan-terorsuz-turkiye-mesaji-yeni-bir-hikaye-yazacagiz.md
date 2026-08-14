@@ -64,3 +64,7 @@ Türkiye Büyük Millet Meclisi'nde (TBMM) 'terörsüz Türkiye' hedefiyle ilgil
 Cumhurbaşkanı Recep Tayyip Erdoğan, 13 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir dönüm noktasına gelindiğini ve bu sürecin kalıcı olarak çözüleceğini belirtti. Meclis'te atılan adımların tarihi nitelikte olduğunu vurgulayan Erdoğan, "Terörsüz Türkiye ve terörsüz bölge vizyonumuzun menziline ulaştırılması hayati önemdedir" dedi. Bu ifadeler, terör meselesinin kökten çözülerek ülkenin daha güvenli ve refah dolu bir geleceğe adım atacağı beklentisini güçlendirdi.
 
 Erdoğan'ın açıklamaları, terörün gölgesinin çekildiği bir Türkiye'de yeni kardeşlik türkülerinin söyleneceği bir döneme işaret ediyor. Bu vizyon, ülkenin hem iç hem de dış politikada daha güçlü bir konuma gelmesini ve toplumsal huzurun pekişmesini hedefliyor. Terörle mücadelenin başarıyla tamamlanmasıyla birlikte, Türkiye'nin ekonomik ve sosyal alanlarda yeni bir hikâye yazacağı öngörülüyor.
+
+## Güncelleme - 2026-08-14
+
+İçişleri Bakanı Mustafa Çiftçi, 81 ilin valisine gönderdiği talimatla "terörsüz Türkiye" hedefi için 4 aşamalı bir planın hayata geçirildiğini duyurdu. Bu planın, Türkiye'nin terör belasından kurtularak daha ileri bir seviyeye ulaşmasını amaçladığı belirtildi. Mehmet Şahin ise yaptığı açıklamada, "terörsüz Türkiye" sürecinin artık hukuki bir zemine oturduğunu ifade etti. Bu gelişmeler, terörle mücadelede gelinen noktanın hukuki ve idari boyutlarıyla pekiştirildiğini göstermektedir.
