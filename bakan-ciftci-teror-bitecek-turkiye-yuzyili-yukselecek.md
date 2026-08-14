@@ -26,3 +26,9 @@ TBMM'de kabul edilen ve terörle mücadelede yeni bir dönemi başlatması bekle
 İçişleri Bakanı Mustafa Çiftçi, terörle mücadelenin kararlılıkla sürdüğünü ve terör örgütlerinin bütün unsurlarıyla tasfiye edileceğini belirtti. Bakan Çiftçi, "Silah bütünüyle devreden çıkacak" ifadeleriyle mücadelenin geldiği noktayı ve hedefleri vurguladı.
 
 Aile ve Sosyal Hizmetler Bakanı Göktaş da terörün olmadığı yerde huzur ve barışın hakim olacağını belirterek, "Terörsüz Türkiye, güçlü Türkiye'nin teminatı olması için var" dedi. Bakan Göktaş, bu hedefin gelecek nesillerin daha huzurlu bir Türkiye'de büyümesi için önemini vurguladı.
+
+## Güncelleme - 2026-08-14
+
+İçişleri Bakanı Mustafa Çiftçi, "Terörsüz Türkiye"nin yol haritasını açıklayarak, sürecin "tasfiye, teyit, denetim ve normalleşme" adımlarını içereceğini belirtti. Bakan Çiftçi, bu sürecin bir af olmadığını ve olası provokasyon risklerine karşı gerekli tedbirlerin alındığını vurguladı.
+
+Cumhurbaşkanı Erdoğan da "Terörsüz Türkiye ve terörsüz bölge hayati önemde" diyerek, devlet ve milletin el ele vererek bu vizyonu kalıcı hale getireceğini ifade etti. Bu açıklamalar, terörle mücadelenin kararlılıkla sürdürüleceği ve Türkiye'nin güvenli bir geleceğe ulaşacağı mesajını pekiştirdi.

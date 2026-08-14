@@ -12,3 +12,7 @@ Detaylar önümüzdeki günlerde netleşecek olsa da, bu açıklama Türkiye'nin
 ## Güncelleme - 2026-08-14
 
 Ticaret Bakanı Ömer Bolat, Türkiye ile Suriye arasındaki ticaret hacminin %45 artarak 3,75 milyar dolara ulaştığını açıkladı. Bakan Bolat, bu rakamın yeterli olmadığını belirterek, hedefi 10 milyar dolar olarak açıkladı. Açıklamalar, Hatay'da düzenlenen Türkiye-Suriye iş birliği etkinlikleri kapsamında yapıldı ve iki ülke arasındaki ekonomik ilişkilerin geliştirilmesine yönelik yeni adımların atılacağına işaret etti. Bu kapsamda, Türkiye-Suriye ticaretine yeni bir kapı açan bir TIR parkının da hizmete girdiği belirtildi.
+
+## Güncelleme - 2026-08-14 (2)
+
+Ticaret Bakanı Ömer Bolat, Türkiye ile Suriye arasındaki ticaret hacminin %45 artarak 3,75 milyar dolara ulaştığını duyurdu. Bakan Bolat, bu rakamın yeterli olmadığını belirterek, hedeflerinin 10 milyar dolar olduğunu ifade etti. Bu açıklamalar, Hatay'da düzenlenen Türkiye-Suriye iş birliği etkinlikleri sırasında yapıldı ve iki ülke arasındaki ekonomik ilişkilerin geliştirilmesine yönelik yeni adımların atılacağına işaret etti. Etkinlikler kapsamında, Türkiye-Suriye ticaretine yeni bir kapı açan bir TIR parkının da hizmete girdiği bildirildi.

@@ -48,3 +48,9 @@ TBMM'de 'Terörsüz Türkiye' hedefiyle sunulan kanun teklifinin görüşmelerin
 ## Güncelleme - 2026-08-12
 
 AK Parti Milletvekili Şebnem Bursalı'nın, Abdullah Öcalan'a yönelik olumlu ifadeler kullanması ve "Allah razı olsun" demesi, siyasi gündemde geniş yankı buldu. Bu açıklama, terörle mücadele ve çözüm süreci gibi hassas konularda farklı siyasi partilerin yaklaşımlarını ve bu konudaki söylem farklılıklarını bir kez daha gözler önüne serdi. Öte yandan, BBP Genel Başkanı Mustafa Destici de DEM Parti'nin bazı açıklamalarına tepki göstererek, terörle müzakere edilemeyeceğini vurguladı. Bu gelişmeler, Türkiye'nin terörle mücadelesindeki siyasi ve toplumsal hassasiyetleri ve bu konunun siyasi tartışmalardaki yerini belirginleştirdi.
+
+## Güncelleme - 2026-08-14
+
+MHP, "Terörsüz Türkiye" hedefiyle hazırlanan yeni bir şarkıyı sosyal medya hesaplarından paylaştı. Sözlerini Canfer Balçık'ın yazdığı ve "Terörsüz Türkiye Dünyaya Sestir" adını taşıyan bu eser, partinin terörle mücadele konusundaki duruşunu ve bu konudaki hassasiyetini vurgulamayı amaçlıyor.
+
+Bu gelişme, daha önce İYİ Parti'nin mitinglerine yönelik eleştirileri ve "terörsüz Türkiye" söyleminin siyasi tartışmalardaki yerini göz önünde bulundurulduğunda, MHP'nin bu konudaki aktif tutumunu ve söylem çeşitliliğini göstermektedir. Şarkının paylaşılması, partinin bu konudaki mesajını daha geniş kitlelere ulaştırma çabası olarak yorumlanabilir.
