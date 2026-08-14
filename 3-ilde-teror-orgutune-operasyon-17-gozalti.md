@@ -70,3 +70,7 @@ Bu gelişme, daha önce Muğla merkezli olarak üç ilde terör örgütüne yön
 13 Ağustos 2026 tarihinde, Ankara merkezli olarak 17 ilde 'Alihan Kuriş Suç Örgütü'ne yönelik geniş çaplı bir operasyon düzenlendi. Operasyonda, örgüt lideri Alihan Kuriş'in de aralarında bulunduğu 49 şüpheli hakkında gözaltı kararı çıkarıldı. Bazı kaynaklarda ise gözaltı sayısının 30 olduğu belirtildi. Operasyonlarda 100 milyar TL'yi aşan bir para trafiğine de el konulduğu bildirildi.
 
 Bu operasyonlar, organize suç faaliyetlerini engellemeye ve terör örgütlerinin finans kaynaklarını kurutmaya yönelik güvenlik güçlerinin sürdürdüğü mücadelenin bir parçası olarak değerlendiriliyor. Gözaltına alınan şüphelilerin emniyetteki işlemleri devam ederken, soruşturmanın genişletileceği öğrenildi.
+
+## Güncelleme - 2026-08-14
+
+İstanbul ve Ankara'da eş zamanlı olarak düzenlenen operasyonlarda, 4 ayrı kurşunlama ve yaralama olayına karıştığı iddia edilen 8 şüpheli yakalandı. Operasyonların detayları ve şüphelilerin eylemleriyle bağlantıları hakkında soruşturma devam ediyor.
