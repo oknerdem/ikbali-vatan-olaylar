@@ -68,3 +68,9 @@ Erdoğan'ın açıklamaları, terörün gölgesinin çekildiği bir Türkiye'de 
 ## Güncelleme - 2026-08-14
 
 İçişleri Bakanı Mustafa Çiftçi, 81 ilin valisine gönderdiği talimatla "terörsüz Türkiye" hedefi için 4 aşamalı bir planın hayata geçirildiğini duyurdu. Bu planın, Türkiye'nin terör belasından kurtularak daha ileri bir seviyeye ulaşmasını amaçladığı belirtildi. Mehmet Şahin ise yaptığı açıklamada, "terörsüz Türkiye" sürecinin artık hukuki bir zemine oturduğunu ifade etti. Bu gelişmeler, terörle mücadelede gelinen noktanın hukuki ve idari boyutlarıyla pekiştirildiğini göstermektedir.
+
+## Güncelleme - 2026-08-15
+
+Cumhurbaşkanı Erdoğan, AK Parti'nin 25. yıl dönümü kutlamalarında yaptığı konuşmada, Türkiye'nin terör sorununu çözdüğünü ve bu süreçle birlikte emperyalist planları da altüst ettiğini belirtti. Erdoğan, "Biz, sadece terör sorununu bitirmiyoruz. İnşallah terörle birlikte Türkiye’nin içini karıştıran, o emperyalist planı da alt üst ediyoruz." ifadelerini kullandı. Bu açıklamalar, terörle mücadelenin sadece bir güvenlik meselesi olmadığını, aynı zamanda bölgesel ve küresel güç dengeleri açısından da stratejik bir öneme sahip olduğunu vurgulamaktadır.
+
+İçişleri Bakanı Mustafa Çiftçi'nin 81 il valisine gönderdiği talimatla "terörsüz Türkiye" hedefi için 4 aşamalı bir planın hayata geçirildiği duyuruldu. Bu planın, Türkiye'yi terör belasından kurtararak daha ileri bir seviyeye taşıması amaçlanıyor. Mehmet Şahin de yaptığı açıklamada, "terörsüz Türkiye" sürecinin artık hukuki bir zemine oturduğunu ifade ederek, gelinen noktanın hukuki ve idari boyutlarıyla pekiştirildiğini belirtti.
