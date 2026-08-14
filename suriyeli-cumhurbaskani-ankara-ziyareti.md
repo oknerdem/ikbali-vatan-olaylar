@@ -46,3 +46,9 @@ Suriye Cumhurbaşkanı Ahmed Şara, Ankara ziyaretinin ardından yaptığı aç�
 Suriye Cumhurbaşkanı Ahmed Şara, 3 Ağustos 2026'da Şam'da Mesud Barzani'yi Kürdistan bayrağı önünde karşıladı. Bu karşılama, bölgesel siyaset ve Türkiye'nin dış politikası açısından önemli bir gelişme olarak değerlendirildi.
 
 Aynı günlerde, Şara'nın El Cezire'ye verdiği röportajda Golan Tepeleri'ne dair aidiyet duygusunun çocukluğundan itibaren şekillendiğini belirtmesi, İsrail ile olan ilişkiler bağlamında dikkat çekti.
+
+## Güncelleme - 2026-08-14
+
+Suriye Savunma Bakan Yardımcısı ve SDG'li Sipan Hemo, Türkiye'nin terör listesinden çıkarıldı. Bu gelişme, Türkiye'nin Suriye politikası ve bölgesel ilişkiler açısından önemli bir dönüm noktası olarak değerlendiriliyor.
+
+Bu durum, Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyaretinin ardından gelen ve Türkiye'nin terörle mücadele ve bölgesel aktörlerle ilişkilerindeki potansiyel bir yumuşamaya işaret eden bir gelişme olarak kayıtlara geçti.

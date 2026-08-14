@@ -34,3 +34,9 @@ CHP'de disiplin süreçleri devam ederken, Kayseri'de bir meclis üyesinin kesin
 ## Güncelleme - 2026-08-07
 
 CHP'de disiplin süreçleri devam ederken, Menderes Belediye Başkanı İlkay Çiçek hakkında kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içindeki gerilimlerin ve ihraç taleplerinin sürdüğünü göstermektedir.
+
+## Güncelleme - 2026-08-14
+
+CHP'de disiplin süreçleri devam ederken, Edirne Milletvekili Ahmet Baran Yazgan'ın kesin ihraç talebiyle disipline sevk edildiği yönünde haberler yer almıştır. Bu gelişme, parti içinde devam eden ihraç taleplerini ve disiplin mekanizmalarının işleyişini bir kez daha gündeme getirmiştir.
+
+Öte yandan, daha önceki tarihlerde gündeme gelen Bolu Belediye Başkanı Tanju Özcan ve eski milletvekili Serkan Tuncer hakkındaki kesin ihraç talepleri ile Ankara'da 6 isim hakkında başlatılan ihraç süreçleri gibi olaylar, parti içindeki ayrışmaların ve farklı görüşlerin parti disiplini üzerindeki etkilerini göstermeye devam etmektedir.
