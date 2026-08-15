@@ -32,3 +32,7 @@ Zafer Partisi Genel Başkanı Ümit Özdağ, PKK'nın silah bırakması karşıl
 TBMM'ye sunulan çerçeve yasa teklifi, siyasi tartışmaları daha da alevlendirirken, MHP lideri Devlet Bahçeli'nin sert tepkisi dikkat çekti. Bahçeli, teklifi 'ihanet projesi' olarak nitelendirerek, ülkenin birlik ve beraberliğine zarar vereceğini savundu. Bu gelişmeler, PKK'nın Abdullah Öcalan'ın özgürlüğü talebiyle birleşerek, çözüm süreci ve terörle mücadele konularında yeni bir gündem maddesi oluşturdu.
 
 Öte yandan, Irak Bölgesel Kürt Yönetimi (IKBY) Başkanı Mesud Barzani'nin TBMM'deki yasa teklifini desteklediğini açıklaması, sürece uluslararası bir boyut kazandırdı. Barzani, teklifin bölge için önemini vurgulayarak tam destek verdiğini belirtti. Bu destek, Türkiye içindeki siyasi tartışmaları daha da karmaşık hale getirdi.
+
+## Güncelleme - 2026-08-15
+
+Halk TV'de yer alan habere göre, Prof. Dr. İbrahim Kaboğlu, PKK'nın terör örgütü olduğu konusunda bir mutabakatın sağlandığını belirtti. Kaboğlu, bu durumun 'süreç yasası' tartışmalarına yeni bir boyut kazandırdığını ifade etti. Öte yandan, T24'te yer alan habere göre İstanbul Büyükşehir Belediye Başkanı Ekrem İmamoğlu, geçmişte yaşanan sürece dair açıklamalarda bulunarak, 'Milletimize bir gün terörist, ertesi gün vatan haini dediler; 40 yıllık ızdırabın 25'inde AK Parti iktidarı var!' sözleriyle mevcut siyasi iktidarı eleştirdi. Bu açıklamalar, çözüm süreci ve terörle mücadele konularındaki tartışmaları daha da alevlendirdi.

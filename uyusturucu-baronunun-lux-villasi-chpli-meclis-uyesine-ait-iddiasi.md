@@ -16,3 +16,9 @@ Bu iddialar, kamuoyunda geniş yankı bulurken, konuya ilişkin detayların iler
 Kayseri'de, uyuşturucu baronunun saklandığı lüks villanın sahibi olduğu iddia edilen CHP'li meclis üyesi, 5 kilo esrarla yakalanmasının ardından tutuklandı.
 
 Bu gelişme, daha önce villanın uyuşturucu baronuna ait olduğu iddialarıyla gündeme gelen olayın ardından yaşandı. Mahkeme, savcılık tarafından yürütülen soruşturma sonucunda meclis üyesinin tutuklanmasına karar verdi.
+
+## Güncelleme - 2026-08-15
+
+Sultangazi Belediyesi'nde görevli CHP'li meclis üyesi Hülya Şimşek, 'Şapkalılar' suç örgütüne yönelik soruşturma kapsamında 'azmettiricilik' suçlamasıyla tutuklandı. Şimşek'in, uyuşturucu baronunun saklandığı villayla bağlantılı olduğu iddiaları da soruşturmada yer alıyor.
+
+Bu tutuklama, daha önce villanın uyuşturucu baronuna ait olduğu iddialarıyla gündeme gelen olayın ardından yaşandı. Mahkeme, savcılık tarafından yürütülen soruşturma sonucunda Şimşek'in tutuklanmasına karar verdi. Olayla ilgili soruşturma devam etmektedir.

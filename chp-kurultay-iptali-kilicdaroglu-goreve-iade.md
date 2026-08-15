@@ -202,3 +202,9 @@ Kuşadası Belediye Başkanı Ömer Günel ve Üsküdar Belediye Başkanı Sinem
 CHP'deki 'mutlak butlan' kararının ardından başlayan hukuki süreçte yeni bir gelişme yaşandı. Kuşadası Belediye Başkanı Ömer Günel ve Üsküdar Belediye Başkanı Sinem Dedetaş'ın tutuklanması, partideki mevcut gerilimi artırırken, yerel yönetimlerdeki siyasi ve hukuki süreçlerin karmaşıklığını da gözler önüne serdi. Kuşadası Belediye Başkanı Günel, cezaevinden yaptığı açıklamalarda mahkemenin verdiği 'mutlak butlan' kararını demokrasiye bir darbe olarak nitelendirerek, yeni bir parti kurma gerekliliğine işaret etti.
 
 Bu gelişmeler yaşanırken, DEM Parti, 'çerçeve yasa' teklifinin uygulanmasının gecikmemesi gerektiğini belirtti. Yeni Parti Genel Başkanı Özgür Özel de teklifi destekleyeceklerini ifade ederek, "Bir anne daha evladının tabutuna sarılmasın diye teklifi destekleyeceğiz." dedi. Bu açıklamalar, CHP'deki kurultay iptali ve genel başkanlık krizi sürerken, siyasi gündemin terör ve güvenlik konularıyla da şekillendiğini göstermektedir.
+
+## Güncelleme - 2026-08-15
+
+TBMM Başkanlığı, Kemal Kılıçdaroğlu'nun makam odası talebini reddetti. Bu kararla birlikte, Özgür Özel'in CHP Grup Başkanlığı makam odasını kullanmaya devam edeceği belirtildi. Kılıçdaroğlu'nun talebinin reddedilmesi, parti içindeki liderlik mücadelesinin ve hukuki süreçlerin devam ettiğini gösteriyor.
+
+Bu gelişme, daha önce mahkemenin CHP kurultayını
