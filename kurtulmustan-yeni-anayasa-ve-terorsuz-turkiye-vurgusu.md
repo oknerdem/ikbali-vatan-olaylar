@@ -94,3 +94,7 @@ Bu yasanın kabulüyle birlikte, terörle mücadeledeki yeni yol haritasının v
 ## Güncelleme - 2026-08-15
 
 TBMM Başkanı Numan Kurtulmuş, 10 Ağustos 2026'da TBMM Genel Kurulu'nda kabul edilen "Terörsüz Türkiye" çerçeve yasası hakkında yaptığı açıklamada, yasanın 468 kabul, 88 ret ve 6 çekimser oyla yasalaşmasının önemine dikkat çekti. Cumhurbaşkanı Yardımcısı Cevdet Yılmaz'ın da siyasi mutabakat ve toplumsal sahiplenme adına bu sonucu takdir ettiğini belirtti. Kurtulmuş, yeni anayasa çalışmalarının toplumsal mutabakatla ilerlemesi gerektiğini de sözlerine ekledi.
+
+## Güncelleme - 2026-08-15 (2)
+
+TBMM Başkanı Numan Kurtulmuş, 15 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve "Cumhuriyetimizin ilk asrının yarısını heba ettiğimiz terör meselesini geride bıraktıklarını" belirtti. Kurtulmuş, bu sürecin birlik ve beraberlik içinde tamamlandığını vurgulayarak, terörsüz bir Türkiye'nin yeni bir kardeşlik dönemi başlatacağını ifade etti. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini sözlerine ekledi.
