@@ -12,3 +12,7 @@ Hizbullah, Haşdi Şabi, İsrail ve Türkiye arasındaki açmazlar ile BAE ve Su
 ## Güncelleme - 2026-08-15
 
 ABD Başkanı Trump'ın, İsrail'in Suriye'ye yönelik yeni saldırı talebini durdurduğu bildirildi. Bu gelişme, Türkiye'nin bölgedeki etkisinin arttığı şeklinde yorumlandı. A Haber'de yer alan bir analizde ise, Siyonistlerin Golan üzerinden bir iç savaş planı olup olmadığı tartışıldı. Bu durum, Suriye'deki mevcut istikrarsızlığın ve bölgesel güçler arasındaki gerilimin devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-08-15 (2)
+
+Türkiye'nin Şam Büyükelçisi Yılmaz, yıl sonuna kadar Cumhurbaşkanı Erdoğan'ın Suriye'ye bir ziyaret gerçekleştirebileceğini belirtti. Bu ziyaretin, iki ülke arasındaki normalleşme sürecinde önemli bir adım olması bekleniyor. Ayrıca, Büyükelçi Yılmaz, Suriye'deki yeni yönetimle birlikte sınırdaki güvenlik tehditlerinin ortadan kalktığını ifade etti. Bu durum, Türkiye'nin bölgesel güvenlik politikaları açısından yeni bir döneme işaret ediyor olabilir.
