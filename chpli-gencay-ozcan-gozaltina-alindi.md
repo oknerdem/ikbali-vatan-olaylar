@@ -16,3 +16,7 @@ Bu gelişme, siyasi ve toplumsal alanda yankı buldu. 15 Temmuz hain darbe giri�
 ## Güncelleme - 2026-08-15
 
 İstanbul'da 'Şapkalılar' adlı suç örgütüne yönelik soruşturma kapsamında CHP'li Bakırköy Belediye Meclis Üyesi Hülya Şimşek, örgüt adına tehditle para istediği iddiasıyla gözaltına alındı. Soruşturma derinleştikçe, Şimşek'in de aralarında bulunduğu bazı isimler hakkında tutuklama kararı çıkarıldı. Bu gelişme, daha önce Gencay Özcan'ın gözaltına alınmasıyla başlayan süreci genişleterek, siyasi figürlerin organize suç örgütleriyle bağlantılarına dair iddiaları gündeme taşıdı.
+
+## Güncelleme - 2026-08-15 (2)
+
+Soruşturma kapsamında, örgütün tehdit, şantaj ve zorla para toplama gibi eylemlerde bulunduğu öne sürülüyor. Gözaltına alınan diğer şüphelilerin işlemleri ise devam ediyor. Bu olaylar, siyaset ve organize suç arasındaki potansiyel bağlantılara dair tartışmaları yeniden alevlendirdi.

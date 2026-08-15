@@ -34,3 +34,7 @@ Bu görüşme, Türkiye'nin Suriye ile olan diplomatik temaslarını güçlendir
 Türkiye ve Suriye arasındaki ekonomik ve stratejik ilişkilerde yeni bir gelişme olarak, Nusaybin-Kamışlı sınır kapısının yeniden faaliyete geçirilmesi gündeme geldi. Bu adım, iki ülke arasındaki ticaret hacmini artırma ve bölgesel ekonomik entegrasyonu güçlendirme çabalarının bir parçası olarak değerlendiriliyor.
 
 Bu gelişme, daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma yolunda atılan somut adımlardan biri olarak görülüyor. Sınır kapılarının modernizasyonu ve lojistik altyapının iyileştirilmesi gibi konuların da ele alınması bekleniyor.
+
+## Güncelleme - 2026-08-15
+
+Hatay Belediyesi, Suriye'nin İdlib ve Lazkiye kentlerine araç hibe edeceğini duyurdu. Bu adım, iki ülke arasındaki insani yardımlaşma ve bölgesel işbirliği çerçevesinde değerlendiriliyor. Daha önce belirlenen 10 milyar dolarlık ticaret hacmi hedefine ulaşma çabaları sürerken, bu tür destekler de ilişkilerin normalleşme sürecine katkı sağlaması bekleniyor.
