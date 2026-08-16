@@ -36,3 +36,9 @@ TBMM'ye sunulan çerçeve yasa teklifi, siyasi tartışmaları daha da alevlendi
 ## Güncelleme - 2026-08-15
 
 Halk TV'de yer alan habere göre, Prof. Dr. İbrahim Kaboğlu, PKK'nın terör örgütü olduğu konusunda bir mutabakatın sağlandığını belirtti. Kaboğlu, bu durumun 'süreç yasası' tartışmalarına yeni bir boyut kazandırdığını ifade etti. Öte yandan, T24'te yer alan habere göre İstanbul Büyükşehir Belediye Başkanı Ekrem İmamoğlu, geçmişte yaşanan sürece dair açıklamalarda bulunarak, 'Milletimize bir gün terörist, ertesi gün vatan haini dediler; 40 yıllık ızdırabın 25'inde AK Parti iktidarı var!' sözleriyle mevcut siyasi iktidarı eleştirdi. Bu açıklamalar, çözüm süreci ve terörle mücadele konularındaki tartışmaları daha da alevlendirdi.
+
+## Güncelleme - 2026-08-16
+
+Suriye Demokratik Güçleri (SDG) bünyesindeki bir komutanın, birkaç gün içinde kendilerini feshedeceklerine dair açıklaması, Türkiye'deki siyasi tartışmaları yeni bir boyuta taşıdı. MHP'li Feti Yıldız'ın bu gelişmeyi çerçeve yasa teklifine işaret ederek yorumlaması, PKK'nın Öcalan'ın özgürlüğü talebiyle birleşince, sürecin karmaşıklığını ve hassasiyetini bir kez daha gözler önüne serdi.
+
+Bu açıklamalar, Türkiye'nin terörle mücadele ve çözüm süreci konusundaki politikalarına dair yeni soruları gündeme getirirken, uluslararası alanda da dikkatle takip ediliyor. SDG'nin olası fesih kararı ve PKK'nın talepleri, bölgedeki dengeleri ve gelecekteki gelişmeleri etkileyebilecek potansiyel faktörler olarak öne çıkıyor.
