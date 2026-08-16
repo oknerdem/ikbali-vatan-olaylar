@@ -10,3 +10,7 @@ MHP, 'Terörsüz Türkiye' sürecine özel bir türkü hazırlayarak bu konuya d
 Sürecin yol haritası ve yasal düzenlemelerin önemi çeşitli platformlarda dile getiriliyor. Abdullah Güler, 'Terörsüz Türkiye' sürecinin yol haritasını açıklarken, Zafer Çatel de bu konunun çerçevesini çizdi. Bu tür adımlar, terörle mücadelenin hukuki ve toplumsal boyutlarına ışık tutuyor.
 
 'Terörsüz Türkiye' ile ilgili kanunların önemi vurgulanırken, bu yöndeki yasal düzenlemelerin ülkenin güvenliği ve istikrarı açısından taşıdığı kritik rol belirtiliyor. Kamuoyunda da bu sürece destek veren açıklamalar yapılıyor.
+
+## Güncelleme - 2026-08-17
+
+MHP, 'terörsüz Türkiye' söylemini güçlendirerek, bu sürecin teröristlerle müzakere değil, tasfiye süreci olduğunu vurguladı. MHP'li yetkililer, Türkiye'nin terör meselesini kökten çözmesinin ertelenemez bir beka sorunu olduğunu belirterek, bu yöndeki adımların önemine dikkat çekti.
