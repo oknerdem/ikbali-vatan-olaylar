@@ -98,3 +98,7 @@ TBMM Başkanı Numan Kurtulmuş, 10 Ağustos 2026'da TBMM Genel Kurulu'nda kabul
 ## Güncelleme - 2026-08-15 (2)
 
 TBMM Başkanı Numan Kurtulmuş, 15 Ağustos 2026'da yaptığı açıklamalarda, Türkiye'nin terörle mücadelesinde önemli bir aşamaya gelindiğini ve "Cumhuriyetimizin ilk asrının yarısını heba ettiğimiz terör meselesini geride bıraktıklarını" belirtti. Kurtulmuş, bu sürecin birlik ve beraberlik içinde tamamlandığını vurgulayarak, terörsüz bir Türkiye'nin yeni bir kardeşlik dönemi başlatacağını ifade etti. Yeni anayasa çalışmalarının ise toplumsal mutabakatla ilerlemesi gerektiğini sözlerine ekledi.
+
+## Güncelleme - 2026-08-16
+
+Kurtulmuş ayrıca, "Cumhuriyetimizin ilk asrının yarısını heba ettiğimiz terör meselesini geride bıraktıklarını" ifade ederek, bu sürecin birlik ve beraberlik içinde tamamlandığını vurguladı. Terörsüz bir Türkiye'nin yeni bir kardeşlik dönemi başlatacağını belirten Kurtulmuş, yeni anayasa çalışmalarının da toplumsal mutabakatla ilerlemesi gerektiğini yineledi.

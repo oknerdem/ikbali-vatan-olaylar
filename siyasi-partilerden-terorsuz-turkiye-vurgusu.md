@@ -14,3 +14,7 @@ Benzer şekilde, siyasi isimler de terörle mücadeledeki kararlılığı dile g
 MHP Genel Başkan Yardımcısı İzzet Ulvi Yönter, 'terörsüz Türkiye' söyleminin bir tasfiye planı olduğunu iddia etti. Yönter, bu tür söylemlerin ülkenin birliğine ve bütünlüğüne zarar verdiğini belirterek, terörle mücadelenin kararlılıkla sürdürülmesi gerektiğini vurguladı.
 
 Bu açıklama, siyasi partilerin terörle mücadele ve 'terörsüz Türkiye' gibi kavramlara yaklaşımlarındaki farklılıkları gözler önüne sermektedir. Mevcut siyasi söylemler, terörün ülke gündemindeki yerini ve bu konudaki hassasiyeti koruduğunu göstermektedir.
+
+## Güncelleme - 2026-08-16
+
+MHP'li vekiller, Karaman'da verdikleri mesajlarda 'terörsüz Türkiye'nin arkasında olduklarını belirttiler. İstanbul'da ise 17. Milli İrade Buluşması'nda 'Terörsüz Türkiye' temalı bir program düzenlendi. Bu gelişmeler, siyasi partilerin terörle mücadele konusundaki söylemlerini ve toplumsal buluşmalarını yansıtmaktadır.
