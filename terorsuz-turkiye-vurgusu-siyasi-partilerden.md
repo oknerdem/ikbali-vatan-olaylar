@@ -48,3 +48,9 @@ Diğer yandan, bazı siyasetçiler ve kurumlar, terörle mücadelenin bir devlet
 ## Güncelleme - 2026-08-13
 
 Aile ve Sosyal Hizmetler Bakanı Mahinur Özdemir Göktaş, 'terörsüz Türkiye' vurgusu yaparak, bu hedefin gelecek nesillerin daha huzurlu bir ülkede büyümesi ve güçlü Türkiye'nin teminatı olması için önemli olduğunu belirtti. Göktaş, terörle mücadelede ailelerin rolünün yadsınamaz olduğunu ifade ederken, af beklentilerine yönelik bir açıklama yapmaktan kaçındı. Bu durum, 'terörsüz Türkiye' söyleminin somut politikalarla desteklendiği ve bu konudaki kararlılığın sürdüğü şeklinde yorumlandı.
+
+## Güncelleme - 2026-08-16
+
+MHP'li yetkililer, Türkiye'nin terörle mücadelesinde 'teröristle müzakere yapılmadığı' ve bu sürecin 'terörsüz Türkiye' hedefi doğrultusunda yeni bir aşamaya geçtiği yönündeki açıklamalarını sürdürdü. Bu açıklamalar, terörle mücadelenin kararlılıkla devam edeceğine ve milli bir güvenlik meselesi olarak ele alındığına işaret ediyor.
+
+Bu çerçevede, MHP'li Fatih Karakaya'nın da belirttiği gibi, terörle değil, teröristle müzakere edilmediği ve bu durumun 'terörsüz Türkiye' vizyonunun bir parçası olduğu vurgulandı. Bu söylem, siyasi partilerin terörle mücadele konusundaki ortak duruşunu ve bu hedefe ulaşma konusundaki kararlılıklarını pekiştirmektedir.

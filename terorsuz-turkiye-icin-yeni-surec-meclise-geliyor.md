@@ -190,3 +190,9 @@ Türkiye Büyük Millet Meclisi (TBMM), 'Terörsüz Türkiye' hedefi doğrultusu
 TBMM Başkanı Numan Kurtulmuş ve İçişleri Bakanı Ali Yerlikaya'nın valilerle ve güvenlik bürokrasisiyle bir araya gelerek 'Terörsüz Türkiye' hedefinde tarihi bir eşiğin aşıldığını belirtmesi, sürecin ilerleyişine dair önemli bir gelişmedir. Bu toplantılar, 81 ilin mülki amirlerini ve güvenlik birimlerini kapsayarak, terörle mücadelede yeni bir zemine taşınan hedefin somutlaştırılmasına yönelik adımları içermektedir.
 
 Öte yandan, 'Terörsüz Türkiye' çerçeve yasasında yer alan 12 maddeye ilişkin ayrıntılar da kamuoyu ile paylaşılmaya başlandı. Bu yasal düzenlemelerin, terörle mücadele stratejilerinin belirlenmesi ve uygulanması konusunda önemli bir rol üstlenmesi bekleniyor. Sürecin, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüştüğü ve bölgesel istikrara katkı sağlayacağı vurgulanmaktadır.
+
+## Güncelleme - 2026-08-16
+
+İçişleri Bakanı Mustafa Çiftçi, Diyarbakır'da yaptığı açıklamada, "Terörsüz Türkiye" sürecine güçlü destek vereceklerini belirterek, "Tarihi bir dönemece girdik, 50 yıllık prangalardan kurtulacağız" dedi. Bu açıklama, sürecin siyasi ve toplumsal boyutlarıyla ele alındığını ve kararlılıkla ilerlediğini göstermektedir.
+
+AK Parti ve MHP'den gelen benzer vurgular, "Terörsüz Türkiye" hedefinin milli bir devlet politikası olarak benimsendiğini ve bu yöndeki adımların kararlılıkla sürdürüleceğini ortaya koymaktadır. Bu süreç, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüşmektedir.
