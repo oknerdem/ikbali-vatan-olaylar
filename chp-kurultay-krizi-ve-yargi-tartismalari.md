@@ -44,3 +44,9 @@ Cumhurbaşkanı Erdoğan, CHP'ye yönelik kurultay çağrılarına ilişkin yapt
 CHP'deki kurultay süreci, 'terörsüz Türkiye' söylemiyle kesişerek siyasi gündemin üst sıralarına yerleşti. Bu durum, parti içi dinamiklerin ülke gündemindeki önemli bir konuyla nasıl ilişkilendiğini gösteriyor. Parti içinde onursal genel başkanlık gibi konuların da masada olduğu belirtiliyor.
 
 Öte yandan, Öcalan'ın ayağına gidenlerin gazileri ziyaret etmediği yönündeki eleştiriler ve Kılıçdaroğlu'na yönelik 'aday olmayın, aktif siyaseti bırakın' çağrıları, parti içindeki tartışmaların derinleştiğini ve farklı görüşlerin öne çıktığını gösteriyor.
+
+## Güncelleme - 2026-08-16
+
+CHP'deki kurultay süreciyle ilgili tartışmalar devam ederken, Kemal Kılıçdaroğlu'nun olası bir kurultay adaylığı durumunda Meclis grubunun düşebileceği iddiaları gündeme geldi. Bu durum, parti içindeki dengeleri ve gelecekteki siyasi manevraları etkileyebilecek önemli bir gelişme olarak öne çıkıyor.
+
+Öte yandan, parti içinde 'terörsüz Türkiye' söyleminin kurultay süreciyle kesişmesi, siyasi tartışmaların farklı boyutlar kazanmasına neden oldu. Bu bağlamda, parti içinde onursal genel başkanlık gibi konuların da gündemde olduğu belirtiliyor.
