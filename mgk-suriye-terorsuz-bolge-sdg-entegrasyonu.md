@@ -22,3 +22,7 @@ Bu durum, Türkiye'nin Suriye'deki terör örgütleriyle mücadelesi ve bölgese
 SDG'nin Kobani sorumlusu Berhudan ile yapılan görüşmelerde YPG'nin feshedileceği ve silahların bırakılacağı yönünde açıklamalar yapıldığı belirtildi. Bu gelişmeler, Türkiye'nin Suriye'deki terörle mücadele stratejileri ve SDG ile olan ilişkileri açısından önemli bir dönüm noktası olabilir.
 
 Bu açıklama, daha önce MGK toplantısında Suriye'de terörden arındırılmış bölge oluşturulması ve SDG'nin entegrasyonu gibi konuların gündemde olduğu bilgisiyle birlikte değerlendirildiğinde, Türkiye'nin bölgesel güvenlik politikalarında olası bir yumuşamaya işaret edebilir. Ancak bu adımın, Türkiye'nin terörle mücadeledeki genel duruşunu nasıl etkileyeceği ve SDG ile ilişkilerinde ne gibi değişikliklere yol açacağı önümüzdeki süreçte daha net görülecektir.
+
+## Güncelleme - 2026-08-16 (2)
+
+SDG'nin Kobani sorumlusu Berhudan, YPG'nin feshedileceği ve silahların bırakılacağı yönünde açıklamalarda bulundu. Bu gelişmeler, Türkiye'nin Suriye'deki terörle mücadele stratejileri ve SDG ile olan ilişkileri açısından önemli bir dönüm noktası olarak değerlendiriliyor.
