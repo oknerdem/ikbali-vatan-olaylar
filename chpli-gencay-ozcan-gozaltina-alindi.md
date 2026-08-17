@@ -20,3 +20,9 @@ Bu gelişme, siyasi ve toplumsal alanda yankı buldu. 15 Temmuz hain darbe giri�
 ## Güncelleme - 2026-08-15 (2)
 
 Soruşturma kapsamında, örgütün tehdit, şantaj ve zorla para toplama gibi eylemlerde bulunduğu öne sürülüyor. Gözaltına alınan diğer şüphelilerin işlemleri ise devam ediyor. Bu olaylar, siyaset ve organize suç arasındaki potansiyel bağlantılara dair tartışmaları yeniden alevlendirdi.
+
+## Güncelleme - 2026-08-17
+
+15 Temmuz şehitleri hakkındaki iddia edilen sözleri nedeniyle gözaltına alınan CHP'li Gencay Özcan'ın durumuyla ilgili soruşturma devam ederken, benzer bir gelişme yaşandı. Organize suç örgütü 'Şapkalılar'a yönelik soruşturma kapsamında İstanbul'da CHP'li Bakırköy Belediye Meclis Üyesi Hülya Şimşek de gözaltına alındı. Şimşek'in, örgüt adına tehditle para istediği iddia ediliyor.
+
+Bu yeni gözaltı, soruşturmanın genişlediğini ve siyasi figürlerin organize suç örgütleriyle bağlantılarına dair iddiaları gündeme taşıdığını gösteriyor. Soruşturma kapsamında Şimşek'in de aralarında bulunduğu bazı isimler hakkında tutuklama taleplerinin olduğu belirtiliyor. Olaylar, siyaset ve organize suç arasındaki potansiyel bağlantılara dair tartışmaları yeniden alevlendirdi.

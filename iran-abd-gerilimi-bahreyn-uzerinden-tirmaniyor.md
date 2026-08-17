@@ -62,3 +62,7 @@ ABD'nin İran'a yönelik yeni bir saldırı dalgası başlattığı bildirildi. 
 ## Güncelleme - 2026-08-02
 
 ABD ve İsrail'in İran'a yönelik olası saldırı hazırlıkları kapsamında alarma geçtiği bildirildi. İran'ın ise Suudi Arabistan'ı uyardığı gelen bilgiler arasında yer alıyor. Bu gelişmeler, bölgedeki tansiyonun daha da artabileceği endişelerini beraberinde getiriyor.
+
+## Güncelleme - 2026-08-17
+
+Irak'ın Erbil kentinde bulunan ve Mesud Barzani'ye ait olduğu belirtilen bir ofise İHA saldırısı düzenlendi. Saldırının kim tarafından gerçekleştirildiğine dair henüz resmi bir açıklama yapılmazken, bazı kaynaklar saldırıdan İran'ı sorumlu tuttu. Bu gelişme, bölgedeki mevcut gerilimin daha da artabileceği endişelerini beraberinde getirdi.

@@ -34,3 +34,9 @@ Bahçeli'nin bu açıklamaları, MHP'nin terörle mücadeledeki kırmızı çizg
 MHP Genel Başkanı Devlet Bahçeli, 13 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' hedefi doğrultusunda hazırlanan yeni bir türküyü kamuoyu ile paylaştı. "Terörsüz Türkiye Dünyaya Sestir" sloganıyla duyurulan bu adım, parti tarafından terörle mücadeledeki kararlılığın bir göstergesi olarak sunuldu.
 
 Bu gelişme, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin söylemindeki bir dönüşüm olarak yorumlandı. MHP'nin bu yeni teması ve hazırlanan türkü, parti politikalarının ve terörle mücadeledeki güncel duruşunun arşivlenmesi açısından önem taşıyor.
+
+## Güncelleme - 2026-08-17
+
+MHP Genel Başkanı Devlet Bahçeli, 17 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın sürece katkı vermesini sağlayacak şartların oluşturulması gerektiğini belirtti. Bahçeli, 'terörsüz Türkiye' hedefinin milli varlığın zırhı olduğunu vurgulayarak, bu sürecin kapalı kapılar ardında yürütülen bir pazarlık olmadığını ifade etti. Bu açıklamalar, daha önceki 'kurucu önder' iddialarıyla çelişki yaratırken, terörle mücadeledeki kararlılığın ve milli birlik vurgusunun pekiştirildiği şeklinde yorumlandı.
+
+Bahçeli'nin bu yeni söylemi, terörle mücadeledeki kırmızı çizgileri ve 'terörsüz Türkiye' vizyonunu yeniden ortaya koyarken, siyasi çevrelerde ve kamuoyunda bu duruşun önemi üzerinde duruldu. Açıklamalar, özellikle TBMM'de kabul edilen ve bir af düzenlemesi olmadığı vurgulanan yasal süreçle birlikte değerlendirildi.
