@@ -40,3 +40,7 @@ Bu açıklama, daha önce de gündeme gelen 'çözüm süreci' ve 'siyasi normal
 ## Güncelleme - 2026-08-12
 
 MHP Genel Başkanı Devlet Bahçeli, 12 Ağustos 2026'da yaptığı açıklamalarda, "Terörsüz Türkiye" hedefinin artık hayat bulduğunu ve bu yolda kaybedecek zaman olmadığını belirtti. İçişleri Bakanı Mustafa Çiftçi de aynı gün yaptığı açıklamalarda, terör örgütünün tüm unsurlarıyla tasfiye edileceğini ve silahların tamamen devreden çıkacağını vurgulayarak, "Terörsüz Türkiye yolunda tarihi bir eşiğin aşıldığını" ifade etti. Bu açıklamalar, daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaların yanı sıra, ülkenin güvenliğine yönelik somut adımlara işaret etmektedir.
+
+## Güncelleme - 2026-08-17
+
+MHP Genel Başkanı Devlet Bahçeli, 17 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın sürece katkı vermesini mümkün kılacak şartların oluşturulması gerektiğini belirtti. Bahçeli, bu açıklamayla daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaları yeniden alevlendirdi. Bu çağrı, siyasi çevrelerde ve kamuoyunda farklı yorumlara neden oldu.
