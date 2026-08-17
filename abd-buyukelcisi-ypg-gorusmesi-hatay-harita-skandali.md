@@ -30,3 +30,9 @@ Bu gelişme, ABD'nin bölgedeki terör örgütlerine yönelik politikalarında b
 Kültür ve Turizm Bakanı Mehmet Nuri Ersoy, 27 Temmuz 2026'da ABD'nin Türkiye Büyükelçisi Tom Barrack ile bir araya geldi. Bu görüşme, daha önceki diplomatik gerilimlerin ardından Barrack'ın görev süresi boyunca Türkiye'deki temaslarının devam ettiğini göstermektedir.
 
 Bu görüşmeler, ABD'nin bölgedeki politikaları ve Türkiye ile olan ilişkileri açısından önem taşımaktadır. Özellikle daha önce yaşanan harita skandalı ve YPG ile yapılan görüşmelerin ardından bu tür üst düzey temasların sürmesi, diplomatik gelişmelerin yakından takip edilmesi gerektiğini ortaya koymaktadır.
+
+## Güncelleme - 2026-08-18
+
+Suriye Dışişleri Bakanı Faysal Mikdad, 17 Ağustos 2026'da İstanbul'da ABD'nin Suriye Özel Temsilcisi Tom Barrack ile bir araya geldi. Bu görüşme, daha önce ABD'li temsilcinin YPG elebaşı Mazlum Abdi ile görüşmesi ve Hatay'ı Suriye toprağı olarak gösteren bir harita önünde poz vermesiyle ilgili yaşanan skandalın ardından bölgedeki diplomatik temasların devam ettiğini göstermektedir.
+
+Bu kritik görüşme, ABD'nin Suriye politikası ve bölgedeki dengeler açısından önemli bir gelişme olarak değerlendirilmektedir. Görüşmenin detayları ve olası sonuçları uluslararası kamuoyu tarafından yakından takip edilmektedir.

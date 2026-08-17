@@ -32,3 +32,7 @@ Aile ve Sosyal Hizmetler Bakanı Göktaş da terörün olmadığı yerde huzur v
 İçişleri Bakanı Mustafa Çiftçi, "Terörsüz Türkiye"nin yol haritasını açıklayarak, sürecin "tasfiye, teyit, denetim ve normalleşme" adımlarını içereceğini belirtti. Bakan Çiftçi, bu sürecin bir af olmadığını ve olası provokasyon risklerine karşı gerekli tedbirlerin alındığını vurguladı.
 
 Cumhurbaşkanı Erdoğan da "Terörsüz Türkiye ve terörsüz bölge hayati önemde" diyerek, devlet ve milletin el ele vererek bu vizyonu kalıcı hale getireceğini ifade etti. Bu açıklamalar, terörle mücadelenin kararlılıkla sürdürüleceği ve Türkiye'nin güvenli bir geleceğe ulaşacağı mesajını pekiştirdi.
+
+## Güncelleme - 2026-08-18
+
+Aile ve Sosyal Hizmetler Bakanı Göktaş, terörle mücadelede ailenin önemini vurgulayarak, "Terör karşısında en büyük gücümüz aile" dedi. Göktaş, bu toprakların terörden çektiği acıların yaşandığı dönemlerde ailelerin parçalanmasının da üzücü olduğunu belirtti ve güçlü aile yapısının terörle mücadelede ve ülkenin geleceği için kritik olduğunu ifade etti.
