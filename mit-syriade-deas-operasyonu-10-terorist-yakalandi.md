@@ -52,3 +52,7 @@ Operasyonun, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürd�
 Milli İstihbarat Teşkilatı (MİT), Bodrum'da kırmızı bültenle aranan ve Türkiye'de eylemler planladığı tespit edilen bir teröristi başarılı bir operasyonla yakaladı. Operasyonun detayları ve yakalanan teröristin kimliği hakkında bilgiler gelmeye devam ediyor.
 
 Bu gelişme, MİT'in terörle mücadeledeki kararlılığını ve sınır ötesindeki operasyonel kabiliyetini bir kez daha gösterirken, daha önce Suriye'de DEAŞ'a yönelik düzenlenen operasyonlarla da bağlantılı olabileceği değerlendiriliyor. Yakalanan teröristin sorgusu sürüyor.
+
+## Güncelleme - 2026-08-17
+
+Kırşehir'de kırmızı bültenle aranan Irak uyruklu bir terör şüphelisi yakalandı. Yakalanan şüphelinin Türkiye'de eylem planladığı tespit edildiği belirtildi. Bu gelişme, MİT'in terörle mücadele kapsamında yürüttüğü operasyonların bir parçası olarak değerlendiriliyor.
