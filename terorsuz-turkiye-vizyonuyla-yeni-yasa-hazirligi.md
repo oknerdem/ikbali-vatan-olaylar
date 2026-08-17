@@ -88,3 +88,7 @@ Bahçeli'nin bu açıklamaları, "Terörsüz Türkiye" hedefi ile "Terörsüz B�
 MHP Genel Başkanı Devlet Bahçeli, "Terörsüz Türkiye" vizyonunun bir devlet politikası olduğunu ve bu yasal düzenlemenin bir af değil, terörle mücadeleyi güçlendirmeye yönelik olduğunu vurguladı. Bahçeli, "Terörsüz Türkiye"nin milletin eseri olacağını belirterek, bu sürecin gizli pazarlıklar içermediğini ifade etti.
 
 TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine başlanmasıyla birlikte, sürecin hızlandığı gözlemleniyor. Ana muhalefet partisi lideri Kemal Kılıçdaroğlu'nun sürece katkı vereceklerini belirtmesi, teklifin yasalaşma ihtimalini güçlendiriyor. Bu gelişmeler, terörle mücadele stratejilerinde yeni bir dönemin başlangıcı olarak değerlendiriliyor.
+
+## Güncelleme - 2026-08-17 (2)
+
+TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine başlanmasıyla birlikte, sürecin hızlandığı gözlemleniyor. Ana muhalefet partisi lideri Kemal Kılıçdaroğlu'nun sürece katkı vereceklerini belirtmesi, teklifin yasalaşma ihtimalini güçlendiriyor. MHP Genel Başkanı Devlet Bahçeli, bu vizyonun bir devlet politikası olduğunu ve yasal düzenlemenin terörle mücadeleyi güçlendirmeye yönelik olduğunu vurgulayarak, "Terörsüz Türkiye"nin milletin ortak eseri olacağını ve gizli pazarlıklar içermediğini ifade etti.

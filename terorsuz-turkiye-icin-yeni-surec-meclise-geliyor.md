@@ -196,3 +196,9 @@ TBMM Başkanı Numan Kurtulmuş ve İçişleri Bakanı Ali Yerlikaya'nın valile
 İçişleri Bakanı Mustafa Çiftçi, Diyarbakır'da yaptığı açıklamada, "Terörsüz Türkiye" sürecine güçlü destek vereceklerini belirterek, "Tarihi bir dönemece girdik, 50 yıllık prangalardan kurtulacağız" dedi. Bu açıklama, sürecin siyasi ve toplumsal boyutlarıyla ele alındığını ve kararlılıkla ilerlediğini göstermektedir.
 
 AK Parti ve MHP'den gelen benzer vurgular, "Terörsüz Türkiye" hedefinin milli bir devlet politikası olarak benimsendiğini ve bu yöndeki adımların kararlılıkla sürdürüleceğini ortaya koymaktadır. Bu süreç, ülkenin yeni yüzyılında daha güçlü bir Türkiye inşa etme vizyonuyla örtüşmektedir.
+
+## Güncelleme - 2026-08-17
+
+Aile ve Sosyal Hizmetler Bakanı Mahinur Özdemir Göktaş, "Terörsüz Türkiye" hedefinin stratejik bir öncelik olduğunu belirtti. Göktaş, terörün aileleri parçaladığını ve bu topraklarda büyük acılara neden olduğunu vurgulayarak, terörün karşısında en büyük güçlerinin aile olduğunu ifade etti. Bakan Göktaş, "Aile, bizim geleceğimiz. Aile bizim en güçlü yapımız" diyerek, aile bağlarının güçlendirilmesinin terörle mücadelede kilit rol oynadığını dile getirdi.
+
+Bu açıklamalar, "Terörsüz Türkiye" sürecinin sadece güvenlik odaklı bir politika olmadığını, aynı zamanda toplumsal dokuyu güçlendirmeyi hedefleyen bir vizyonu da içerdiğini göstermektedir. Ailelerin güçlendirilmesi yoluyla terörün toplumsal etkilerinin azaltılması amaçlanmaktadır.

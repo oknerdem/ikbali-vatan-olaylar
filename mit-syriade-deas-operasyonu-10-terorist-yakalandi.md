@@ -56,3 +56,7 @@ Bu gelişme, MİT'in terörle mücadeledeki kararlılığını ve sınır ötesi
 ## Güncelleme - 2026-08-17
 
 Kırşehir'de kırmızı bültenle aranan Irak uyruklu bir terör şüphelisi yakalandı. Yakalanan şüphelinin Türkiye'de eylem planladığı tespit edildiği belirtildi. Bu gelişme, MİT'in terörle mücadele kapsamında yürüttüğü operasyonların bir parçası olarak değerlendiriliyor.
+
+## Güncelleme - 2026-08-17 (2)
+
+Kırşehir'de kırmızı bültenle aranan Irak uyruklu bir terör şüphelisi yakalandı. Yapılan tespitlere göre şüphelinin Türkiye'de eylem planladığı belirlendi. Bu gelişme, Milli İstihbarat Teşkilatı'nın (MİT) terörle mücadele kapsamındaki operasyonlarının bir parçası olarak kayıtlara geçti.
