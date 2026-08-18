@@ -36,3 +36,9 @@ Bu görüşmeler, ABD'nin bölgedeki politikaları ve Türkiye ile olan ilişkil
 Suriye Dışişleri Bakanı Faysal Mikdad, 17 Ağustos 2026'da İstanbul'da ABD'nin Suriye Özel Temsilcisi Tom Barrack ile bir araya geldi. Bu görüşme, daha önce ABD'li temsilcinin YPG elebaşı Mazlum Abdi ile görüşmesi ve Hatay'ı Suriye toprağı olarak gösteren bir harita önünde poz vermesiyle ilgili yaşanan skandalın ardından bölgedeki diplomatik temasların devam ettiğini göstermektedir.
 
 Bu kritik görüşme, ABD'nin Suriye politikası ve bölgedeki dengeler açısından önemli bir gelişme olarak değerlendirilmektedir. Görüşmenin detayları ve olası sonuçları uluslararası kamuoyu tarafından yakından takip edilmektedir.
+
+## Güncelleme - 2026-08-19
+
+ABD'nin Suriye Özel Temsilcisi Tom Barrack, 18 Ağustos 2026'da yaptığı açıklamalarda, Türkiye, İsrail ve Suriye arasında potansiyel bir çatışmayı önlemek için çalıştıklarını belirtti. Barrack, Türkiye'nin İsrail'in Suriye'ye yönelik saldırılarından önceden haberdar edilmediğini de ifade etti. Bu açıklamalar, daha önce YPG elebaşı Mazlum Abdi ile görüşmesi ve Hatay'ı Suriye toprağı olarak gösteren bir harita önünde poz vermesiyle gündeme gelen Barrack'ın diplomatik faaliyetlerinin devam ettiğini göstermektedir.
+
+Bu gelişmeler, ABD'nin bölgedeki hassas dengeleri yönetme çabalarını ve Türkiye'nin dış politikasıyla ilgili önemli bir dönemeçte olduğunu ortaya koymaktadır. Barrack'ın açıklamaları, uluslararası ilişkiler ve bölgesel güvenlik açısından dikkatle takip edilmesi gereken yeni bir boyut katmaktadır.
