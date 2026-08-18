@@ -52,3 +52,9 @@ Bu çekilme haberleri, daha önceki siyasi adımlar ve açıklamalarla birlikte 
 CHP Genel Başkanı Özgür Özel ve parti sözcüsü Deniz Demir, 'Terörsüz Türkiye' söylemine destek verdiklerini ve bu sürecin takipçisi olacaklarını belirttiler. Demir, "Kardeşliğin teminat altına alındığı bir Türkiye için sürecin takipçisi ve güvencesi olmaya devam edeceğiz" ifadelerini kullanırken, Kılıçdaroğlu da sürece tereddütsüz katkı vereceklerini ve bölücü küresel yapılara geçit verilmeyeceğini vurguladı.
 
 Bu açıklamalar, CHP'nin terörle mücadele ve toplumsal huzurun sağlanması konusundaki duruşunu netleştirirken, sürecin siyasi aktörler tarafından nasıl sahiplenildiğini göstermektedir. PKK yöneticilerinden Duran Kalkan'ın daha önceki "süreç batmayacak" ve "siyasetin önü açıldıkça silahlı mücadele stratejisi bir daha gündeme gelmez" şeklindeki açıklamalarıyla birlikte değerlendirildiğinde, siyasi çözümün önceliklendirildiği bir döneme girildiği yorumları yapılmaktadır.
+
+## Güncelleme - 2026-08-18
+
+Terörle mücadele ve toplumsal huzurun sağlanması hedeflerine yönelik somut adımlar atıldığına işaret eden gelişmeler yaşanmaktadır. Bu kapsamda, PKK'nın sınır hattındaki 81 noktadan çekilerek kampları boşalttığına dair haberler, 'Terörsüz Türkiye' süreci açısından önemli bir dönüm noktası olarak değerlendirilmektedir. Bu gelişme, çözüm süreciyle ilgili olası yasal düzenlemeler ve ilerlemeler açısından yeni bir aşama teşkil edebilir.
+
+Diğer yandan, CHP Genel Başkanı Özgür Özel ve parti sözcüsü Deniz Demir, 'Terörsüz Türkiye' söylemine destek verdiklerini ve bu sürecin takipçisi olacaklarını belirtmişlerdir. Bu destek açıklamaları, siyasi aktörlerin terörle mücadele ve toplumsal huzurun sağlanması konusundaki duruşlarını netleştirirken, sürecin siyasi sahiplenilme düzeyini de göstermektedir. PKK yöneticisi Duran Kalkan'ın daha önceki açıklamalarıyla birlikte değerlendirildiğinde, siyasi çözümün önceliklendirildiği bir döneme girildiği yorumları yapılmaktadır.

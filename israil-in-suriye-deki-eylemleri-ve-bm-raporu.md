@@ -2,7 +2,7 @@
 title: İsrail'in Suriye'deki Eylemleri ve BM Raporu
 date: "2026-06-22"
 category: "Global"
-img: ""
+img: "https://diyarbakirsoz.com/haberresimleri/2026818/suriye-Israilin-Idlibde-duzenledigi-hava-saldirisini-kinadi.webp"
 ---
 
 İşgalci İsrail'in güney Suriye'deki terör faaliyetleri, Birleşmiş Milletler'in (BM) yayınladığı kritik bir raporla ifşa edildi. Raporda, İsrail'in Suriye'deki eylemlerinin barbarlığı vurgulanıyor.
@@ -32,3 +32,7 @@ Türkiye, Suriye'deki feribot kazasında hayatını kaybedenler için taziye mes
 ## Güncelleme - 2026-08-18
 
 18 Ağustos 2026 tarihinde, İsrail'in Suriye'nin kuzeybatısındaki Ebu Zuhur Havaalanı'na yönelik bir hava saldırısı gerçekleştirdiği bildirildi. Bu saldırı, Türkiye'den bir heyetin Suriye'ye gerçekleştirdiği ziyaretin hemen ardından meydana geldi. Saldırının zamanlaması, bölgesel gerilimlerin arttığı bir dönemde dikkat çekici bulundu.
+
+## Güncelleme - 2026-08-18 (2)
+
+Saldırıya ilişkin olarak Türkiye Dışişleri Bakanlığı'ndan yapılan açıklamada, İsrail'in Suriye'ye yönelik eylemlerinin uluslararası hukukun açık bir ihlali olduğu belirtilerek en sert şekilde kınandığı ifade edildi. Açıklamada, İsrail'in saldırılarının bölgesel barış ve istikrarı tehdit ettiği vurgulandı.

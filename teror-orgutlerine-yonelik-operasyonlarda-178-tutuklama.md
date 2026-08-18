@@ -52,3 +52,9 @@ Ankara'da polis, daha önce yapılan ihbarlar üzerine harekete geçerek, çeşi
 ## Güncelleme - 2026-08-02
 
 Pakistan'da terör örgütlerine yönelik düzenlenen geniş çaplı operasyonlarda 54 şüpheli gözaltına alındı. Bu operasyonlar, bölgedeki terörle mücadele çabalarının bir parçası olarak kayıtlara geçti.
+
+## Güncelleme - 2026-08-18
+
+Yalova'da son 6 ayda gerçekleştirilen 53 terör operasyonunda 17 kişinin tutuklandığı bildirildi. Bu operasyonlar, yerel düzeyde terörle mücadelenin yoğunlaştığını ve somut sonuçlar verdiğini göstermektedir.
+
+Bu gelişmeler, genel terörle mücadele kapsamındaki operasyonların devamı niteliğindedir ve ülkenin farklı bölgelerinde güvenlik güçlerinin terör örgütlerine karşı sürdürdüğü kararlı mücadelenin bir parçası olarak değerlendirilmektedir.
