@@ -28,3 +28,7 @@ Suriye'nin başkenti Şam'da meydana gelen ve 9 kişinin hayatını kaybettiği,
 ## Güncelleme - 2026-07-12
 
 Türkiye, Suriye'deki feribot kazasında hayatını kaybedenler için taziye mesajı yayımladı. Dışişleri Bakanlığı tarafından yapılan açıklamada, kazada yaşamını yitirenlerin ailelerine başsağlığı dilenerek, Suriye halkına destek mesajı iletildi. Bu gelişme, Türkiye'nin insani konulardaki hassasiyetini ve bölgesel olaylara verdiği önemi bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-18
+
+18 Ağustos 2026 tarihinde, İsrail'in Suriye'nin kuzeybatısındaki Ebu Zuhur Havaalanı'na yönelik bir hava saldırısı gerçekleştirdiği bildirildi. Bu saldırı, Türkiye'den bir heyetin Suriye'ye gerçekleştirdiği ziyaretin hemen ardından meydana geldi. Saldırının zamanlaması, bölgesel gerilimlerin arttığı bir dönemde dikkat çekici bulundu.

@@ -38,3 +38,9 @@ Bu açıklamalar, "Terörsüz Türkiye" hedefinin sadece söylemde kalmadığın
 İçişleri Bakanı Mustafa Çiftçi, "Terörsüz Türkiye sürecinin akamete uğramaması için takipçisiyiz" açıklamasında bulundu. Bu ifade, terörle mücadeledeki kararlılığın ve sürecin kesintisiz devam etmesi gerektiğinin altını çizmektedir.
 
 Bu açıklama, "Terörsüz Türkiye" hedefinin sadece bir temenni olmaktan öte, aktif bir takip ve yönetim gerektiren bir süreç olduğunu vurgulamaktadır. Bakan Çiftçi'nin bu konudaki takipçi olma vurgusu, konunun siyasi ve idari düzeyde ne kadar önemsendiğini göstermektedir.
+
+## Güncelleme - 2026-08-18
+
+Aile ve Sosyal Hizmetler Bakanı Mahinur Özdemir Göktaş, "Terörsüz Türkiye sürecini bizzat şehit yakınlarımız ve gazilerimizle birlikte inşa ettik" açıklamasında bulundu. Bu ifade, terörle mücadelenin sadece güvenlik boyutuyla değil, aynı zamanda toplumsal dayanışma ve fedakarlıkla şekillendiğini vurgulamaktadır.
+
+Bu açıklama, "Terörsüz Türkiye" temasının, şehit yakınları ve gazilerin anıları ve mücadeleleriyle bütünleştiğini ve bu sürecin toplumsal bir başarı olarak görüldüğünü ortaya koymaktadır. Bu durum, konunun sadece siyasi bir hedef olmanın ötesinde, toplumsal bir sahiplenme ve ortak hafıza ile de ilintili olduğunu göstermektedir.

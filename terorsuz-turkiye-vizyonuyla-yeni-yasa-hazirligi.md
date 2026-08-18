@@ -96,3 +96,7 @@ TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine ba
 ## Güncelleme - 2026-08-18
 
 MHP Genel Başkanı Devlet Bahçeli, "Terörsüz Türkiye" vizyonunun, gelecek Türk asırlarının müjdesi olduğunu ve bu hedefe ulaşılmasının, silah bırakmanın ötesinde, sırtını teröre dayandıran siyaset anlayışının da tarihe karışmasıyla mümkün olacağını belirtti. Bahçeli, "Terörsüz Türkiye"nin milletin eseri olacağını ve bu sürecin gizli pazarlıklar içermediğini vurgulayarak, bu vizyonun ekonomik refahın da stratejik anahtarı olduğunu ifade etti.
+
+## Güncelleme - 2026-08-18 (2)
+
+MHP Genel Sekreteri İsmet Büyükataman da 'Terörsüz Türkiye'nin Türk ve Türkiye Yüzyılı'nın ilk stratejik hamlesi olduğunu dile getirerek, bu vizyonun süper güç Türkiye'nin müjdecisi olduğunu savundu. Bu açıklamalar, hazırlanan yasa teklifinin TBMM Genel Kurulu'nda görüşülmeye başlanmasıyla birlikte, terörle mücadele stratejilerinde yeni bir dönemin başlangıcı olarak değerlendirildiğini göstermektedir.
