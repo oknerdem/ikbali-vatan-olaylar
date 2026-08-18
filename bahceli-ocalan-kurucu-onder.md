@@ -40,3 +40,7 @@ Bu gelişme, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kulland
 MHP Genel Başkanı Devlet Bahçeli, 17 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın sürece katkı vermesini sağlayacak şartların oluşturulması gerektiğini belirtti. Bahçeli, 'terörsüz Türkiye' hedefinin milli varlığın zırhı olduğunu vurgulayarak, bu sürecin kapalı kapılar ardında yürütülen bir pazarlık olmadığını ifade etti. Bu açıklamalar, daha önceki 'kurucu önder' iddialarıyla çelişki yaratırken, terörle mücadeledeki kararlılığın ve milli birlik vurgusunun pekiştirildiği şeklinde yorumlandı.
 
 Bahçeli'nin bu yeni söylemi, terörle mücadeledeki kırmızı çizgileri ve 'terörsüz Türkiye' vizyonunu yeniden ortaya koyarken, siyasi çevrelerde ve kamuoyunda bu duruşun önemi üzerinde duruldu. Açıklamalar, özellikle TBMM'de kabul edilen ve bir af düzenlemesi olmadığı vurgulanan yasal süreçle birlikte değerlendirildi.
+
+## Güncelleme - 2026-08-18
+
+MHP Genel Başkanı Devlet Bahçeli, 18 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' sürecinin Türk asırlarının müjdesi olduğunu belirtti. Bahçeli, bu sürecin şiddetin bütünüyle bitirilmesini hedeflediğini ve illegal silahlı yapıların ortadan kaldırılması gerektiğini vurguladı. Ayrıca, 'Terörsüz Türkiye' yasasının Resmi Gazete'de yayımlanarak yürürlüğe girdiğini ve bu kapsamda kurulan 'Terörsüz Türkiye Kurulu'nun ilk toplantısını 24 Ağustos'ta yapacağını duyurdu. Bu gelişmeler, daha önceki Öcalan ile ilgili iddiaların aksine, terörle mücadeledeki kararlılığın ve yeni yasal düzenlemelerin altını çizmektedir.
