@@ -18,3 +18,7 @@ Milli İstihbarat Teşkilatı (MİT) Başkanı İbrahim Kalın, Irak temasları 
 ## Güncelleme - 2026-08-06
 
 Milli İstihbarat Teşkilatı (MİT) Başkanı İbrahim Kalın, 6 Ağustos 2026 tarihinde Ankara'da Suriye Dışişleri Bakanı Faysal Mikdad ile bir araya geldi. Görüşmede, Türkiye-Suriye ilişkileri, bölgesel güvenlik ve terörle mücadele gibi konular ele alındı. Bu görüşme, iki ülke arasındaki diplomatik temasların devamı niteliğindedir.
+
+## Güncelleme - 2026-08-18
+
+Dışişleri Bakanı Hakan Fidan, 18 Ağustos 2026 tarihinde Erbil'de IKBY Başkanı Mesud Barzani ile bir araya geldi. Görüşmede, bölgesel gelişmeler ve iki taraf arasındaki ilişkiler ele alındı. Bu görüşme, daha önce MİT Başkanı İbrahim Kalın'ın Barzani ile yaptığı görüşmelerin ardından Türkiye'nin IKBY ile olan diplomatik temaslarının devamı niteliğindedir.
