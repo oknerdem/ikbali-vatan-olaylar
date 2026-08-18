@@ -92,3 +92,7 @@ TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine ba
 ## Güncelleme - 2026-08-17 (2)
 
 TBMM Genel Kurulu'nda "Terörsüz Türkiye" yasa teklifinin görüşülmesine başlanmasıyla birlikte, sürecin hızlandığı gözlemleniyor. Ana muhalefet partisi lideri Kemal Kılıçdaroğlu'nun sürece katkı vereceklerini belirtmesi, teklifin yasalaşma ihtimalini güçlendiriyor. MHP Genel Başkanı Devlet Bahçeli, bu vizyonun bir devlet politikası olduğunu ve yasal düzenlemenin terörle mücadeleyi güçlendirmeye yönelik olduğunu vurgulayarak, "Terörsüz Türkiye"nin milletin ortak eseri olacağını ve gizli pazarlıklar içermediğini ifade etti.
+
+## Güncelleme - 2026-08-18
+
+MHP Genel Başkanı Devlet Bahçeli, "Terörsüz Türkiye" vizyonunun, gelecek Türk asırlarının müjdesi olduğunu ve bu hedefe ulaşılmasının, silah bırakmanın ötesinde, sırtını teröre dayandıran siyaset anlayışının da tarihe karışmasıyla mümkün olacağını belirtti. Bahçeli, "Terörsüz Türkiye"nin milletin eseri olacağını ve bu sürecin gizli pazarlıklar içermediğini vurgulayarak, bu vizyonun ekonomik refahın da stratejik anahtarı olduğunu ifade etti.
