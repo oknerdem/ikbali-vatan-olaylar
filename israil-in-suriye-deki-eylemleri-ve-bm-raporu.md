@@ -36,3 +36,7 @@ Türkiye, Suriye'deki feribot kazasında hayatını kaybedenler için taziye mes
 ## Güncelleme - 2026-08-18 (2)
 
 Saldırıya ilişkin olarak Türkiye Dışişleri Bakanlığı'ndan yapılan açıklamada, İsrail'in Suriye'ye yönelik eylemlerinin uluslararası hukukun açık bir ihlali olduğu belirtilerek en sert şekilde kınandığı ifade edildi. Açıklamada, İsrail'in saldırılarının bölgesel barış ve istikrarı tehdit ettiği vurgulandı.
+
+## Güncelleme - 2026-08-19
+
+Türkiye Dışişleri Bakanlığı, saldırıyı uluslararası hukukun açık bir ihlali olarak nitelendirerek en sert şekilde kınadı. Açıklamada, İsrail'in saldırılarının bölgesel barış ve istikrarı tehdit ettiği vurgulandı. ABD, iki müttefik arasında doğrudan bir çatışma riskinden endişe duyduğunu belirtirken, Birleşik Arap Emirlikleri (BAE) de saldırıları kınayan ülkeler arasında yer aldı.
