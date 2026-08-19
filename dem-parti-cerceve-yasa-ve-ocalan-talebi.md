@@ -110,3 +110,9 @@ Bu gelişme, daha önce DEM Parti'nin Abdullah Öcalan'ın durumu ve 'çerçeve 
 ## Güncelleme - 2026-08-13 (2)
 
 Irak Kürt Bölgesel Yönetimi (IKBY) Başkanı Neçirvan Barzani, TBMM'de kabul edilen 'çerçeve yasa' düzenlemesini 'cesur' bir adım olarak nitelendirerek övgüde bulundu. Bu değerlendirme, Türkiye'nin iç siyasetindeki önemli bir gelişmeye bölgesel bir aktörden gelen olumlu bir tepki olarak öne çıkıyor.
+
+## Güncelleme - 2026-08-19
+
+Abdullah Öcalan, CHP'li Özgür Özel'e hitaben yaptığı açıklamada, 'Demokrasinin yolu Silivri'den değil, İmralı'dan geçer' ifadesini kullanarak, Türkiye'deki siyasi süreçlere ve çözüm tartışmalarına dair mesajlar verdi. Bu açıklama, Öcalan'ın mevcut siyasi gündemdeki rolünü ve 'çerçeve yasa' gibi düzenlemelerle ilgili beklentilerini bir kez daha gündeme getirdi.
+
+Öcalan'ın bu çıkışı, 'çerçeve yasa'nın içeriği ve Abdullah Öcalan'ın fiziki özgürlüğü konusundaki tartışmaların devam ettiği bir dönemde geldi. PKK'nın yasa teklifini görmeden nihai tutumunu belirlemeyeceğini açıklaması ve yasa teklifinin içeriğinin siyasi partiler arasında farklı görüşlere neden olması, sürecin hassasiyetini ve belirsizliğini koruduğunu göstermektedir.
