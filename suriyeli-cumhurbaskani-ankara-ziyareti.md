@@ -52,3 +52,7 @@ Aynı günlerde, Şara'nın El Cezire'ye verdiği röportajda Golan Tepeleri'ne 
 Suriye Savunma Bakan Yardımcısı ve SDG'li Sipan Hemo, Türkiye'nin terör listesinden çıkarıldı. Bu gelişme, Türkiye'nin Suriye politikası ve bölgesel ilişkiler açısından önemli bir dönüm noktası olarak değerlendiriliyor.
 
 Bu durum, Suriye Cumhurbaşkanı Ahmed Şara'nın Ankara ziyaretinin ardından gelen ve Türkiye'nin terörle mücadele ve bölgesel aktörlerle ilişkilerindeki potansiyel bir yumuşamaya işaret eden bir gelişme olarak kayıtlara geçti.
+
+## Güncelleme - 2026-08-19
+
+Suriye'deki Ebu Zuhur Hava Üssü'ne yönelik İsrail saldırıları, Türkiye ile İsrail arasında çatışma riskini artırdı. İsrail Genelkurmay Başkanı Eyal Zamir'in Suriye'deki ziyaretinin zamanlaması da dikkat çekti. Bu gelişmeler, Türkiye'nin Suriye politikasını ve bölgesel dengeleri etkileyebilecek nitelikte olup, Ekim seçimleri öncesinde Suriye'de tehlikeli bir oyunun oynandığı ve Türkiye'nin bu duruma nasıl tepki vereceği merak ediliyor. İsrail'in Suriye'nin işgal altındaki bölgelerine yönelik eylemleri, Türkiye'nin sabrını zorladığı şeklinde yorumlanıyor.
