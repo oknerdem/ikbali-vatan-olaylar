@@ -202,3 +202,7 @@ AK Parti ve MHP'den gelen benzer vurgular, "Terörsüz Türkiye" hedefinin milli
 Aile ve Sosyal Hizmetler Bakanı Mahinur Özdemir Göktaş, "Terörsüz Türkiye" hedefinin stratejik bir öncelik olduğunu belirtti. Göktaş, terörün aileleri parçaladığını ve bu topraklarda büyük acılara neden olduğunu vurgulayarak, terörün karşısında en büyük güçlerinin aile olduğunu ifade etti. Bakan Göktaş, "Aile, bizim geleceğimiz. Aile bizim en güçlü yapımız" diyerek, aile bağlarının güçlendirilmesinin terörle mücadelede kilit rol oynadığını dile getirdi.
 
 Bu açıklamalar, "Terörsüz Türkiye" sürecinin sadece güvenlik odaklı bir politika olmadığını, aynı zamanda toplumsal dokuyu güçlendirmeyi hedefleyen bir vizyonu da içerdiğini göstermektedir. Ailelerin güçlendirilmesi yoluyla terörün toplumsal etkilerinin azaltılması amaçlanmaktadır.
+
+## Güncelleme - 2026-08-19
+
+TBMM'de kabul edilen Milli Dayanışma ve Toplumsal Bütünleşmenin Güçlendirilmesine Dair Kanun Teklifi, 'Terörsüz Türkiye' hedefinde tarihi bir dönüm noktası olarak değerlendiriliyor. 468 milletvekilinin oyuyla kabul edilen kanun, terörle mücadelede yeni bir dönemin başlangıcı olarak nitelendirildi. Adalet Bakanı Akın Gürlek, teklifin terör saldırısı talimatı verenleri veya güvenlik güçlerini şehit edenleri kapsamadığını, şehit aileleri ve gazilerin hassasiyetlerinin temel alındığını vurguladı.
