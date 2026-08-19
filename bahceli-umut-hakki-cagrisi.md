@@ -44,3 +44,9 @@ MHP Genel Başkanı Devlet Bahçeli, 12 Ağustos 2026'da yaptığı açıklamala
 ## Güncelleme - 2026-08-17
 
 MHP Genel Başkanı Devlet Bahçeli, 17 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın sürece katkı vermesini mümkün kılacak şartların oluşturulması gerektiğini belirtti. Bahçeli, bu açıklamayla daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaları yeniden alevlendirdi. Bu çağrı, siyasi çevrelerde ve kamuoyunda farklı yorumlara neden oldu.
+
+## Güncelleme - 2026-08-19
+
+MHP Genel Başkanı Devlet Bahçeli, 19 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' hedefinin artık somut adımlarla ilerlediğini belirtti. Bahçeli, bu sürecin siyasi bir irade beyanı olduğunu ve Türkiye'nin geleceği açısından taşıdığı önemi vurguladı. Bu açıklamalar, daha önce gündeme gelen 'umut hakkı' ve terörle mücadele konularındaki tartışmaların, 'terörsüz Türkiye' söylemi etrafında yeni bir boyuta taşındığını göstermektedir. Bahçeli'nin bu konudaki ısrarlı duruşu, siyasi gündemdeki yerini korumaktadır.
+
+Bu gelişmelerin ardından, 'terörsüz Türkiye' sürecini takip etmek üzere bir 'Takip Kurulu' oluşturulduğu ve ilk toplantısının 24 Ağustos'ta yapılacağı haberleri basına yansıdı. Bu kurulun, terörle mücadele ve ülkenin güvenliği konularında atılacak adımları koordine etmesi beklenmektedir. Bu adım, daha önce MHP liderinin gündeme getirdiği ve kamuoyunda tartışmalara yol açan 'umut hakkı' gibi konuların, devlet politikaları çerçevesinde nasıl ele alınacağına dair beklentileri artırmıştır.

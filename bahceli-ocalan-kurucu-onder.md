@@ -44,3 +44,7 @@ Bahçeli'nin bu yeni söylemi, terörle mücadeledeki kırmızı çizgileri ve '
 ## Güncelleme - 2026-08-18
 
 MHP Genel Başkanı Devlet Bahçeli, 18 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' sürecinin Türk asırlarının müjdesi olduğunu belirtti. Bahçeli, bu sürecin şiddetin bütünüyle bitirilmesini hedeflediğini ve illegal silahlı yapıların ortadan kaldırılması gerektiğini vurguladı. Ayrıca, 'Terörsüz Türkiye' yasasının Resmi Gazete'de yayımlanarak yürürlüğe girdiğini ve bu kapsamda kurulan 'Terörsüz Türkiye Kurulu'nun ilk toplantısını 24 Ağustos'ta yapacağını duyurdu. Bu gelişmeler, daha önceki Öcalan ile ilgili iddiaların aksine, terörle mücadeledeki kararlılığın ve yeni yasal düzenlemelerin altını çizmektedir.
+
+## Güncelleme - 2026-08-19
+
+Bu açıklamalar, İsrail'in Suriye'deki saldırıları ve bu saldırıların Türkiye'ye yönelik olduğu iddialarıyla eş zamanlı olarak geldi. İsrail'in Netanyahu Ofisi'nden yapılan açıklamada, Türkiye'nin Suriye'deki askeri varlığını engellemek amacıyla saldırının gerçekleştirildiği iddia edildi. Türkiye ise bu iddiaları yalanlayarak, İsrail'in tek amacının güvensizlik yaratmak olduğunu belirtti ve Suriye'nin istikrarsızlaştırılmasına izin vermeyeceklerini vurguladı. ABD Ankara Büyükelçisi'nin de çatışmasızlık mekanizmasının önemine dikkat çektiği bir dönemde, bu gelişmeler Türkiye'nin dış politikası ve bölgesel güvenlik açısından önemli bir boyut kazandı.

@@ -170,3 +170,7 @@ Bu gelişme, daha önce çeşitli CHP'li belediyelere yönelik yapılan operasyo
 Aydın'ın Kuşadası Belediyesi'ne yönelik yolsuzluk ve rüşvet iddiaları üzerine başlatılan operasyon genişleyerek devam etti. Üçüncü dalga olarak nitelendirilen operasyonda, aralarında belediye meclis üyeleri ve belediye personelinin de bulunduğu 15 kişi daha gözaltına alındı. Operasyonun, belediyenin imar ve ihale süreçlerindeki usulsüzlüklere odaklandığı ve daha önceki gözaltılarla bağlantılı olduğu belirtildi.
 
 Bu yeni gözaltılarla birlikte soruşturmanın kapsamı daha da genişlerken, Kuşadası Belediyesi'ndeki yolsuzluk iddialarına ilişkin soruşturmada toplam gözaltı sayısının arttığı öğrenildi. Operasyonun detayları ve gözaltı gerekçeleri hakkında resmi açıklamalar bekleniyor.
+
+## Güncelleme - 2026-08-19
+
+19 Ağustos 2026'da Adana merkezli olarak Furkan Vakfı'na yönelik bir operasyon düzenlendi. Operasyonda, vakfın kurucusu Alparslan Kuytul, eşi ve çok sayıda kişi gözaltına alındı. Gözaltı gerekçelerine dair detaylı bilgi henüz paylaşılmazken, operasyonun vakfın faaliyetleri ve iddialarla ilgili olduğu belirtildi. Bu gelişme, daha önce çeşitli siyasi ve toplumsal gruplara yönelik yapılan operasyonların bir devamı olarak değerlendiriliyor.
