@@ -40,3 +40,9 @@ Saldırıya ilişkin olarak Türkiye Dışişleri Bakanlığı'ndan yapılan aç
 ## Güncelleme - 2026-08-19
 
 Türkiye Dışişleri Bakanlığı, saldırıyı uluslararası hukukun açık bir ihlali olarak nitelendirerek en sert şekilde kınadı. Açıklamada, İsrail'in saldırılarının bölgesel barış ve istikrarı tehdit ettiği vurgulandı. ABD, iki müttefik arasında doğrudan bir çatışma riskinden endişe duyduğunu belirtirken, Birleşik Arap Emirlikleri (BAE) de saldırıları kınayan ülkeler arasında yer aldı.
+
+## Güncelleme - 2026-08-19 (2)
+
+18 Ağustos 2026 tarihinde İsrail'in Suriye'nin kuzeybatısındaki Ebu Zuhur Havaalanı'na düzenlediği hava saldırısı, Türkiye'den bir heyetin Suriye'ye ziyaretinin hemen ardından gerçekleşti. Bu saldırı, Türkiye'nin İsrail'in Suriye'deki eylemlerini uluslararası hukukun ihlali olarak nitelendirmesi ve en sert şekilde kınamasıyla karşılık buldu. Türkiye Dışişleri Bakanlığı, İsrail'in saldırılarının bölgesel barış ve istikrarı tehdit ettiğini vurguladı.
+
+Saldırılara uluslararası tepkiler de gecikmedi. ABD, iki müttefik arasında doğrudan bir çatışma riskinden endişe duyduğunu belirtirken, Birleşik Arap Emirlikleri (BAE) de saldırıları kınayan ülkeler arasında yer aldı. İsrail ise saldırıların gerekçelerini açıklayarak Suriye'yi Türkiye konusunda daha önce uyardığını iddia etti. Bu gelişmeler üzerine ABD'nin, İsrail-Türkiye-Suriye arasında bir çatışma önleme mekanizması kurma girişimleri de gündeme geldi.

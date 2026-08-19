@@ -36,3 +36,9 @@ Anlaşmanın detayları henüz tam olarak açıklanmamış olsa da, kültürel a
 Türkiye Cumhuriyet Merkez Bankası (TCMB) ile Suriye Merkez Bankası arasında 29 Temmuz 2026 tarihinde "Türk Lirası Mevduat Hesabı Anlaşması" imzalandı. Bu anlaşma, iki ülke arasındaki finansal ve ekonomik ilişkilerde yeni bir dönemin başlangıcını temsil etmektedir.
 
 Bu gelişme, daha önce yükseköğretim, sağlık, güvenlik ve kültür alanlarında atılan iş birliği adımlarının ardından, Türkiye ve Suriye arasındaki ilişkilerin ekonomik boyutunu da güçlendirmektedir. Anlaşmanın, bölgesel ekonomik entegrasyon ve finansal istikrar açısından önemli etkileri olması beklenmektedir.
+
+## Güncelleme - 2026-08-19
+
+19 Ağustos 2026 tarihinde Türkiye ve Suriye arasında madencilik ve enerji alanlarında stratejik işbirliği anlaşmaları imzalandı. Bu anlaşmalar kapsamında, özellikle fosfat madenciliği ve enerji projeleri üzerine mutabakat zabıtları ve işbirliği protokolleri hayata geçirildi. Bu gelişmeler, iki ülke arasındaki ekonomik ve stratejik ilişkilerin derinleştiğini göstermektedir.
+
+Bu yeni anlaşmalar, daha önce yükseköğretim, sağlık, güvenlik ve kültür alanlarında atılan adımların ardından, Türkiye ve Suriye arasındaki işbirliğinin madencilik ve enerji gibi kritik sektörlere de yayıldığını teyit etmektedir. Bölgesel istikrar ve ekonomik kalkınma açısından önemli bir adım olarak değerlendirilen bu işbirlikleri, iki ülke arasındaki ilişkilerde yeni bir dönemin başlangıcını işaret ediyor.
