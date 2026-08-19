@@ -10,3 +10,41 @@ MHP Genel Başkanı Devlet Bahçeli'nin, terör örgütü PKK lideri Abdullah Ö
 Kamuoyuna sızan bilgilere göre Bahçeli, örgüt tabanını ikna edebilmek için kullanılan dilin yumuşatılması gerektiğini savundu. Ancak bu tavır, MHP'ye gönül vermiş milyonlarca seçmen tarafından "ihanet" olarak yorumlandı. Sosyal medyada "Başbuğ'un kemikleri sızlıyor" etiketiyle tepkiler çığ gibi büyürken, parti içindeki muhalif sesler de yükselmeye başladı.
 
 Yıllarca "bebek katili" dediği teröristbaşına "kurucu önder" gibi meşrulaştırıcı bir sıfatın yakıştırılması, devletin terörle mücadeledeki kırmızı çizgilerinin tamamen silindiği şeklinde yorumlanıyor.
+
+## Güncelleme - 2026-05-23
+
+MHP Genel Başkanı Devlet Bahçeli, 23 Mayıs 2026'da yaptığı açıklamalarda, 'terörsüz Türkiye' vurgusu yaparak bunun gelecek nesillerin refahı adına alınmış tarihi bir sorumluluk olduğunu belirtti. Bu açıklama, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin söyleminde bir değişiklik olarak yorumlandı.
+
+Bahçeli'nin bu yeni çıkışı, terörle mücadeledeki kararlılığın altını çizerken, geçmişteki iddiaların aksine, terörün kaynağına ve unsurlarına karşı net bir duruş sergilediği şeklinde değerlendirildi. Bu durum, siyasi çevrelerde ve kamuoyunda farklı yorumlara neden oldu.
+
+## Güncelleme - 2026-06-09
+
+MHP Genel Başkanı Devlet Bahçeli, 9 Haziran 2026'da yaptığı açıklamalarda, terörle mücadelenin kararlılıkla sürdürüleceğini ve 'terörsüz bir Türkiye'nin milli varlığın zırhı olduğunu vurguladı. Bu ifadeler, daha önce Abdullah Öcalan için 'kurucu önder' gibi söylemler kullandığı iddialarıyla gündeme gelen Bahçeli'nin, terörle mücadele konusundaki duruşunu yeniden netleştirdiği şeklinde yorumlandı.
+
+Bahçeli'nin bu açıklamaları, özellikle CHP Genel Başkanı Özgür Özel'e yönelik bir çağrı olarak da değerlendirildi. Terörün kaynağına ve unsurlarına karşı sergilenen bu net duruş, siyasi çevrelerde ve kamuoyunda farklı değerlendirmelere yol açtı. Bahçeli'nin bu çıkışı, geçmişteki iddiaların aksine, terörle mücadeledeki kararlılığını ve kırmızı çizgilerini yeniden teyit ettiği şeklinde yorumlandı.
+
+## Güncelleme - 2026-08-04
+
+MHP Genel Başkanı Devlet Bahçeli, 4 Ağustos 2026'da yaptığı açıklamalarda, 'terörsüz Türkiye' hedefi doğrultusunda atılan adımları ve imzaları vurguladı. Bu vurgu, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin, terörle mücadeledeki kararlılığını ve milli birlik vurgusunu pekiştirdiği şeklinde yorumlandı.
+
+Bahçeli'nin bu açıklamaları, MHP'nin terörle mücadeledeki kırmızı çizgilerini ve 'terörsüz Türkiye' vizyonunu bir kez daha ortaya koyarken, siyasi çevrelerde ve kamuoyunda bu duruşun önemi üzerinde duruldu.
+
+## Güncelleme - 2026-08-14
+
+MHP Genel Başkanı Devlet Bahçeli, 13 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' hedefi doğrultusunda hazırlanan yeni bir türküyü kamuoyu ile paylaştı. "Terörsüz Türkiye Dünyaya Sestir" sloganıyla duyurulan bu adım, parti tarafından terörle mücadeledeki kararlılığın bir göstergesi olarak sunuldu.
+
+Bu gelişme, daha önce Abdullah Öcalan için 'kurucu önder' ifadesini kullandığı iddialarıyla gündeme gelen Bahçeli'nin söylemindeki bir dönüşüm olarak yorumlandı. MHP'nin bu yeni teması ve hazırlanan türkü, parti politikalarının ve terörle mücadeledeki güncel duruşunun arşivlenmesi açısından önem taşıyor.
+
+## Güncelleme - 2026-08-17
+
+MHP Genel Başkanı Devlet Bahçeli, 17 Ağustos 2026'da yaptığı açıklamalarda, Abdullah Öcalan'ın sürece katkı vermesini sağlayacak şartların oluşturulması gerektiğini belirtti. Bahçeli, 'terörsüz Türkiye' hedefinin milli varlığın zırhı olduğunu vurgulayarak, bu sürecin kapalı kapılar ardında yürütülen bir pazarlık olmadığını ifade etti. Bu açıklamalar, daha önceki 'kurucu önder' iddialarıyla çelişki yaratırken, terörle mücadeledeki kararlılığın ve milli birlik vurgusunun pekiştirildiği şeklinde yorumlandı.
+
+Bahçeli'nin bu yeni söylemi, terörle mücadeledeki kırmızı çizgileri ve 'terörsüz Türkiye' vizyonunu yeniden ortaya koyarken, siyasi çevrelerde ve kamuoyunda bu duruşun önemi üzerinde duruldu. Açıklamalar, özellikle TBMM'de kabul edilen ve bir af düzenlemesi olmadığı vurgulanan yasal süreçle birlikte değerlendirildi.
+
+## Güncelleme - 2026-08-18
+
+MHP Genel Başkanı Devlet Bahçeli, 18 Ağustos 2026'da yaptığı açıklamalarda, 'Terörsüz Türkiye' sürecinin Türk asırlarının müjdesi olduğunu belirtti. Bahçeli, bu sürecin şiddetin bütünüyle bitirilmesini hedeflediğini ve illegal silahlı yapıların ortadan kaldırılması gerektiğini vurguladı. Ayrıca, 'Terörsüz Türkiye' yasasının Resmi Gazete'de yayımlanarak yürürlüğe girdiğini ve bu kapsamda kurulan 'Terörsüz Türkiye Kurulu'nun ilk toplantısını 24 Ağustos'ta yapacağını duyurdu. Bu gelişmeler, daha önceki Öcalan ile ilgili iddiaların aksine, terörle mücadeledeki kararlılığın ve yeni yasal düzenlemelerin altını çizmektedir.
+
+## Güncelleme - 2026-08-19
+
+Bu açıklamalar, İsrail'in Suriye'deki saldırıları ve bu saldırıların Türkiye'ye yönelik olduğu iddialarıyla eş zamanlı olarak geldi. İsrail'in Netanyahu Ofisi'nden yapılan açıklamada, Türkiye'nin Suriye'deki askeri varlığını engellemek amacıyla saldırının gerçekleştirildiği iddia edildi. Türkiye ise bu iddiaları yalanlayarak, İsrail'in tek amacının güvensizlik yaratmak olduğunu belirtti ve Suriye'nin istikrarsızlaştırılmasına izin vermeyeceklerini vurguladı. ABD Ankara Büyükelçisi'nin de çatışmasızlık mekanizmasının önemine dikkat çektiği bir dönemde, bu gelişmeler Türkiye'nin dış politikası ve bölgesel güvenlik açısından önemli bir boyut kazandı.

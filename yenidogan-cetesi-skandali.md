@@ -10,3 +10,7 @@ Türkiye, tarihinin en korkunç sağlık skandallarından biriyle sarsıldı. "Y
 Soruşturma kapsamında aralarında doktor ve hemşirelerin de bulunduğu çok sayıda kişi tutuklandı. Ancak skandalın boyutları, denetimsizliğin ve özelleştirmenin sağlık sistemini nasıl çürüttüğünü gözler önüne serdi. Ailelerin feryatları yürekleri dağlarken, Sağlık Bakanlığı'nın ihmali tartışma konusu oldu.
 
 Bu olay, "vatan savunmasının" sadece sınır boylarında değil, hastane koridorlarında, ahlak ve vicdan nöbetinde de yapılması gerektiğini acı bir şekilde hatırlattı. Parayı insan canına tercih eden bu zihniyet, toplumsal çürümenin en somut göstergesi oldu.
+
+## Güncelleme - 2026-07-14
+
+Yenidoğan Çetesi davasında yeni bir gelişme yaşandı. Davanın duruşması 12 Ekim'e ertelenirken, mahkeme ara kararını da açıkladı. Bu erteleme ve ara karar, davanın yargı sürecindeki ilerleyişi hakkında bilgi vermektedir.

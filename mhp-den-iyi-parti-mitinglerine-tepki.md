@@ -1,0 +1,56 @@
+---
+title: "MHP'den İYİ Parti Mitinglerine Tepki: 'Boş Sloganlarla Terörsüz Türkiye İradesi Durdurulamaz'"
+date: "2026-06-28"
+category: "Siyasi"
+img: "https://img.haberankara.com/rcman/Cw1280h720q95gc/storage/files/images/2026/08/10/yeni-parti-genel-baskani-ozel-terorsuz-turkiye-yasa-teklifine-evet-diyeceklerini-acikladi-eyyb.jpg"
+---
+
+MHP'li yetkililer, İYİ Parti'nin düzenlediği mitinglere sert tepki gösterdi. MHP'li bir isim, İYİ Parti mitinglerini kast ederek, "Milletin terörsüz Türkiye iradesini meydanlardan yükselen boş sloganlarla durduramazsınız" ifadelerini kullandı.
+
+Bu açıklamalar, siyasi partiler arasındaki terörle mücadele ve ülke gündemine dair söylem farklılıklarını gözler önüne serdi. MHP, İYİ Parti'nin mitinglerde kullandığı sloganları eleştirerek, bu tür yaklaşımların terörle mücadeledeki milli iradeyi baltaladığını iddia etti.
+
+Siyasi tansiyonun yükseldiği bu dönemde, partiler arasındaki polemikler, ülke siyasetinin gündemindeki yerini korumaya devam ediyor. MHP'nin bu sert çıkışı, İYİ Parti'nin mitinglerine yönelik siyasi bir eleştiri olarak değerlendiriliyor.
+
+## Güncelleme - 2026-06-28
+
+MHP Milletvekili Mehmet Işıkver, İYİ Parti mitinglerindeki sloganlara yönelik sert eleştirilerde bulunarak, "Bölücü de ayrıştırıcı da terörist de sizsiniz" ifadelerini kullandı. Bu açıklama, siyasi partiler arasındaki gerilimin arttığı bir dönemde, terör söyleminin siyasi tartışmalarda kullanılma biçimine dair önemli bir örnek teşkil etmektedir.
+
+Bu karşılıklı söylemler, Türkiye'nin siyasi atmosferindeki kutuplaşmayı ve terör konusunun siyasi malzeme olarak kullanılmasına yönelik eleştirileri de beraberinde getirmektedir. İYİ Parti'nin mitinglerinde dile getirilen mesajların MHP tarafından terörle ilişkilendirilmesi, siyasi rekabetin sertleştiği bir zeminde dikkat çekmektedir.
+
+## Güncelleme - 2026-07-03
+
+AK Parti'nin TBMM'ye sunduğu ve 'terörsüz Türkiye' hedefiyle ilişkilendirilen 'Kandil şartı' düzenlemesi, siyasi tartışmaları daha da alevlendirdi. DSP Genel Başkanı Önder Aksakal'ın NATO zirvesiyle ilgili yaptığı açıklamalar ve teröristlerin koşulsuz teslim olması gerektiği yönündeki çağrısı, Türkiye'nin terörle mücadeledeki ulusal ve uluslararası stratejilerine dair farklı yaklaşımları ortaya koydu. Bu gelişmeler, terörle mücadele konusunun siyasi söylemlerdeki yerini ve önemini bir kez daha gözler önüne serdi.
+
+## Güncelleme - 2026-07-22
+
+İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun, "Terörsüz Türkiye" süreci ve bazı gerçeklerin saklandığına dair iddiaları, siyasi gündemde yer buldu. Dervişoğlu, terör örgütünün dayatmasıyla hazırlanan düzenlemelere karşı çıkacaklarını belirtti. Bu açıklamalar, MHP'nin daha önceki tepkileriyle birlikte değerlendirildiğinde, partiler arasındaki söylem farklılıklarını ve terör konusunun siyasi tartışmalardaki ağırlığını bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-04
+
+AK Parti, 'Terörsüz Türkiye' hedefiyle hazırladığı düzenleme kapsamında muhalefet partilerini ziyaret etmeye başladı. Bu ziyaretler, daha önce MHP'nin İYİ Parti mitinglerine yönelik eleştirileri ve İYİ Parti Genel Başkanı Müsavat Dervişoğlu'nun 'terörsüz Türkiye' süreciyle ilgili iddiaları göz önüne alındığında, siyasi tansiyonu daha da artırdı. Partiler arasındaki bu söylem farklılıkları, terör konusunun siyasi tartışmalardaki merkezi rolünü ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği ortaya koymaktadır.
+
+## Güncelleme - 2026-08-10
+
+TBMM'de 'Terörsüz Türkiye' hedefiyle hazırlanan düzenlemenin görüşülmeye başlanması, siyasi tartışmaları daha da alevlendirdi. Bu süreçte, MHP'li yetkililer İYİ Parti'nin mitinglerdeki söylemlerini eleştirmeye devam ederken, İYİ Parti de "Terörle pazarlık yapılmaz" vurgusuyla kendi duruşunu korudu. Parlamenterler Derneği gibi kurumlar ise "Terörsüz Türkiye"nin ülkeye tarihi fırsatlar sunacağı yönünde destek mesajları verdi. Bu gelişmeler, terörle mücadelenin siyasi söylemlerdeki yerini ve farklı partilerin bu konuya yaklaşımındaki çeşitliliği bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-08-10 (2)
+
+İYİ Parti ve Demokrat Parti'nin çeşitli il teşkilatlarından, TBMM'ye sunulan ve "terörsüz Türkiye" hedefiyle ilişkilendirilen düzenlemeye yönelik tepkiler gelmeye devam etti. Bu partilerin temsilcileri, "teröristle müzakere edilmez" ve "terör örgütüne imtiyaz kabul edilemez" gibi ifadelerle düzenlemeye karşı çıktıklarını belirttiler.
+
+Bu gelişmeler, MHP'nin daha önceki İYİ Parti mitinglerine yönelik eleştirileriyle birlikte değerlendirildiğinde, terörle mücadele konusunun siyasi partiler arasındaki söylem farklılıklarında merkezi bir rol oynamaya devam ettiğini göstermektedir. Farklı partilerin bu konuya yaklaşımındaki çeşitlilik ve bu konunun siyasi tartışmalardaki ağırlığı bir kez daha ortaya konulmuştur.
+
+## Güncelleme - 2026-08-10 (3)
+
+TBMM'de 'Terörsüz Türkiye' hedefiyle sunulan kanun teklifinin görüşmelerine başlanması, siyasi tartışmaları daha da alevlendirdi. MHP'li yetkililer, İYİ Parti'nin mitinglerdeki söylemlerini eleştirmeye devam ederken, İYİ Parti de "Terörle pazarlık yapılmaz" vurgusuyla kendi duruşunu korudu. Bu süreçte, Parlamenterler Derneği gibi kurumlar, "Terörsüz Türkiye"nin ülkeye tarihi fırsatlar sunacağı yönünde destek mesajları verdi. Farklı partilerin bu konuya yaklaşımındaki çeşitlilik ve terörle mücadelenin siyasi söylemlerdeki merkezi rolü bir kez daha ortaya konuldu.
+
+İYİ Parti ve Demokrat Parti'nin çeşitli il teşkilatlarından da "terörsüz Türkiye" hedefiyle ilişkilendirilen düzenlemeye yönelik tepkiler geldi. Bu partilerin temsilcileri, "teröristle müzakere edilmez" ve "terör örgütüne imtiyaz kabul edilemez" gibi ifadelerle düzenlemeye karşı çıktıklarını belirttiler. Bu gelişmeler, MHP'nin daha önceki İYİ Parti mitinglerine yönelik eleştirileriyle birlikte değerlendirildiğinde, terörle mücadele konusunun siyasi partiler arasındaki söylem farklılıklarında merkezi bir rol oynamaya devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-08-12
+
+AK Parti Milletvekili Şebnem Bursalı'nın, Abdullah Öcalan'a yönelik olumlu ifadeler kullanması ve "Allah razı olsun" demesi, siyasi gündemde geniş yankı buldu. Bu açıklama, terörle mücadele ve çözüm süreci gibi hassas konularda farklı siyasi partilerin yaklaşımlarını ve bu konudaki söylem farklılıklarını bir kez daha gözler önüne serdi. Öte yandan, BBP Genel Başkanı Mustafa Destici de DEM Parti'nin bazı açıklamalarına tepki göstererek, terörle müzakere edilemeyeceğini vurguladı. Bu gelişmeler, Türkiye'nin terörle mücadelesindeki siyasi ve toplumsal hassasiyetleri ve bu konunun siyasi tartışmalardaki yerini belirginleştirdi.
+
+## Güncelleme - 2026-08-14
+
+MHP, "Terörsüz Türkiye" hedefiyle hazırlanan yeni bir şarkıyı sosyal medya hesaplarından paylaştı. Sözlerini Canfer Balçık'ın yazdığı ve "Terörsüz Türkiye Dünyaya Sestir" adını taşıyan bu eser, partinin terörle mücadele konusundaki duruşunu ve bu konudaki hassasiyetini vurgulamayı amaçlıyor.
+
+Bu gelişme, daha önce İYİ Parti'nin mitinglerine yönelik eleştirileri ve "terörsüz Türkiye" söyleminin siyasi tartışmalardaki yerini göz önünde bulundurulduğunda, MHP'nin bu konudaki aktif tutumunu ve söylem çeşitliliğini göstermektedir. Şarkının paylaşılması, partinin bu konudaki mesajını daha geniş kitlelere ulaştırma çabası olarak yorumlanabilir.

@@ -1,0 +1,62 @@
+---
+title: MİT'ten Suriye'de DEAŞ Operasyonu: 10 Terörist Yakalandı
+date: "2026-05-23"
+category: "Terör"
+img: "https://img3.aksam.com.tr/imgsdisk/2026/05/24/t25_gar-katliaminin-failleri--775.jpg"
+---
+
+Milli İstihbarat Teşkilatı (MİT), Suriye'de terör örgütü DEAŞ'a yönelik başarılı bir operasyon düzenledi. Operasyonda, kırmızı bültenle aranan ve Türkiye'de eylemler planladığı tespit edilen 10 DEAŞ mensubu terörist yakalandı.
+
+Güvenlik güçleri tarafından Türkiye'ye getirilen teröristlerin sorgularının sürdüğü bildirildi. Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki etkinliğini bir kez daha gözler önüne serdiği belirtildi. Ankara Garı katliamı gibi eylemlerle bağlantılı olduğu iddia edilen kişilerin de yakalananlar arasında olduğu haberlerde yer aldı.
+
+## Güncelleme - 2026-05-23
+
+Milli İstihbarat Teşkilatı (MİT) tarafından Suriye'de DEAŞ terör örgütüne yönelik gerçekleştirilen operasyonda yakalanan ve Türkiye'ye getirilen 10 teröristin sorgusu devam ediyor. Yakalanan şahıslar arasında, Türkiye'de eylemler planladığı tespit edilen ve kırmızı bültenle aranan kişilerin bulunduğu belirtildi.
+
+Operasyonun, terörle mücadele kapsamında MİT'in sınır ötesindeki istihbarat ve operasyonel kabiliyetini bir kez daha ortaya koyduğu vurgulandı. Bazı haber kaynaklarında, yakalanan teröristlerin Ankara Garı'ndaki bombalı saldırı gibi eylemlerle bağlantılı olabileceği iddialarına yer verildi.
+
+## Güncelleme - 2026-06-06
+
+Milli İstihbarat Teşkilatı (MİT) ve Emniyet Genel Müdürlüğü'nün ortaklaşa yürüttüğü operasyonda, Fransa'nın terör suçlamasıyla aradığı bir şüphelinin İstanbul'da yakalandığı bildirildi. Bu gelişme, daha önce Suriye'de DEAŞ'a yönelik düzenlenen operasyonda yakalanan 10 teröristle ilgili yürütülen soruşturmalar kapsamında değerlendiriliyor.
+
+Yakalanan şüphelinin, Türkiye'deki terör eylemleriyle bağlantısı olabileceği yönündeki iddialar üzerine detaylı incelemelerin sürdüğü öğrenildi. Operasyonun, MİT'in sınır ötesindeki istihbarat ağının etkinliğini ve uluslararası iş birliğinin önemini bir kez daha ortaya koyduğu belirtildi.
+
+## Güncelleme - 2026-06-16
+
+Terörle mücadele kapsamında, MLKP terör örgütüne yönelik finansman sağladığı iddia edilen şahıslara yönelik operasyonlar düzenlendi. İstanbul'da MASAK ve HTS kayıtları üzerinden yapılan incelemeler sonucunda, Marksist Teori Dergisi ile bağlantılı olduğu düşünülen bir şüpheli yakalandı. Bu operasyon, terör örgütlerinin finans kaynaklarını kurutmaya yönelik devam eden çalışmaların bir parçası olarak değerlendiriliyor.
+
+Bu gelişme, daha önce Suriye'de DEAŞ'a yönelik gerçekleştirilen ve 10 teröristin yakalandığı operasyonla birlikte, MİT'in terörle mücadeledeki çok yönlü etkinliğini ve farklı terör örgütlerine karşı sürdürdüğü kararlı duruşu gözler önüne seriyor. Uluslararası düzeyde de iş birliği ile yürütülen bu tür operasyonlar, terörün finansman ağlarının çökertilmesinde kritik rol oynuyor.
+
+## Güncelleme - 2026-06-17
+
+Milli İstihbarat Teşkilatı (MİT), terör örgütü DEAŞ'a yönelik sınır ötesinde yeni bir operasyon gerçekleştirdi. Operasyonda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimlerin yakalandığı bildirildi. Bu operasyon, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğinde.
+
+Yakalanan şahısların sorgularının devam ettiği ve eylemlere ilişkin detayların incelendiği öğrenildi. MİT'in, terör örgütlerinin propaganda ve eylem planlaması gibi kritik faaliyetlerini engellemeye yönelik operasyonlarını sürdürdüğü vurgulandı.
+
+## Güncelleme - 2026-06-19
+
+Milli İstihbarat Teşkilatı (MİT) tarafından Suriye'de DEAŞ terör örgütüne yönelik düzenlenen operasyonlarda yakalanan ve Türkiye'ye getirilen şahıslarla ilgili yeni gelişmeler yaşandı. Operasyonlarda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimlerin yakalandığı ve Konya'da tutuklandığı bildirildi. Bu tutuklamalar, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğinde.
+
+## Güncelleme - 2026-07-13
+
+Milli İstihbarat Teşkilatı (MİT), DEAŞ terör örgütüne yönelik sınır ötesinde yeni bir operasyon gerçekleştirdi. Operasyonda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimler yakalandı. Bu operasyon, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğindedir.
+
+## Güncelleme - 2026-07-13 (2)
+
+Milli İstihbarat Teşkilatı (MİT), terör örgütü DEAŞ'a yönelik Suriye'de yeni bir operasyon düzenledi. Operasyonda, örgütün sözde Türkiye medya sorumlusu olduğu belirtilen Ahmet Kazancı'nın da aralarında bulunduğu önemli isimler yakalandı. Yakalanan şahıslar arasında sarı bültenle aranan ve Türkiye'ye getirilen Talip Güler'in de bulunduğu bildirildi.
+
+Operasyonun, MİT'in DEAŞ'ın Türkiye'deki yapılanmasına yönelik sürdürdüğü istihbarat ve operasyonel faaliyetlerin bir devamı niteliğinde olduğu vurgulandı. Yakalanan şahısların sorgularının devam ettiği ve eylemlere ilişkin detayların incelendiği öğrenildi. Bu gelişme, terörle mücadele kapsamında MİT'in sınır ötesindeki etkinliğini ve uluslararası iş birliğinin önemini bir kez daha ortaya koydu.
+
+## Güncelleme - 2026-07-21
+
+Milli İstihbarat Teşkilatı (MİT), Bodrum'da kırmızı bültenle aranan ve Türkiye'de eylemler planladığı tespit edilen bir teröristi başarılı bir operasyonla yakaladı. Operasyonun detayları ve yakalanan teröristin kimliği hakkında bilgiler gelmeye devam ediyor.
+
+Bu gelişme, MİT'in terörle mücadeledeki kararlılığını ve sınır ötesindeki operasyonel kabiliyetini bir kez daha gösterirken, daha önce Suriye'de DEAŞ'a yönelik düzenlenen operasyonlarla da bağlantılı olabileceği değerlendiriliyor. Yakalanan teröristin sorgusu sürüyor.
+
+## Güncelleme - 2026-08-17
+
+Kırşehir'de kırmızı bültenle aranan Irak uyruklu bir terör şüphelisi yakalandı. Yakalanan şüphelinin Türkiye'de eylem planladığı tespit edildiği belirtildi. Bu gelişme, MİT'in terörle mücadele kapsamında yürüttüğü operasyonların bir parçası olarak değerlendiriliyor.
+
+## Güncelleme - 2026-08-17 (2)
+
+Kırşehir'de kırmızı bültenle aranan Irak uyruklu bir terör şüphelisi yakalandı. Yapılan tespitlere göre şüphelinin Türkiye'de eylem planladığı belirlendi. Bu gelişme, Milli İstihbarat Teşkilatı'nın (MİT) terörle mücadele kapsamındaki operasyonlarının bir parçası olarak kayıtlara geçti.

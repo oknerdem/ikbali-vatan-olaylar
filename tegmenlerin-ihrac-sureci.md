@@ -10,3 +10,15 @@ Kara Harp Okulu mezuniyet töreninde geleneksel "kılıç çatma" seremonisini g
 İhraç edilen teğmenler arasında dönem birincisinin de bulunması, kararın liyakatten ziyade ideolojik saiklerle alındığı şüphelerini güçlendirdi. "Mustafa Kemal'in askeri olmak suç değildir" diyen milyonlarca vatandaş, karara tepki gösterdi.
 
 Bu olay, TSK içindeki tarikat ve cemaat yapılanmalarının etkisinin arttığı iddialarını yeniden gündeme getirdi. Atatürk'ün ordusunda Atatürk'e bağlılık yeminini suç sayan bir zihniyetin egemen olması, geleceğe dair kaygıları artırıyor.
+
+## Güncelleme - 2026-06-06
+
+Son günlerde siyasi arenada yaşanan gelişmeler, daha önceki ihraç süreçleriyle paralellikler taşıyor. CHP Milletvekili Orhan Sarıbal'ın Halkevleri'nden ihraç edilmesi, parti içindeki dinamiklerde önemli bir gelişme olarak kayıtlara geçti. Bu durum, siyasi partilerin kendi iç işleyişleri ve üyelik standartları hakkında da tartışmaları beraberinde getirdi.
+
+Öte yandan, CHP Genel Başkanı Özgür Özel'in programını iptal ederek Türkiye Büyük Millet Meclisi'ne (TBMM) gitmesi, siyasi kulislerde dikkatle takip edildi. Bu beklenmedik gelişmenin ardında yatan nedenler ve olası siyasi etkileri henüz tam olarak netleşmese de, parti içindeki hareketliliğin arttığı gözlemleniyor.
+
+## Güncelleme - 2026-06-19
+
+Kara Harp Okulu'ndaki 'kılıçlı yemin' töreni sonrası ihraç edilen 3 komutanın görevlerine iade edilmesine karar verildi. Bu gelişme, daha önce ihraç edilen teğmenler ve komutanlar hakkındaki hukuki süreçlerde yeni bir dönüm noktası olarak değerlendiriliyor. Kararın, TSK bünyesindeki disiplin süreçleri ve geçmişteki ihraç kararlarının yeniden gözden geçirilmesi açısından önemli olduğu belirtiliyor.
+
+Bu iade kararları, 'kılıçlı yemin' olayıyla ilgili hukuki ve idari süreçlerin devam ettiğini gösteriyor. İhraç edilen diğer personel hakkında da benzer hukuki yolların izlenebileceği ve bu kararların emsal teşkil edebileceği yorumları yapılıyor.

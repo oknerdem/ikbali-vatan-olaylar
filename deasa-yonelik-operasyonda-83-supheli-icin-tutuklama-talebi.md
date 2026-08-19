@@ -1,0 +1,90 @@
+---
+title: "DEAŞ Operasyonunda 83 Şüpheli İçin Tutuklama Talebi"
+date: "2026-05-22"
+category: "Terör"
+img: "https://www.haber1.com/wp-content/uploads/2026/05/mersin-merkezli-7-ilde-duzenlenen-yasa-disi-bahis-operasyonunda-28-zanli-tutuklandi_d1bad3e8d207.jpg"
+---
+
+İstanbul merkezli üç ilde DEAŞ'a yönelik operasyon düzenlendi. Operasyonda gözaltına alınan 83 şüpheli hakkında tutuklama talebinde bulunuldu.
+
+Güvenlik güçleri, terör örgütü DEAŞ'ın faaliyetlerini engellemeye yönelik çalışmalarını sürdürüyor. Bu kapsamda gerçekleştirilen operasyonda çok sayıda şüpheli yakalandı. Adli makamlara sevk edilen şüpheliler hakkında tutuklama istemiyle mahkemeye sevk edildiği öğrenildi.
+
+## Güncelleme - 2026-05-23
+
+İstanbul merkezli 3 ilde DEAŞ terör örgütüne yönelik düzenlenen operasyonda gözaltına alınan 83 şüpheli hakkında tutuklama talebinde bulunulduğu bildirildi.
+
+Operasyonun, terör örgütünün faaliyetlerini engellemeye yönelik sürdürülen çalışmalar kapsamında gerçekleştirildiği ve adli makamlara sevk edilen şüphelilerle ilgili tutuklama isteminin mahkemeye iletildiği öğrenildi.
+
+## Güncelleme - 2026-05-24
+
+Osmaniye merkezli 4 ilde düzenlenen operasyonda 52 şüpheli tutuklandı. Gaziantep'te ise DEAŞ operasyonunda bir kişi tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-05-25
+
+Osmaniye merkezli olarak düzenlenen "Yapay Zeka 2" operasyonunda ise 11 şüpheli tutuklandı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-06
+
+Türkiye genelinde 39 ilde eş zamanlı olarak düzenlenen operasyonlarda DEAŞ terör örgütüyle bağlantılı olduğu tespit edilen 361 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan operasyonun devamı niteliğinde değerlendiriliyor. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+Bu geniş çaplı operasyonlar, terör örgütlerinin finansal ve faaliyet ağlarını çökertmeye yönelik önemli bir adım olarak kayıtlara geçti. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-06-15
+
+Zonguldak merkezli olarak 3 ilde eş zamanlı düzenlenen terör örgütü operasyonunda gözaltına alınan 4 öğrenciden 3'ü tutuklandı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+Operasyonların, terör örgütlerinin faaliyetlerini engellemeye yönelik sürdürülen çalışmalar kapsamında gerçekleştirildiği ve gözaltına alınan şüphelilerle ilgili adli süreçlerin devam ettiği öğrenildi.
+
+## Güncelleme - 2026-06-18
+
+Bu gelişmenin ardından, Türkiye genelinde 39 ilde eş zamanlı olarak düzenlenen operasyonlarda DEAŞ terör örgütüyle bağlantılı olduğu tespit edilen 361 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan operasyonun devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-06-19
+
+Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Yakalanan şüphelilerin örgüte eleman kazandırma, propaganda yapma ve finansal destek sağlama gibi çeşitli suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-06-19 (2)
+
+Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. İstanbul Havalimanı'nda hanutçuluk yapanlara yönelik operasyonda ise 12 şüpheli tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-23
+
+Şanlıurfa'da terör örgütü DEAŞ'a yönelik operasyonda gözaltına alınan zanlılardan 2'si tutuklandı. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-06-23 (2)
+
+Ankara merkezli olarak terör örgütlerine yönelik düzenlenen operasyonda 209 şüpheli gözaltına alındı. Bu gelişme, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı. Gözaltına alınan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-06-24
+
+Ankara ve Diyarbakır'da terör örgütlerine yönelik düzenlenen operasyonlarda 31 şüpheli yakalandı. Ayrıca, sosyal medyada terör örgütü propagandası yapanlara yönelik jandarma tarafından operasyonlar gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli operasyonda 83 şüpheli hakkında tutuklama talebinde bulunulmasının ardından yaşandı.
+
+## Güncelleme - 2026-06-26
+
+Türkiye genelinde 81 ilde eş zamanlı olarak düzenlenen ve sokak çeteleri ile organize suç örgütlerini hedef alan operasyonlarda toplam 841 şüpheli hakkında işlem yapıldı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
+
+Operasyonlarda yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele ve organize suçlarla mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi. Bu geniş çaplı operasyonlar, suç örgütlerinin faaliyetlerini engellemeye yönelik önemli bir adım olarak kayıtlara geçti.
+
+## Güncelleme - 2026-07-01
+
+Düzce ve Bursa'da terör örgütü IŞİD'e yönelik düzenlenen operasyonda 13 kişi gözaltına alındı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor.
+
+Manisa'da ise organize suç örgütüne yönelik operasyonda 9 kişi tutuklandı. Bu gelişmeler, terörle mücadele ve organize suçlarla mücadele kapsamında yürütülen operasyonların kararlılıkla devam ettiğini göstermektedir.
+
+## Güncelleme - 2026-07-04
+
+14 ilde siber suçlara yönelik düzenlenen operasyonlarda 306 şüpheli yakalandı. Bu operasyonlar, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendiriliyor. Yakalanan şüphelilerin emniyetteki işlemleri sürerken, terörle mücadele kapsamında operasyonların kararlılıkla devam edeceği belirtildi.
+
+## Güncelleme - 2026-07-17
+
+16 Temmuz 2026 tarihinde, FETÖ'nün emniyet mahrem yapılanmasına yönelik bir operasyon düzenlendi ve 16 kişi tutuklandı. Aynı gün, terör örgütü DEAŞ'a yönelik bir operasyon daha gerçekleştirildi. Bu gelişmeler, daha önce İstanbul merkezli olarak 3 ilde gerçekleştirilen ve 83 şüpheli hakkında tutuklama talebinde bulunulan DEAŞ operasyonlarının devamı niteliğinde değerlendirilmektedir.
+
+## Güncelleme - 2026-07-18
+
+Türkiye genelinde 30 ilde DEAŞ terör örgütüne yönelik düzenlenen eş zamanlı operasyonlarda 119 şüpheli yakalandı. İçişleri Bakanlığı'ndan yapılan açıklamaya göre, operasyonlar sonucunda gözaltına alınan şüphelilerin emniyetteki işlemleri devam ediyor.
+
+Bu operasyonlar, terör örgütlerinin faaliyetlerini engellemeye yönelik sürdürülen mücadelenin bir parçası olarak değerlendiriliyor. Yakalanan şüphelilerin örgüte üye kazandırma, propaganda yapma ve finansal destek sağlama gibi suçlamalarla karşı karşıya kalması bekleniyor.
+
+## Güncelleme - 2026-08-07
+
+8 Ağustos 2026 tarihinde, İçişleri Bakanlığı tarafından yapılan duyuruya göre, Türkiye genelinde 30 ilde eş zamanlı olarak DEAŞ terör örgütüne yönelik büyük bir operasyon düzenlendi. Operasyonlarda toplam 104 şüpheli yakalanarak gözaltına alındı. Gözaltına alınan şüphelilerin emniyetteki işlemleri devam etmekle birlikte, bu operasyonlar terörle mücadele kapsamında sürdürülen kararlı mücadelenin bir parçası olarak öne çıkıyor.

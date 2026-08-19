@@ -1,0 +1,26 @@
+---
+title: "İYİ Partili Kavuncu: Öcalan'ın Onayına Sunulacak Yasa Yok Hükmündedir"
+date: "2026-06-08"
+category: "Siyasi"
+img: ""
+---
+
+İYİ Parti Sözcüsü Kürşat Zorlu, terör örgütü elebaşısı Abdullah Öcalan'ın onayına sunulacak bir yasa tasarısının söz konusu olmadığını belirtti. Zorlu, bu tür bir girişimin yok hükmünde olacağını vurguladı.
+
+Bu açıklama, Türkiye'nin gündemindeki hassas konulara dair siyasi partilerin duruşunu yansıtmaktadır. İYİ Parti'nin bu konudaki net tavrı, kamuoyunda ve siyasi çevrelerde yankı buldu.
+
+## Güncelleme - 2026-06-08
+
+İYİ Parti Sözcüsü Buğra Kavuncu, terör örgütü elebaşısı Abdullah Öcalan'ın onayına sunulacak bir yasa teklifinin söz konusu olmadığını ve böyle bir girişimin kendileri için yok hükmünde olacağını belirtti. Bu açıklama, partinin bu konudaki net duruşunu ve hassasiyetini ortaya koymaktadır.
+
+Bu gelişme, Türkiye'nin gündemindeki terörle mücadele ve siyasi partilerin bu konudaki tutumlarına dair önemli bir siyasi duruşu yansıtmaktadır. İYİ Parti'nin bu konudaki kararlı tavrı, kamuoyunda ve siyasi çevrelerde dikkatle takip edilmektedir.
+
+## Güncelleme - 2026-06-23
+
+AK Parti Sözcüsü Ömer Çelik, "Terörsüz Türkiye sürecinde artık yeni bir aşamadayız" açıklamasını yaptı. Bu açıklama, terörle mücadele ve olası yasal düzenlemeler konusunda yeni bir döneme girildiğine işaret ediyor. Ancak, bu sürecin detayları ve somut adımları henüz netlik kazanmış değil.
+
+Bu gelişmeler, İYİ Parti'nin daha önceki "Öcalan'ın onayına sunulacak yasa yok hükmündedir" şeklindeki net duruşuyla birlikte değerlendirildiğinde, siyasi partilerin terörle mücadele ve çözüm süreci gibi hassas konulardaki farklı yaklaşımlarını gözler önüne seriyor.
+
+## Güncelleme - 2026-08-10
+
+İYİ Parti'nin çeşitli kademelerinden gelen açıklamalarda, Türkiye'nin geleceğinin terör örgütü elebaşısı Abdullah Öcalan'dan gelen mesajlarla belirlenemeyeceği vurgulandı. Bu açıklamalar, partinin bu konudaki net duruşunu ve hassasiyetini bir kez daha ortaya koydu. Bu gelişme, terörle mücadele ve siyasi partilerin bu konudaki tutumlarına dair önemli bir siyasi duruşu yansıtmaktadır.
